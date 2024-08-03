@@ -14,27 +14,27 @@ If you're looking for a unique and captivating engagement ring, look no further 
 ## Reviews
 
 
-### [Aquamarine Engagement Ring with Diamond Halo](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=aquamarine-engagement-ring-with-diamond-halo)
+### [Aquamarine Engagement Ring with Diamond Halo](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=aquamarine-engagement-ring-with-diamond-halo)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=aquamarine-engagement-ring-with-diamond-halo"><img alt="aquamarine-2-1-3-ct-t-w-diamond-1-10-ct-t-w-halo-ring-in-sterling-silver-aquamarine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aquamarine-2-1-3-ct-t-w-diamond-1-10-ct-t-w-halo-ring-in-sterling-silver-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=aquamarine-engagement-ring-with-diamond-halo"><img alt="aquamarine-2-1-3-ct-t-w-diamond-1-10-ct-t-w-halo-ring-in-sterling-silver-aquamarine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aquamarine-2-1-3-ct-t-w-diamond-1-10-ct-t-w-halo-ring-in-sterling-silver-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
 
 This stunning halo ring, crafted in sterling silver, elevates the enchanting aquamarine gem, providing an elegant and sophisticated touch to any outfit. The aquamarine stone, weighing 2 1/3 carats, steals the spotlight with its calming, gentle blue hue. Surrounding the aquamarine is a dazzling diamond halo, adding a touch of sparkle and enhancing the overall beauty of the piece. 
 
 The delicate balance between the aquamarine and the diamonds creates a truly alluring design that will surely make a lasting impression. While it might not be the most affordable option, the quality and craftsmanship of this ring are unparalleled, making it a worthwhile investment for those seeking a unique and luxurious statement piece. 
 
 
-### [Elegant 1.5 Carat Oval Cut Aquamarine Engagement Ring Set with Matching Band, Art Deco Curved Stacking Gift for Women](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=elegant-1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-art-deco-curved-stacking-gift-for-women)
+### [Elegant 1.5 Carat Oval Cut Aquamarine Engagement Ring Set with Matching Band, Art Deco Curved Stacking Gift for Women](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=elegant-1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-art-deco-curved-stacking-gift-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=elegant-1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-art-deco-curved-stacking-gift-for-women"><img alt="1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-10k-white-gold-art-deco-curved--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-10k-white-gold-art-deco-curved--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=elegant-1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-art-deco-curved-stacking-gift-for-women"><img alt="1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-10k-white-gold-art-deco-curved--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/1-5-carat-oval-cut-aquamarine-engagement-ring-set-with-matching-band-10k-white-gold-art-deco-curved--1/h=540,fit=pad,background=black"/></a></div>
 
 For a special someone, this stunning oval cut aquamarine engagement ring set with matching band is a captivating choice. Made from the finest VVS Natural Aquamarine, it boasts a timeless art deco milgrain design that is elegantly crafted for a classic, eye-catching look. Offered in various gold karats like 10k, 14k, and 18k rose or yellow gold, it's a versatile option perfect for different preferences. 
 
 Handmade with precision and quality craftsmanship by experienced jewelers, it makes an exquisite gift for any occasion. 
 
 
-### [Hidden Halo Asscher Cut Light Aquamarine Blue Engagement Ring in Sterling Silver and White Gold](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-and-white-gold)
+### [Hidden Halo Asscher Cut Light Aquamarine Blue Engagement Ring in Sterling Silver and White Gold](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-and-white-gold)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-and-white-gold"><img alt="louily-stunning-hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-9-w-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/louily-stunning-hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-9-w-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-and-white-gold"><img alt="louily-stunning-hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-9-w-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/louily-stunning-hidden-halo-asscher-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-9-w-1/h=540,fit=pad,background=black"/></a></div>
 
 Louily presents a stunning hidden halo engagement ring with a captivating hidden halo design. Featuring an ethereal Asscher cut light aquamarine blue stone, this ring stands out with its unique beauty. 
 
@@ -45,36 +45,36 @@ It also comes in 925 white gold, adding a luxurious touch to the design. This ex
 The nickel-free and rhodium-plated metal ensures an allergy-free experience, making it a great choice for those with sensitive skin. Overall, this stunning hidden halo Asscher cut light aquamarine blue engagement ring is a splendid addition to any jewelry collection, blending style, quality, and uniqueness. 
 
 
-### [Stunning Aquamarine & Diamond Engagement Ring in 14K Rose Gold](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=stunning-aquamarine-diamond-engagement-ring-in-14k-rose-gold)
+### [Stunning Aquamarine & Diamond Engagement Ring in 14K Rose Gold](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=stunning-aquamarine-diamond-engagement-ring-in-14k-rose-gold)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=stunning-aquamarine-diamond-engagement-ring-in-14k-rose-gold"><img alt="aquamarine-1-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-14k-rose-gold-aquamarine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aquamarine-1-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-14k-rose-gold-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=stunning-aquamarine-diamond-engagement-ring-in-14k-rose-gold"><img alt="aquamarine-1-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-14k-rose-gold-aquamarine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aquamarine-1-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-14k-rose-gold-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine yourself standing out in a sea of jewelry, with this mesmerizing pear-cut aquamarine and diamond ring as your pièce de résistance. Crafted in luxurious 14K rose gold, it shines with a vintage allure that screams glamour. 
 
 The splendid aquamarine, set at half a carat and twinkling with 1/10 of a carat diamonds, elevates its appeal, while the pave embellishment adds a touch of sophistication. This statement piece is perfect for cocktails, red carpets, or simply turning heads as you walk down the street. 
 
 
-### [Stunning Aquadiamond White Gold Ring by Saks Fifth Avenue](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=stunning-aquadiamond-white-gold-ring-by-saks-fifth-avenue)
+### [Stunning Aquadiamond White Gold Ring by Saks Fifth Avenue](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=stunning-aquadiamond-white-gold-ring-by-saks-fifth-avenue)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=stunning-aquadiamond-white-gold-ring-by-saks-fifth-avenue"><img alt="saks-fifth-avenue-womens-14k-white-gold-aquamarine-diamond-ring-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/saks-fifth-avenue-womens-14k-white-gold-aquamarine-diamond-ring-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=stunning-aquadiamond-white-gold-ring-by-saks-fifth-avenue"><img alt="saks-fifth-avenue-womens-14k-white-gold-aquamarine-diamond-ring-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/saks-fifth-avenue-womens-14k-white-gold-aquamarine-diamond-ring-1/h=540,fit=pad,background=black"/></a></div>
 
 The Saks Fifth Avenue Women's 14K White Gold, Aquamarine & Diamond Ring is a beautiful piece of jewelry, perfect for any special occasion. It features a stunning emerald-cut aquamarine stone, surrounded by sparkling pavé white diamonds, all set in 14K white gold. Its size, just under half an inch in width, and narrow band, make it a sophisticated and elegant choice. 
 
 This unique engagement ring is expertly crafted in the USA and sure to make a lasting impression. 
 
 
-### [Light Aquamarine Blue Radiant Cut Engagement Ring in Sterling Silver](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=light-aquamarine-blue-radiant-cut-engagement-ring-in-sterling-silver)
+### [Light Aquamarine Blue Radiant Cut Engagement Ring in Sterling Silver](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=light-aquamarine-blue-radiant-cut-engagement-ring-in-sterling-silver)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=light-aquamarine-blue-radiant-cut-engagement-ring-in-sterling-silver"><img alt="exclusive-radiant-cut-light-aquamarine-blue-engagement-ring-size-4-5-18k-white-gold-925-sterling-sil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/exclusive-radiant-cut-light-aquamarine-blue-engagement-ring-size-4-5-18k-white-gold-925-sterling-sil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=light-aquamarine-blue-radiant-cut-engagement-ring-in-sterling-silver"><img alt="exclusive-radiant-cut-light-aquamarine-blue-engagement-ring-size-4-5-18k-white-gold-925-sterling-sil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/exclusive-radiant-cut-light-aquamarine-blue-engagement-ring-size-4-5-18k-white-gold-925-sterling-sil-1/h=540,fit=pad,background=black"/></a></div>
 
 Fell in love with the radiant cut light aquamarine blue engagement ring from Maxine Jewelry. Made with 925 sterling silver, this stunning piece boasts a beautiful 1.7mm band width, paired with a radiant cut center stone that measures 10\*7mm and weighs 3.3 carats. The enchanting design is adorned with a 0.25-carat white diamond side stone, all set in a stunning 18k white gold plating. 
 
 This captivating engagement ring from Maxine Jewelry truly radiates a brilliant sparkle, and wearing it feels like a dream come true. 
 
 
-### [Aquamarine & Diamond 10K Pink Gold Bridal Set Ring (3/4 ctw Aquamarine, 1/3 ctw Diamonds) - 6](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=aquamarine-diamond-10k-pink-gold-bridal-set-ring-3-4-ctw-aquamarine-1-3-ctw-diamonds-6)
+### [Aquamarine & Diamond 10K Pink Gold Bridal Set Ring (3/4 ctw Aquamarine, 1/3 ctw Diamonds) - 6](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=aquamarine-diamond-10k-pink-gold-bridal-set-ring-3-4-ctw-aquamarine-1-3-ctw-diamonds-6)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=aquamarine-diamond-10k-pink-gold-bridal-set-ring-3-4-ctw-aquamarine-1-3-ctw-diamonds-6"><img alt="aquamarine-3-4-carat-ctw-with-diamond-1-3-carat-ctw-bridal-set-ring-in-10k-pink-gold-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquamarine-3-4-carat-ctw-with-diamond-1-3-carat-ctw-bridal-set-ring-in-10k-pink-gold-6-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=aquamarine-diamond-10k-pink-gold-bridal-set-ring-3-4-ctw-aquamarine-1-3-ctw-diamonds-6"><img alt="aquamarine-3-4-carat-ctw-with-diamond-1-3-carat-ctw-bridal-set-ring-in-10k-pink-gold-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquamarine-3-4-carat-ctw-with-diamond-1-3-carat-ctw-bridal-set-ring-in-10k-pink-gold-6-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of trying out this stunning Aquamarine Bridal Set Ring with Diamond Accents in 10K Pink Gold. The moment I put it on, I was in awe of its elegance and shimmering beauty. The combination of the round aquamarine and the 31 surrounding diamonds created a dazzling effect, surely turning heads for any bride. 
 
@@ -85,18 +85,18 @@ However, though the ring was visually striking, I found it to be quite heavy to 
 Despite the weight issue, the Aquamarine Bridal Set Ring with Diamond Accents in 10K Pink Gold was a truly special piece. Its design, intricacy, and beauty made it a standout choice for any bride on her special day. 
 
 
-### [Halo Light Aquamarine Blue Engagement Ring in Sterling Silver](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=halo-light-aquamarine-blue-engagement-ring-in-sterling-silver)
+### [Halo Light Aquamarine Blue Engagement Ring in Sterling Silver](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=halo-light-aquamarine-blue-engagement-ring-in-sterling-silver)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=halo-light-aquamarine-blue-engagement-ring-in-sterling-silver"><img alt="halo-emerald-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-size-8-5-18k-white-gold-92-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/halo-emerald-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-size-8-5-18k-white-gold-92-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=halo-light-aquamarine-blue-engagement-ring-in-sterling-silver"><img alt="halo-emerald-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-size-8-5-18k-white-gold-92-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/halo-emerald-cut-light-aquamarine-blue-engagement-ring-in-sterling-silver-size-8-5-18k-white-gold-92-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the eye-catching Halo Engagement Ring, featuring a stunning light aquamarine blue center stone. Crafted with precision, the emerald cut gemstone measures 7 by 9mm and boasts a carat weight of 4. The ring offers the perfect blend of sophistication and charm, with its side stones in elegant round cut, and a plating in both white gold and 925 sterling silver. 
 
 This exquisite addition to your jewelry collection is nickel-free and rhodium-plated for added durability and shine. Make your special moment even more extraordinary with this captivating halo engagement ring from Maxine Jewelry. 
 
 
-### [Santa Maria Aquamarine & Diamond Halo Engagement Ring in White Gold](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=santa-maria-aquamarine-diamond-halo-engagement-ring-in-white-gold)
+### [Santa Maria Aquamarine & Diamond Halo Engagement Ring in White Gold](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=santa-maria-aquamarine-diamond-halo-engagement-ring-in-white-gold)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=santa-maria-aquamarine-diamond-halo-engagement-ring-in-white-gold"><img alt="santa-maria-aquamarine-1-2-ct-t-w-diamond-3-8-ct-t-w-halo-ring-in-14k-white-gold-aquamarine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/santa-maria-aquamarine-1-2-ct-t-w-diamond-3-8-ct-t-w-halo-ring-in-14k-white-gold-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=santa-maria-aquamarine-diamond-halo-engagement-ring-in-white-gold"><img alt="santa-maria-aquamarine-1-2-ct-t-w-diamond-3-8-ct-t-w-halo-ring-in-14k-white-gold-aquamarine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/santa-maria-aquamarine-1-2-ct-t-w-diamond-3-8-ct-t-w-halo-ring-in-14k-white-gold-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
 
 The Santa Maria Aquamarine and Diamond Halo Ring never ceases to captivate me when I slip it on my finger. The stunning 1/2 ct. weight of the blue Santa Maria aquamarine takes center stage, with a mesmerizing glow that compliments my complexion. The subtlety of its hue is perfect, unlike other rings I've seen that overpower the elegance. 
 
@@ -107,9 +107,9 @@ Despite the beauty this ring brings, I admit that there are some cons. The mater
 Overall, this Santa Maria aquamarine and diamond halo ring leaves me in awe every time I wear it. The stunning blue aquamarine accentuated by the dazzling diamonds creates a flawless harmony that will surely turn heads and leave a lasting impression. 
 
 
-### [Translucent Aquamarine & Diamond Engagement Ring](https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm\_term=translucent-aquamarine-diamond-engagement-ring)
+### [Translucent Aquamarine & Diamond Engagement Ring](https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm\_term=translucent-aquamarine-diamond-engagement-ring)
 
-<div class="image"><a href="https://serp.ly/amazon/Aquamarine+Engagement+Rings?utm_term=translucent-aquamarine-diamond-engagement-ring"><img alt="aquamarine-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-sterling-silver-aquamarine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquamarine-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-sterling-silver-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aquamarine+Engagement+Rings?utm_term=translucent-aquamarine-diamond-engagement-ring"><img alt="aquamarine-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-sterling-silver-aquamarine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquamarine-2-ct-t-w-diamond-1-10-ct-t-w-ring-in-sterling-silver-aquamarine-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ethereal allure of aquamarine in this exquisite sterling silver ring, adorned with alluring diamond accents. This feminine accessory not only adds a touch of elegance to your wardrobe but also serves as a captivating conversation starter. I have to say, wearing this remarkable ring has been a thrill; the way it enhances my everyday style has made quite an impression. 
 

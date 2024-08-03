@@ -14,9 +14,9 @@ Welcome to our exclusive roundup on Lancome's iconic fragrance, Lancome Tresor! 
 ## Reviews
 
 
-### [Lancome Tresor Eau de Parfum Spray](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum-spray)
+### [Lancome Tresor Eau de Parfum Spray](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum-spray"><img alt="lancome-tresor-for-women-1-0-oz-edp-spray-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-for-women-1-0-oz-edp-spray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum-spray"><img alt="lancome-tresor-for-women-1-0-oz-edp-spray-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-for-women-1-0-oz-edp-spray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lancome Tresor for Women, a 1.0 oz EDP Spray, has been a part of my life for quite some time now. It was gifted to me by my grandmother and I've been using it regularly ever since. The moment I spray it on, I feel immediately transported to a more fragrant time. The scent is a perfect blend of lilac, rose, apricot, amber, and musk, which gives it a unique aroma that I haven't come across in any other perfume. 
 
@@ -29,18 +29,18 @@ However, one downside I've noticed is that the fragrance seems to have become we
 Despite this minor drawback, I would still recommend the Lancome Tresor for Women. Its unique scent, elegant design, and medium sillage make it a worthwhile addition to anyone's daily routine. 
 
 
-### [Lancome Tresor Midnight Rose - Seductive Rose Fragrance for Women](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-midnight-rose-seductive-rose-fragrance-for-women)
+### [Lancome Tresor Midnight Rose - Seductive Rose Fragrance for Women](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-midnight-rose-seductive-rose-fragrance-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-midnight-rose-seductive-rose-fragrance-for-women"><img alt="lancome-tresor-midnight-rose-eau-de-parfum-50ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-midnight-rose-eau-de-parfum-50ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-midnight-rose-seductive-rose-fragrance-for-women"><img alt="lancome-tresor-midnight-rose-eau-de-parfum-50ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-midnight-rose-eau-de-parfum-50ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Transform your senses and embrace the scent of a midnight rose with Lancôme Tresor Midnight Rose Eau de Parfum, a floral and fruity fragrance designed to captivate and enchant. This captivating women's fragrance features a tantalizing blend of rose, raspberry, jasmine, peony, cassis, pink pepper, musk, cedar, and vanilla. The intoxicating aroma unfolds layer by layer, with top notes of strawberry and rose giving way to the heart notes of cassis and peony, before settling into the base notes of Musk. 
 
 The enchanting Eau de Parfum comes in a travel-size spray, perfect for keeping on hand throughout the day. The iconic bottle, shaped like a jewel, showcases a midnight rose with satin petals adorning the neck. Whether you wear it to a special evening or for a casual day out, the inviting scent of Lancôme Tresor Midnight Rose Eau de Parfum will leave a lasting impression that is both mysterious and alluring, just like the magical midnight rose it represents. 
 
 
-### [Lancome Tresor Gift Set - Luxurious Eau de Parfum, Body Lotion, and Shower Gel](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-gift-set-luxurious-eau-de-parfum-body-lotion-and-shower-gel)
+### [Lancome Tresor Gift Set - Luxurious Eau de Parfum, Body Lotion, and Shower Gel](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-gift-set-luxurious-eau-de-parfum-body-lotion-and-shower-gel)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-gift-set-luxurious-eau-de-parfum-body-lotion-and-shower-gel"><img alt="la-nuit-tresor-by-lancome-3-piece-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/la-nuit-tresor-by-lancome-3-piece-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-gift-set-luxurious-eau-de-parfum-body-lotion-and-shower-gel"><img alt="la-nuit-tresor-by-lancome-3-piece-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/la-nuit-tresor-by-lancome-3-piece-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first encountered Lancome's Tresor Gift Set, I was drawn in by the elegant packaging that housed the L'Eau de Parfum, Perfumed Body Lotion, and Precious Perfumed Shower Gel. The beautiful blend of lychee and raspberry in the perfume created a refreshing and captivating scent that I couldn't help but fall in love with. 
 
@@ -51,9 +51,9 @@ While the gift set offers exceptional value and a great way to add some romance 
 Overall, the Lancome Tresor Gift Set is a beautiful and captivating fragrance that any recipient would be thrilled to receive, making it a standout in my daily routine. It may not be perfect, but I think it's worth it for the refreshing, sweet scent and the luxurious feel it brings to any day. 
 
 
-### [Sensual Lancôme Tresor Gift Set for Women](https://serp.ly/amazon/Lancome+Tresor?utm\_term=sensual-lancôme-tresor-gift-set-for-women)
+### [Sensual Lancôme Tresor Gift Set for Women](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=sensual-lancôme-tresor-gift-set-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=sensual-lancôme-tresor-gift-set-for-women"><img alt="lanc-me-tr-sor-eau-de-parfum-50ml-for-women-christmas-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lanc-me-tr-sor-eau-de-parfum-50ml-for-women-christmas-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=sensual-lancôme-tresor-gift-set-for-women"><img alt="lanc-me-tr-sor-eau-de-parfum-50ml-for-women-christmas-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lanc-me-tr-sor-eau-de-parfum-50ml-for-women-christmas-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 I've always been a fan of Lancôme's scents, but Tresor has a special place in my heart. The first time I tried it, I was immediately drawn to the soft notes of rose, apricot, and musk in the Eau de Parfum. It's a subtle, yet distinct scent that reminds me of a time when everything felt simpler. 
 
@@ -64,9 +64,9 @@ One minor drawback I've experienced is that the parfum can be quite potent. It's
 Overall, the Lancôme Tresor gift set is a thoughtful and decadent present for any woman who appreciates a timeless, elegant scent. The set offers a perfect balance of indulgence and practicality, making it a versatile gift for any occasion. 
 
 
-### [Lancôme Tresor Gift Set for Women - 1.7 oz Eau de Parfum](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancôme-tresor-gift-set-for-women-1-7-oz-eau-de-parfum)
+### [Lancôme Tresor Gift Set for Women - 1.7 oz Eau de Parfum](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancôme-tresor-gift-set-for-women-1-7-oz-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancôme-tresor-gift-set-for-women-1-7-oz-eau-de-parfum"><img alt="tresor-by-lancome-gift-set-1-7-oz-eau-women-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-by-lancome-gift-set-1-7-oz-eau-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancôme-tresor-gift-set-for-women-1-7-oz-eau-de-parfum"><img alt="tresor-by-lancome-gift-set-1-7-oz-eau-women-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-by-lancome-gift-set-1-7-oz-eau-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Tresor by Lancome, a timeless classic, has been a staple in many women's perfume collections for years. As someone who recently tried this fragrance, I was immediately impressed by its complex and refreshing scent profile. The juicy peach and ripe apricot notes create a sensual accord that seamlessly blends with the captivating aroma of a rose in full bloom. Touched with a hint of warm amber, the final result is a soft and refined fragrance that leaves a lasting impression. 
 
@@ -75,18 +75,18 @@ The versatility of Tresor by Lancome is one of its key highlights. One small spr
 Overall, the Tresor by Lancome Gift Set is an excellent choice for women who appreciate classic and refined fragrances. The 1.7 fl oz size is perfect for traveling or as a thoughtful gift for a loved one. Despite its strong scent, the overall experience of wearing Tresor by Lancome is undeniably captivating and timeless. 
 
 
-### [Lancome Tresor - Luxurious Eau de Parfum for Women](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-luxurious-eau-de-parfum-for-women)
+### [Lancome Tresor - Luxurious Eau de Parfum for Women](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-luxurious-eau-de-parfum-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-luxurious-eau-de-parfum-for-women"><img alt="lancome-tresor-100ml-eau-de-parfum-multicolor-woman-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-100ml-eau-de-parfum-multicolor-woman-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-luxurious-eau-de-parfum-for-women"><img alt="lancome-tresor-100ml-eau-de-parfum-multicolor-woman-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-100ml-eau-de-parfum-multicolor-woman-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lancome Tresor 100ml Eau de Parfum captures the essence of women in a vibrant and alluring multicolor scent. With a sophisticated blend of notes and a long-lasting perfume type, this Lancome perfume promises a unique and enchanting experience for the woman who wears it. 
 
 While some customers praise its lasting scent and versatile appeal, others may find it a bit too strong or overbearing for their personal taste. Overall, the Lancome Tresor 100ml Eau de Parfum is a bold choice for those seeking a captivating and sophisticated scent. 
 
 
-### [Lancome Tresor Body Lotion 5oz](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-body-lotion-5oz)
+### [Lancome Tresor Body Lotion 5oz](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-body-lotion-5oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-body-lotion-5oz"><img alt="tresor-body-lotion-5oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-body-lotion-5oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-body-lotion-5oz"><img alt="tresor-body-lotion-5oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-body-lotion-5oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer who's tried Lancome's Tresor Body Lotion, I must say that this product is a delight. My skin felt incredibly moisturized and soft after just one use, making it a perfect addition to my daily skincare routine. I particularly love the floral scent – it's fresh and subtle, leaving me feeling invigorated all day long. 
 
@@ -94,27 +94,27 @@ However, I must admit that the tube container is a bit clunky and sometimes make
 
 
 ### [Lancome Tresor en or Eau de Parfum: 
-1.7 oz.](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-en-or-eau-de-parfum-1-7-oz)
+1.7 oz.](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-en-or-eau-de-parfum-1-7-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-en-or-eau-de-parfum-1-7-oz"><img alt="lancome-tresor-en-or-eau-de-parfum-1-7-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-en-or-eau-de-parfum-1-7-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-en-or-eau-de-parfum-1-7-oz"><img alt="lancome-tresor-en-or-eau-de-parfum-1-7-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-en-or-eau-de-parfum-1-7-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Lancome Tresor en or Eau de Parfum for a while now, and let me tell you, this is a fragrance that makes a statement. It's like a warm embrace in a bottle, opening with top notes of pineapple, lilac, and peach that blend perfectly with the floral heart of rose, jasmine, and iris. The base is a delightful mix of sweet, sultry notes, and the scent lingers on my skin all day long. 
 
 As a daily wear, it's perfect, and the bottle is absolutely stunning. However, I did notice that some reviewers mentioned the scent doesn't last as long as they'd like, but for me, it was more than enough. Overall, the Lancome Tresor en or Eau de Parfum is a must-try for any perfume enthusiast. 
 
 
-### [Lancome Tresor La Nuit Eau de Toilette Spray (1.7 oz)](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-la-nuit-eau-de-toilette-spray-1-7-oz)
+### [Lancome Tresor La Nuit Eau de Toilette Spray (1.7 oz)](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-la-nuit-eau-de-toilette-spray-1-7-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-la-nuit-eau-de-toilette-spray-1-7-oz"><img alt="tresor-la-nuit-eau-de-toilette-spray-1-7-oz-by-lancome-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-la-nuit-eau-de-toilette-spray-1-7-oz-by-lancome-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-la-nuit-eau-de-toilette-spray-1-7-oz"><img alt="tresor-la-nuit-eau-de-toilette-spray-1-7-oz-by-lancome-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-la-nuit-eau-de-toilette-spray-1-7-oz-by-lancome-1/h=540,fit=pad,background=black"/></a></div>
 
 La Nuit Tresor is a delightful fragrance offering by Lancome. This refreshing spray comes in a 1.7 oz bottle, making it perfect for carrying on the go. With a base that features patchouli, the scent provides a rich aroma to fill any room. 
 
 In the heart, raspberry and a touch of wild blackberry add a soothing and fruity fragrance that lasts all day. The compact design of the bottle also makes it an easy addition to any purse or bag. 
 
 
-### [Lancome Tresor Midnight Rose Eau de Parfum: A Seduced and Charming Perfume](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-midnight-rose-eau-de-parfum-a-seduced-and-charming-perfume)
+### [Lancome Tresor Midnight Rose Eau de Parfum: A Seduced and Charming Perfume](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-midnight-rose-eau-de-parfum-a-seduced-and-charming-perfume)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-midnight-rose-eau-de-parfum-a-seduced-and-charming-perfume"><img alt="tresor-midnight-rose-eau-de-parfum-spray-lancome-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-midnight-rose-eau-de-parfum-spray-lancome-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-midnight-rose-eau-de-parfum-a-seduced-and-charming-perfume"><img alt="tresor-midnight-rose-eau-de-parfum-spray-lancome-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresor-midnight-rose-eau-de-parfum-spray-lancome-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the allure of Midnight Rose, Lancôme's enchanting floral musk fragrance. Transforming you into a captivating creature of mystery and charm, this seductive scent weaves a story of love and allure with its exquisite blend of notes. 
 
@@ -127,9 +127,9 @@ Lancôme, the design house behind this captivating fragrance, has expertly craft
 The neck of the bottle adorned with a newly-blossomed midnight rose, its satin petals adding an air of romance and charm. Take your love story to the next level with Midnight Rose, and let the seductive scent steal the hearts of those around you. 
 
 
-### [Lancôme Tresor Oriental Floral Eau de Parfum](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancôme-tresor-oriental-floral-eau-de-parfum)
+### [Lancôme Tresor Oriental Floral Eau de Parfum](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancôme-tresor-oriental-floral-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancôme-tresor-oriental-floral-eau-de-parfum"><img alt="lanc-me-tr-sor-3-4-oz-100-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lanc-me-tr-sor-3-4-oz-100-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancôme-tresor-oriental-floral-eau-de-parfum"><img alt="lanc-me-tr-sor-3-4-oz-100-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lanc-me-tr-sor-3-4-oz-100-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Tresor has always been a special scent for me since I discovered it back in the 90s. It's the perfume that reminds me of my first love, that special person who made me feel like I could conquer the world. The moment I spray it on, I'm transported back to those sweet memories, the gentle breeze of spring, and the intoxicating bloom of new love. 
 
@@ -140,9 +140,9 @@ What I love most about Tresor is its enduring sillage. With just one spray, it l
 That being said, I noticed some changes recently. The older version of Tresor was stronger, more persistent. The new version, while still beautiful, seems a bit lacking in comparison. But that's just me being nitpicky. Let's just say that Tresor still holds a special place in my heart, and I'll always keep a bottle handy as a reminder of the love that's still there. 
 
 
-### [Lancome Tresor Trio Gift Set](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-trio-gift-set)
+### [Lancome Tresor Trio Gift Set](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-trio-gift-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-trio-gift-set"><img alt="lancome-tresor-moments-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-moments-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-trio-gift-set"><img alt="lancome-tresor-moments-gift-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lancome-tresor-moments-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lancôme Tresor Moments Gift Set is a delightful assortment of fragrance products featuring the iconic Tresor scent. This set includes Tresor Eau de Parfum in a 50ml spray, Tresor Body Lotion in a 50ml size, and Tresor Shower Gel also in a 50ml quantity. The Tresor Eau de Parfum, with its warm floral fragrance, is a popular choice among women who appreciate a classic, elegant scent. The unique notes of pineapple, lilac, peach, apricot blossom, lily-of-the-valley, bergamot, and rose give this scent its signature aroma. 
 
@@ -151,9 +151,9 @@ The heart of the fragrance features notes of iris, jasmine, heliotrope, and rose
 Customers have shared their enthusiasm for this set, with many praising the longevity of the scent, the elegant packaging, and the overall value of the product. Others have expressed their disappointment with the quality of the product, specifically the lack of proper packaging that resulted in a damaged product. However, the majority of reviews have given the Tresor Moments Gift Set a high rating, citing it as a great gift idea and a must-have for those who love the Tresor scent. 
 
 
-### [Lancome Tresor Eau de Toilette Spray - Feminine Sensuous Fragrance for Ladies](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-toilette-spray-feminine-sensuous-fragrance-for-ladies)
+### [Lancome Tresor Eau de Toilette Spray - Feminine Sensuous Fragrance for Ladies](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-toilette-spray-feminine-sensuous-fragrance-for-ladies)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-toilette-spray-feminine-sensuous-fragrance-for-ladies"><img alt="tresor-eau-de-toilette-spray-100ml-3-4oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-eau-de-toilette-spray-100ml-3-4oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-toilette-spray-feminine-sensuous-fragrance-for-ladies"><img alt="tresor-eau-de-toilette-spray-100ml-3-4oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-eau-de-toilette-spray-100ml-3-4oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the enchanting fusion of floral and fruity notes with Lancomé's Tresor Eau de Toilette Spray. This 100ml fragrance offers a delicate and feminine scent perfect for daytime use. 
 
@@ -162,9 +162,9 @@ The Eau de Toilette features a unique combination of peach, bergamot, freesia, r
 Though it's not overpowering, Tresor Eau de Toilette is a perfect companion for various occasions, from work to leisurely city strolls, allowing you to indulge in its soft, alluring scent all day long. 
 
 
-### [Lancome Tresor Moment Set](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-moment-set)
+### [Lancome Tresor Moment Set](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-moment-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-moment-set"><img alt="lancome-tresor-moment-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-moment-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-moment-set"><img alt="lancome-tresor-moment-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-moment-set-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the Lancome Tresor Moment Set and it's been an absolute joy to experience. The warm, elegant scent of Tresor is so captivating that it instantly made it my new go-to perfume. 
 
@@ -173,9 +173,9 @@ The unique crystal pyramid bottle looks stunning on my vanity, and the iconic di
 The only downside is that it has a pretty strong perfume scent, so maybe not the best for an everyday fragrance. Regardless, this set is definitely a winner and I'm so glad I stumbled upon it. 
 
 
-### [Lancome Ladies Tresor Gift Set: Floral, Oriental Fragrance for Daily Wear](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-ladies-tresor-gift-set-floral-oriental-fragrance-for-daily-wear)
+### [Lancome Ladies Tresor Gift Set: Floral, Oriental Fragrance for Daily Wear](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-ladies-tresor-gift-set-floral-oriental-fragrance-for-daily-wear)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-ladies-tresor-gift-set-floral-oriental-fragrance-for-daily-wear"><img alt="lancome-ladies-tresor-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-ladies-tresor-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-ladies-tresor-gift-set-floral-oriental-fragrance-for-daily-wear"><img alt="lancome-ladies-tresor-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-ladies-tresor-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 As a devotee of exquisite scents, the Lancome Ladies Tresor Gift Set was an exhilarating addition to my fragrance collection. The elegant and refined packaging flawlessly captured the sophisticated aura of this fragrance. The set comprised a 3.4 oz L'Eau de Parfum Spray and a 1.6 oz Body Lotion, both boasting an alluring fragrance that was bound to garner attention. 
 
@@ -186,18 +186,18 @@ The Tresor EDP 100ml bottle was a standout, with its mature and sophisticated sc
 In conclusion, the Lancome Ladies Tresor Gift Set proved to be a delightful selection for individuals searching for a luxurious, long-lasting fragrance that radiated confidence and elegance. Suitable as a personal acquisition or as a thoughtful gift, this set is undeniably an exceptional enhancement to any perfume connoisseur's collection. 
 
 
-### [Lancome Tresor Passions Gift Set - 3 Piece Limited Edition - Open Box](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-passions-gift-set-3-piece-limited-edition-open-box)
+### [Lancome Tresor Passions Gift Set - 3 Piece Limited Edition - Open Box](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-passions-gift-set-3-piece-limited-edition-open-box)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-passions-gift-set-3-piece-limited-edition-open-box"><img alt="lancome-paris-tresor-passions-gift-set-3-piece-rare-open-box-3605975089349-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-paris-tresor-passions-gift-set-3-piece-rare-open-box-3605975089349-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-passions-gift-set-3-piece-limited-edition-open-box"><img alt="lancome-paris-tresor-passions-gift-set-3-piece-rare-open-box-3605975089349-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-paris-tresor-passions-gift-set-3-piece-rare-open-box-3605975089349-1/h=540,fit=pad,background=black"/></a></div>
 
 This stunning Lancome Tresor Passions Gift Set from Lancome Paris is an exceptional find. The set includes three rare items, all housed in an elegant open box. The beautifully crafted tote showcases beige and camel hues with a luxurious patented fabric exterior and leather trimmings. 
 
 Inside, the gift set reveals the renowned Tresor fragrance, creating an air of sophistication and charm. Whether as a treat for yourself or a loving gift for that special someone, this Lancome Tresor Passions Gift Set is a rare and precious find. 
 
 
-### [Lancome Tresor Xmas 2022 Gift Set: EDP, Body Lotion, and Hypnose Mascara](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-xmas-2022-gift-set-edp-body-lotion-and-hypnose-mascara)
+### [Lancome Tresor Xmas 2022 Gift Set: EDP, Body Lotion, and Hypnose Mascara](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-xmas-2022-gift-set-edp-body-lotion-and-hypnose-mascara)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-xmas-2022-gift-set-edp-body-lotion-and-hypnose-mascara"><img alt="lancome-tresor-xmas-2022-set-3pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-xmas-2022-set-3pcs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-xmas-2022-gift-set-edp-body-lotion-and-hypnose-mascara"><img alt="lancome-tresor-xmas-2022-set-3pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-xmas-2022-set-3pcs-1/h=540,fit=pad,background=black"/></a></div>
 
 This luxurious Lancome Tresor gift set is a perfect addition to any collection of fragrances. With its captivating scent of rose, apricot blossom, and peach, it will leave you feeling both elegant and feminine. 
 
@@ -206,9 +206,9 @@ The set includes a 30ml Eau de Parfum, a 50ml Body Lotion, and a 2ml Hypnose Mas
 The Hypnose Mascara enhances the look of your lashes, giving them a voluminous and dramatic appearance. Whether as a self-care treat or a thoughtful gift for a loved one, the Lancome Tresor gift set is a wonderful way to indulge in the beauty and allure of Lancome. 
 
 
-### [Lancome Tresor Moments Eau de Parfum Gift Set - 2x 1.7oz Perfumes](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-moments-eau-de-parfum-gift-set-2x-1-7oz-perfumes)
+### [Lancome Tresor Moments Eau de Parfum Gift Set - 2x 1.7oz Perfumes](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-moments-eau-de-parfum-gift-set-2x-1-7oz-perfumes)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-moments-eau-de-parfum-gift-set-2x-1-7oz-perfumes"><img alt="lancome-tresor-moments-eau-de-parfum-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-moments-eau-de-parfum-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-moments-eau-de-parfum-gift-set-2x-1-7oz-perfumes"><img alt="lancome-tresor-moments-eau-de-parfum-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-moments-eau-de-parfum-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 This Valentine's Day, add a touch of charm and romance to your loved one's life with the captivating Lancome Tresor Moments Eau de Parfum Gift Set. Enhanced with a delightful scent, Tresor features an alluring blend of lilac, muguet, and rose, elevating your giftee's experience. The light and delicate fragrance boasts notes of sparkling peach and apricot blossoms, perfect for spreading warmth and coziness in any moment. 
 
@@ -217,18 +217,18 @@ Picture presenting this radiant gift to that special someone, knowing you've sha
 The Lancome Tresor Moments Eau de Parfum Gift Set is more than a fragrance – it's a symbol of joy, love, and the everlasting memories it helps create. This Valentine's Day, spread love, warmth, and charm with the enchanting Tresor Moments Eau de Parfum Gift Set. 
 
 
-### [Lancome Tresor L'eau Spray for Women - 3.4 oz / 100 ml](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-leau-spray-for-women-3-4-oz-100-ml)
+### [Lancome Tresor L'eau Spray for Women - 3.4 oz / 100 ml](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-leau-spray-for-women-3-4-oz-100-ml)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-leau-spray-for-women-3-4-oz-100-ml"><img alt="lancome-tresor-leau-de-parfum-3-4-oz-100-ml-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-leau-de-parfum-3-4-oz-100-ml-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-leau-spray-for-women-3-4-oz-100-ml"><img alt="lancome-tresor-leau-de-parfum-3-4-oz-100-ml-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-leau-de-parfum-3-4-oz-100-ml-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the radiant allure of Lancome Tresor with its enchanting blend of rose, mugent, and lilac, which combines with the sparkle of peach and apricot blossom. This delicate and light fragrance captivates with its romantic and smooth touch, creating a sense of everlasting love for women who treasure treasured moments. 
 
 The luxurious scent lingers on the skin for up to six hours and leaves a subtle trail on clothes, turning heads wherever you go. Embrace the elegance of Lancome Tresor, a fragrance that evokes the passion and wonder of true love. 
 
 
-### [Lancome Tresor Eau De Parfum](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum)
+### [Lancome Tresor Eau De Parfum](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum"><img alt="tresor-by-lancome-edp-1-oz-ladies-south-beach-perfumes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-by-lancome-edp-1-oz-ladies-south-beach-perfumes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum"><img alt="tresor-by-lancome-edp-1-oz-ladies-south-beach-perfumes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-by-lancome-edp-1-oz-ladies-south-beach-perfumes-1/h=540,fit=pad,background=black"/></a></div>
 
 Tresor by Lancome EDP is a women's perfume with a history dating back to 1990. Its scent can be described as moderate with notes of apricot, lily, and amber combined with a musk-like smell. While the fragrance is categorized as flowery, it's suitable for casual occasions. Some users have praised the EDP for its strong and long-lasting scent, with many admitting that the perfume grows on them over time. The bottle design is appreciated by many as well. 
 
@@ -237,9 +237,9 @@ However, not all users have had a pleasant experience with Tresor by Lancome EDP
 In conclusion, Tresor by Lancome EDP is a women's perfume with a rich history and a scent that has a moderate yet comforting feel. Though some users have reported the product smelling industrial and chemical in some recent versions, others appreciate its long-lasting and strong scent. Overall, the perfume remains a beloved choice amongst its devoted fans. 
 
 
-### [Lancome Tresor Women's Eau de Parfum, 0.27 oz (Travel Size)](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-womens-eau-de-parfum-0-27-oz-travel-size)
+### [Lancome Tresor Women's Eau de Parfum, 0.27 oz (Travel Size)](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-womens-eau-de-parfum-0-27-oz-travel-size)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-womens-eau-de-parfum-0-27-oz-travel-size"><img alt="tresor-for-women-eau-de-parfum-spray-0-27-oz-travel-spray-by-lancome-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-for-women-eau-de-parfum-spray-0-27-oz-travel-spray-by-lancome-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-womens-eau-de-parfum-0-27-oz-travel-size"><img alt="tresor-for-women-eau-de-parfum-spray-0-27-oz-travel-spray-by-lancome-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresor-for-women-eau-de-parfum-spray-0-27-oz-travel-spray-by-lancome-1/h=540,fit=pad,background=black"/></a></div>
 
 Treat your senses to the sweet, unforgettable aroma of Tresor by Lancome, a captivating women's fragrance that has been turning heads since its launch in 1990. As a daily user, I find this perfume to be an exciting blend of fresh top notes of rose and black currant, that when combined with softilac heart notes, emits a warm and inviting scent. 
 
@@ -248,18 +248,18 @@ The vanilla and sandalwood base notes further enhance the alluring fragrance, ke
 While I am looking forward to Lancome returning to the old formula, I find myself reaching for my Tresor bottle when I want to feel fabulous. 
 
 
-### [Lancome Tresor Women's L'eau De Parfum Spray](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-womens-leau-de-parfum-spray)
+### [Lancome Tresor Women's L'eau De Parfum Spray](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-womens-leau-de-parfum-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-womens-leau-de-parfum-spray"><img alt="la-nuit-tresor-by-lancome-womens-leau-de-parfum-spray-3-4-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/la-nuit-tresor-by-lancome-womens-leau-de-parfum-spray-3-4-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-womens-leau-de-parfum-spray"><img alt="la-nuit-tresor-by-lancome-womens-leau-de-parfum-spray-3-4-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/la-nuit-tresor-by-lancome-womens-leau-de-parfum-spray-3-4-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 La Nuit Tresor, created by Lancome in 2015, is an oriental vanilla fragrance with a blend of alluring scents. Presenting a sweet, savory, and sophisticated charm, it features top notes of lychee and raspberry, middle notes of Rose Damascena Essence and incense, and base notes of absolute vanilla orchid Tahitensis, praline, patchouli, and papyrus. 
 
 This captivating scent is perfect for those looking for a fragrance that complements their modern elegance and adds an air of intrigue. With a lasting and distinctive aroma, La Nuit Tresor is a must-have addition to any vanity collection. 
 
 
-### [Lancome Tresor Inspirations Holiday Gift Set - Eau de Parfum and Body Lotion Set for Special Moments](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-inspirations-holiday-gift-set-eau-de-parfum-and-body-lotion-set-for-special-moments)
+### [Lancome Tresor Inspirations Holiday Gift Set - Eau de Parfum and Body Lotion Set for Special Moments](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-inspirations-holiday-gift-set-eau-de-parfum-and-body-lotion-set-for-special-moments)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-inspirations-holiday-gift-set-eau-de-parfum-and-body-lotion-set-for-special-moments"><img alt="lancome-tresor-inspirations-eau-de-parfum-holiday-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-inspirations-eau-de-parfum-holiday-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-inspirations-holiday-gift-set-eau-de-parfum-and-body-lotion-set-for-special-moments"><img alt="lancome-tresor-inspirations-eau-de-parfum-holiday-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-inspirations-eau-de-parfum-holiday-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of trying Lancôme's Tresor Inspirations Eau de Parfum Holiday Gift Set, and it truly lived up to my expectations. As the notes of peach and apricot blossom sparkle, it transported me to a warm, romantic setting, perfect for the upcoming holiday season. The eau de parfum has a soft, feminine touch with the combination of rose, musk, and lilac notes that leave a subtle but long-lasting impression. 
 
@@ -270,9 +270,9 @@ However, I've noticed that the fragrance set is a bit challenging to locate the 
 In conclusion, I highly recommend the Lancôme Tresor Inspirations Eau de Parfum Holiday Gift Set for those seeking a delicate, romantic, and sophisticated fragrance experience. It has become my signature scent, and I look forward to sharing it with loved ones this holiday season. 
 
 
-### [Lancome Tresor Eau de Parfum Spray: A Timeless Scent for Women](https://serp.ly/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum-spray-a-timeless-scent-for-women)
+### [Lancome Tresor Eau de Parfum Spray: A Timeless Scent for Women](https://serp.ly/@outrun/amazon/Lancome+Tresor?utm\_term=lancome-tresor-eau-de-parfum-spray-a-timeless-scent-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum-spray-a-timeless-scent-for-women"><img alt="lancome-tresor-3-4-oz-eau-de-parfum-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-3-4-oz-eau-de-parfum-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor?utm_term=lancome-tresor-eau-de-parfum-spray-a-timeless-scent-for-women"><img alt="lancome-tresor-3-4-oz-eau-de-parfum-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lancome-tresor-3-4-oz-eau-de-parfum-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Lancome Tresor, a beloved fragrance for women, offers a floral fruity scent that is both unique and alluring. Introduced in 2008, this perfume boasts a captivating blend of peach, bergamot, rose, and freesia combined with the warmth of sandalwood and patchouli. 
 
@@ -293,7 +293,7 @@ Familiarizing yourself with the different types of fragrances can help you make 
 2) Eau de Toilette (EDT), known for its lighter floral notes; 
 3) Eau de Parfum (EDP), characterized by a stronger, more complex fragrance; and 4) Parfum, the richest and most potent form, often used for special occasions. 
 
-<div><a href="https://serp.ly/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-2/h=540,fit=pad,background=black" alt="Lancome-Tresor-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-2/h=540,fit=pad,background=black" alt="Lancome-Tresor-2" height="540"></a></div>
 
 
 ### Notes and their Influence on Scent
@@ -305,7 +305,7 @@ Fragrance notes play a significant role in determining a scent's style and chara
 
 Allergens can be found in many fragrance products. Some common sensitivity triggers include synthetic and naturally sourced components such as citrus, sandalwood, musk, or even the plant extracts used in many fragrances. It is crucial to test a fragrance on a small area of your skin before wearing it for an extended period to avoid any potential reactions. 
 
-<div><a href="https://serp.ly/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-3/h=540,fit=pad,background=black" alt="Lancome-Tresor-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-3/h=540,fit=pad,background=black" alt="Lancome-Tresor-3" height="540"></a></div>
 
 
 ### Longevity and Strength
@@ -315,7 +315,7 @@ The longevity and strength of a fragrance can influence its overall appeal. Lanc
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-4/h=540,fit=pad,background=black" alt="Lancome-Tresor-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-4/h=540,fit=pad,background=black" alt="Lancome-Tresor-4" height="540"></a></div>
 
 
 ### What is Lancôme Tresor?
@@ -331,7 +331,7 @@ Lancôme Tresor was created by the renowned perfumer, Maurice Roucel. He has bee
 
 Maurice Roucel's genius in crafting Lancôme Tresor has been recognized and celebrated throughout the years. He has received prestigious awards and accolades for his work in the perfume industry, including the FIFI Lifetime Achievement Award in 2018. His incredible talent in creating captivating and timeless scents has made him a household name, and Lancôme Tresor remains a testament to his artistry. 
 
-<div><a href="https://serp.ly/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-5/h=540,fit=pad,background=black" alt="Lancome-Tresor-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-5/h=540,fit=pad,background=black" alt="Lancome-Tresor-5" height="540"></a></div>
 
 
 ### What are the notes of Lancôme Tresor?
@@ -347,7 +347,7 @@ The longevity of Lancôme Tresor varies depending on the specific version of the
 
 To ensure the best performance and longevity of Lancôme Tresor, it is recommended to apply the perfume on pulps (skin) and not directly on clothes. Additionally, applying the fragrance to pulse points such as wrists, neck, and behind the ears will help in intensifying the scent and making it last longer. 
 
-<div><a href="https://serp.ly/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-6/h=540,fit=pad,background=black" alt="Lancome-Tresor-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lancome+Tresor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lancome-Tresor-6/h=540,fit=pad,background=black" alt="Lancome-Tresor-6" height="540"></a></div>
 
 
 ### Can men also use Lancôme Tresor?

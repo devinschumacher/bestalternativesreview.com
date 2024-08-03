@@ -14,9 +14,9 @@ If you're a fan of cozy footwear that stands out in a crowd, Bearpaw Boots Black
 ## Reviews
 
 
-### [Bearpaw Women's Helaina Fashion Boots - Black Size 9](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-helaina-fashion-boots-black-size-9)
+### [Bearpaw Women's Helaina Fashion Boots - Black Size 9](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-helaina-fashion-boots-black-size-9)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-helaina-fashion-boots-black-size-9"><img alt="bearpaw-womens-helaina-boots-black-size-10" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-helaina-boots-black-size-10/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-helaina-fashion-boots-black-size-9"><img alt="bearpaw-womens-helaina-boots-black-size-10" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-helaina-boots-black-size-10/h=540,fit=pad,background=black"/></a></div>
 
 A while ago, I found myself in a fashion emergency. I had to attend a party and needed an elegant yet comfy pair of boots. I chose the Bearpaw Women's Helaina Boots. 
 
@@ -25,9 +25,9 @@ The moment I slipped my foot in, I knew I made the right choice. The soft fur-li
 Plus, the durable traction sole was perfect for hurried late-night errands. Bearpaw, you truly did a fantastic job with these boots! 
 
 
-### [Curly Lamb Bearpaw Women's Boetis II Winter Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=curly-lamb-bearpaw-womens-boetis-ii-winter-boots)
+### [Curly Lamb Bearpaw Women's Boetis II Winter Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=curly-lamb-bearpaw-womens-boetis-ii-winter-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=curly-lamb-bearpaw-womens-boetis-ii-winter-boots"><img alt="bearpaw-womens-boetis-ii-winter-boots-black-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-boetis-ii-winter-boots-black-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=curly-lamb-bearpaw-womens-boetis-ii-winter-boots"><img alt="bearpaw-womens-boetis-ii-winter-boots-black-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-boetis-ii-winter-boots-black-6/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Bearpaw Women's Boetis II Winter Boots in a stunning black color, perfect for those who love making a statement. These boots are not for the shy and timid, as they are designed to turn heads and leave a lasting impression. 
 
@@ -38,9 +38,9 @@ Designed specifically for women, the Boetis II Winter Boots are available in var
 Users have shared their positive experiences with the Bearpaw Women's Boetis II Winter Boots. Many have expressed their love for the attention-grabbing boots and the numerous compliments they receive, while some have mentioned the need to order a size up for a more comfortable fit. A few have had concerns about the durability of the soles, but overall, the consensus is that these boots are worth their price. 
 
 
-### [Bearpaw Patriot Boot - Men's 10, Black](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-patriot-boot-mens-10-black)
+### [Bearpaw Patriot Boot - Men's 10, Black](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-patriot-boot-mens-10-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-patriot-boot-mens-10-black"><img alt="bearpaw-mens-patriot-boot-10-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-mens-patriot-boot-10-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-patriot-boot-mens-10-black"><img alt="bearpaw-mens-patriot-boot-10-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-mens-patriot-boot-10-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Patriot Boot offers a stylish touch for men in the colder months. With its suede upper, it provides a sophisticated appeal to any outfit. The wool blend lining ensures a plush in-shoe feel that keeps feet warm and cozy all day long. 
 
@@ -49,9 +49,9 @@ The shaft construction helps tuck jeans in for a fashionable look. These boots a
 Overall, these high-quality snow boots are worth considering for comfort and style. 
 
 
-### [Bearpaw Women's Tama II Black Mid Calf Boot (Size 5M)](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-tama-ii-black-mid-calf-boot-size-5m)
+### [Bearpaw Women's Tama II Black Mid Calf Boot (Size 5M)](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-tama-ii-black-mid-calf-boot-size-5m)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-tama-ii-black-mid-calf-boot-size-5m"><img alt="bearpaw-womens-tama-ii-solids-mid-calf-boot-black-size-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-tama-ii-solids-mid-calf-boot-black-size-5m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-tama-ii-black-mid-calf-boot-size-5m"><img alt="bearpaw-womens-tama-ii-solids-mid-calf-boot-black-size-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-tama-ii-solids-mid-calf-boot-black-size-5m-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the Bearpaw Women's Tama II Solids Mid Calf Boot in black and couldn't resist giving them a try. These boots are an absolute delight, offering both style and comfort. I've been using them daily and I must say that their fur-trimmed design has become a true statement-maker. 
 
@@ -62,9 +62,9 @@ Unfortunately, there is a minor issue with the size. I found that the boots run 
 Overall, the Bearpaw Women's Tama II Solids Mid Calf Boot has been a fantastic addition to my winter footwear collection. Despite the sizing issue, the pros outweigh the cons, making them a great choice for those looking for both style and warmth. 
 
 
-### [Bearpaw Women's Phylly Black Boots with Warm Lining](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-phylly-black-boots-with-warm-lining)
+### [Bearpaw Women's Phylly Black Boots with Warm Lining](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-phylly-black-boots-with-warm-lining)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-phylly-black-boots-with-warm-lining"><img alt="bearpaw-womens-phylly-boots-black-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-phylly-boots-black-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-phylly-black-boots-with-warm-lining"><img alt="bearpaw-womens-phylly-boots-black-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-phylly-boots-black-6/h=540,fit=pad,background=black"/></a></div>
 
 Slip your feet into the Bearpaw Women's Phylly Boots - a perfect blend of style and warmth for the winter months. With a waterproof nubuck leather exterior, these boots offer an effortless care routine, so you can focus on looking good. 
 
@@ -73,9 +73,9 @@ The lambswool blend lining and 100% lambswool insole ensure your feet stay cozy 
 These boots may run small, so it's recommended to size up for a perfect fit. 
 
 
-### [Retro Shorty Boots for Women by Bearpaw - Black Color, Size 12](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=retro-shorty-boots-for-women-by-bearpaw-black-color-size-12)
+### [Retro Shorty Boots for Women by Bearpaw - Black Color, Size 12](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=retro-shorty-boots-for-women-by-bearpaw-black-color-size-12)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=retro-shorty-boots-for-women-by-bearpaw-black-color-size-12"><img alt="bearpaw-womens-retro-shorty-boots-black-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-retro-shorty-boots-black-size-13/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=retro-shorty-boots-for-women-by-bearpaw-black-color-size-12"><img alt="bearpaw-womens-retro-shorty-boots-black-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-retro-shorty-boots-black-size-13/h=540,fit=pad,background=black"/></a></div>
 
 With a classic yet futuristic design, the Bearpaw Women's Retro Shorty Boots are a stylish choice for both indoor and outdoor activities. Featuring a lightweight blown rubber outsole, these shorty boots are perfect for those looking for a versatile yet comfortable option. The sheepskin wool lining is cozy and provides both warmth and moisture resistance, while the removable comfort sheepskin footbed ensures all-day comfort. 
 
@@ -84,9 +84,9 @@ The 1-inch heel and cropped bootie style add a touch of elegance, making this a 
 Despite these drawbacks, the Bearpaw Women's Retro Shorty Boots remain a staple choice for those seeking both style and functionality. 
 
 
-### [Bearpaw Women's Elise Boot - Stylish Black Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-elise-boot-stylish-black-boots)
+### [Bearpaw Women's Elise Boot - Stylish Black Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-elise-boot-stylish-black-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-elise-boot-stylish-black-boots"><img alt="bearpaw-womens-elise-boot-5-black-ii-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elise-boot-5-black-ii-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-elise-boot-stylish-black-boots"><img alt="bearpaw-womens-elise-boot-5-black-ii-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elise-boot-5-black-ii-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Elise Mid Calf Boot is a stylish and comfortable choice for those seeking a cozy footwear companion during cold weather. With a 9-inch height and curly lamb with haircalf vamp, this boot oozes sophistication and charm. 
 
@@ -95,9 +95,9 @@ The top collar features crystals and die cut lattice accents, adding a touch of 
 A suede banded trim and pom-pom detail add an extra layer of style to this already impressive boot. With its versatile fit and eye-catching design, the Bearpaw Elise Mid Calf Boot won't disappoint. 
 
 
-### [Bearpaw Women's Comfortable Black Wellston Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-comfortable-black-wellston-boots)
+### [Bearpaw Women's Comfortable Black Wellston Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-comfortable-black-wellston-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-comfortable-black-wellston-boots"><img alt="bearpaw-womens-wellston-boots-black-size-8" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-wellston-boots-black-size-8/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-comfortable-black-wellston-boots"><img alt="bearpaw-womens-wellston-boots-black-size-8" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-wellston-boots-black-size-8/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Women's Wellston Boots stood out with their cute style and comforting features. The cow suede upper and removable sheepskin footbed made for cozy booties that protected against the cold. However, one downside was their narrow shaft and need to size up for some people. They also had a bit of an insoles issue with some customers, creating an uncomfortable experience. 
 
@@ -106,18 +106,18 @@ Inside the sleek boots, the 5" shaft coupled with the 10" circumference ensured 
 Despite the minor flaws, the Bearpaw Women's Wellston Boots were a true crowd-pleaser. Their adorable appearance and comfortable insoles earned them a solid 4.3-star rating with an impressive 131 reviews. They became not only a fashion statement but also a go-to comfort for women in the cold seasons. 
 
 
-### [Bearpaw Genevieve 6 Women's Black Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-genevieve-6-womens-black-boots)
+### [Bearpaw Genevieve 6 Women's Black Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-genevieve-6-womens-black-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-genevieve-6-womens-black-boots"><img alt="bearpaw-genevieve-6-womens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-genevieve-6-womens-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-genevieve-6-womens-black-boots"><img alt="bearpaw-genevieve-6-womens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-genevieve-6-womens-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Genevieve Women's Black boot offers an elegant fluff detail, adding charm to any wardrobe. With a triple buckle wrapped in fur and an elevated heel design, these boots are perfect for fall fashion. 
 
 The removable sheepskin comfort footbed ensures a customized fit, and the wool blend lining provides added warmth. As a bonus, the NeverWet technology keeps your boots stain and water-resistant. 
 
 
-### [Bearpaw Elle Tall Boot - NeverWet & Non-Marking for Comfortable Indoor Wear](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-elle-tall-boot-neverwet-non-marking-for-comfortable-indoor-wear)
+### [Bearpaw Elle Tall Boot - NeverWet & Non-Marking for Comfortable Indoor Wear](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-elle-tall-boot-neverwet-non-marking-for-comfortable-indoor-wear)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-elle-tall-boot-neverwet-non-marking-for-comfortable-indoor-wear"><img alt="bearpaw-womens-elle-tall-boot-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elle-tall-boot-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-elle-tall-boot-neverwet-non-marking-for-comfortable-indoor-wear"><img alt="bearpaw-womens-elle-tall-boot-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elle-tall-boot-black-1/h=540,fit=pad,background=black"/></a></div>
 
 A couple of weeks ago, I found myself stuck in a rainstorm without an umbrella. I was drenched, cold, and miserable. But then, I remembered I had a pair of Bearpaw Women's Elle Tall Boots Black waiting for me at home. I quickly ran to my car, snatched them, and hurried back to my office. 
 
@@ -128,9 +128,9 @@ Although I found the Bearpaws to be true to size, some people might need to go h
 But overall, the Bearpaw Women's Elle Tall Boots Black were a fantastic addition to my wardrobe. Their warmth, comfort, and practicality made them the perfect choice for those frigid days when I needed a little extra protection. I highly recommend them to anyone looking for a stylish yet functional footwear option to keep them cozy during the winter months. 
 
 
-### [Bearpaw Women's Shorty Boots - Warm and Trendy Fashion](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-shorty-boots-warm-and-trendy-fashion)
+### [Bearpaw Women's Shorty Boots - Warm and Trendy Fashion](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-shorty-boots-warm-and-trendy-fashion)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-shorty-boots-warm-and-trendy-fashion"><img alt="bearpaw-womens-shorty-boots-black-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-shorty-boots-black-size-13/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-shorty-boots-warm-and-trendy-fashion"><img alt="bearpaw-womens-shorty-boots-black-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-shorty-boots-black-size-13/h=540,fit=pad,background=black"/></a></div>
 
 As the cold days approach, it's essential to have a pair of boots that will keep your feet warm and dry. The Bearpaw Women's Shorty Boots in Black are my go-to this season. I love the way they feel on my feet, with their snug yet comfortable design. Wool lining and suede leather outer material make these boots suitable for the colder weather. 
 
@@ -141,9 +141,9 @@ While these boots are perfect for daily wear, I noticed they could use some impr
 Overall, the Bearpaw Women's Shorty Boots are a reliable choice for those looking for a cozy, trendy pair of everyday boots that will keep your feet warm and dry. With a little improvement, these boots could be the ultimate winter companion. 
 
 
-### [Bearpaw Elle Youth Black Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-elle-youth-black-boots)
+### [Bearpaw Elle Youth Black Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-elle-youth-black-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-elle-youth-black-boots"><img alt="bearpaw-elle-youth-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-elle-youth-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-elle-youth-black-boots"><img alt="bearpaw-elle-youth-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-elle-youth-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Elle Youth Boots are a stylish and comfortable option for kids who love spending time in the great outdoors. With a sleek and slimmed-down construction, these boots offer the same great fit as their predecessors. Made with NeverWet technology by Rust-Oleum, these boots protect your little ones from the elements, making them perfect for all kinds of weather. 
 
@@ -152,9 +152,9 @@ These boots boast water and stain repellent features, ensuring that they stay lo
 Parents will appreciate the lightweight EVA sole, which offers improved grip and durability. Available in a range of colors and sizes, these Bearpaw Elle Youth Boots are an essential addition to any child's wardrobe. While some customers have reported issues with customer service and sizing, the majority of reviews praise this product for its quality, warmth, and comfort. Give your child the gift of style and protection with these fantastic boots. 
 
 
-### [Bearpaw Alyssa Black Women's Suede Ankle Boots with Round Toe and Sheepskin Lining](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-alyssa-black-womens-suede-ankle-boots-with-round-toe-and-sheepskin-lining)
+### [Bearpaw Alyssa Black Women's Suede Ankle Boots with Round Toe and Sheepskin Lining](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-alyssa-black-womens-suede-ankle-boots-with-round-toe-and-sheepskin-lining)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-alyssa-black-womens-suede-ankle-boots-with-round-toe-and-sheepskin-lining"><img alt="bearpaw-womens-alyssa-boots-size-5-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-alyssa-boots-size-5-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-alyssa-black-womens-suede-ankle-boots-with-round-toe-and-sheepskin-lining"><img alt="bearpaw-womens-alyssa-boots-size-5-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-alyssa-boots-size-5-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As a Bearpaw Women's Alyssa Boots enthusiast, I can truly vouch for their comfort and warmth. Just the other day, I strutted through the city in these boots, basking in the cozy sheepskin lining that kept my feet snug and toasty, while the suede exterior exuded a chic, contemporary vibe. 
 
@@ -165,9 +165,9 @@ That being said, I did notice that the Alyssa boots ran slightly small, and I've
 In conclusion, the Bearpaw Women's Alyssa Boots are a fantastic addition to my wardrobe, offering both comfort and style with their unique design and high-quality materials. Just remember to order a size or two larger than your usual fit to ensure a comfortable fit. 
 
 
-### [Bearpaw Black Elle Short Winter Boot Women's Size 7](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-black-elle-short-winter-boot-womens-size-7)
+### [Bearpaw Black Elle Short Winter Boot Women's Size 7](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-black-elle-short-winter-boot-womens-size-7)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-black-elle-short-winter-boot-womens-size-7"><img alt="bearpaw-womens-elle-short-winter-boot-black-ii-size-7-womens-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elle-short-winter-boot-black-ii-size-7-womens-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-black-elle-short-winter-boot-womens-size-7"><img alt="bearpaw-womens-elle-short-winter-boot-black-ii-size-7-womens-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-elle-short-winter-boot-black-ii-size-7-womens-1/h=540,fit=pad,background=black"/></a></div>
 
 As a Bearpaw Boots enthusiast, I recently gave the short Elle Winter Boots a try in the Black II color, size 7. It was such a delightful experience to slip into these cozy boots, especially on a chilly evening. I immediately noticed the quality of the boots, which felt sturdy yet comfortable. The wool blend lining and sheepskin comfort were definitely noticeable, as my feet were ensconced in warmth, even in the coldest of temperatures. The 8-inch suede boot also looked sleek and stylish, adding a touch of elegance to my daily wear. 
 
@@ -176,9 +176,9 @@ One of the most impressive features was the Never Wet technology, which kept my 
 Overall, while the Bearpaw Elle Short Winter Boots have a few minor drawbacks, they are still a fantastic addition to my winter wardrobe, providing both style and functionality in equal measure. If you're a fan of the Bearpaw brand or are seeking a stylish yet warm companion for your cold-weather adventures, these boots could be your perfect match. With a rating of 4.7 from hundreds of satisfied customers, these boots will surely not disappoint! 
 
 
-### [Bearpaw Women's Super Shorty BearCoat Rain & Stain Repellent Boots - Black Size 5](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-super-shorty-bearcoat-rain-stain-repellent-boots-black-size-5)
+### [Bearpaw Women's Super Shorty BearCoat Rain & Stain Repellent Boots - Black Size 5](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-super-shorty-bearcoat-rain-stain-repellent-boots-black-size-5)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-super-shorty-bearcoat-rain-stain-repellent-boots-black-size-5"><img alt="bearpaw-womens-super-shorty-boots-black-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-super-shorty-boots-black-size-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-super-shorty-bearcoat-rain-stain-repellent-boots-black-size-5"><img alt="bearpaw-womens-super-shorty-boots-black-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-super-shorty-boots-black-size-6/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the chance to try out the Bearpaw Women's Super Shorty Boots in black, size 5, and let me tell you, I've discovered a new go-to shoe for both style and warmth. 
 
@@ -189,27 +189,27 @@ One of the things I appreciated the most was the unique style of these boots. Wi
 Overall, I'm glad I gave these Bearpaw boots a chance. They've become my go-to footwear for winter months, and I would definitely recommend them to others in search of both style and comfort. The only minor drawback is that the fur lining seems to become matted down after a few weeks of wear, but that hasn't impacted my overall satisfaction with these boots. 
 
 
-### [Bearpaw Suede Boots with Wool Blend Trim and Insulation](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-suede-boots-with-wool-blend-trim-and-insulation)
+### [Bearpaw Suede Boots with Wool Blend Trim and Insulation](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-suede-boots-with-wool-blend-trim-and-insulation)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-suede-boots-with-wool-blend-trim-and-insulation"><img alt="bearpaw-womens-kendall-black-black-boots-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-kendall-black-black-boots-size-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-suede-boots-with-wool-blend-trim-and-insulation"><img alt="bearpaw-womens-kendall-black-black-boots-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-womens-kendall-black-black-boots-size-6/h=540,fit=pad,background=black"/></a></div>
 
 These Bearpaw Women's Kendall Boots offer a stylish and cozy experience for the colder months. The suede top with wool blend trim provides a fashionable look, while the wool blend lining keeps you warm. The removable comfort sheepskin footbed and lightweight blown rubber outsole ensure comfort and durability. 
 
 With BearCoat Rain & Stain Repellent, these boots stay dry and protected, making them a great choice for those who want to stay dry in any weather. Overall, these boots are perfect for anyone looking for a high-quality, fashion-forward pair of winter boots. 
 
 
-### [Bearpaw Brady 11 Men's Black Leather Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-brady-11-mens-black-leather-boots)
+### [Bearpaw Brady 11 Men's Black Leather Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-brady-11-mens-black-leather-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-brady-11-mens-black-leather-boots"><img alt="bearpaw-brady-11-mens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-brady-11-mens-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-brady-11-mens-black-leather-boots"><img alt="bearpaw-brady-11-mens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-brady-11-mens-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bearpaw Brady 11 is a stylish and practical men's boot that boasts a water-resistant upper made from luxurious cow suede, ensuring your feet stay dry in any weather. With a seamless closure that allows for easy on and off, the round nose design adds a touch of class to this classic footwear. The warm, snug wool lining provides comfort and insulation, while the sheepskin footbed offers cushioning and support. 
 
 The low-profile blown rubber outsole delivers reliable traction, thanks to the antislip sole technology. The Bearpaw Brady 11 is a must-have for any man seeking durability, comfort, and style in one beautifully crafted boot. 
 
 
-### [Bearpaw Sheilah Knee High Boot with Faux Fur and Wool Blend Lining](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-sheilah-knee-high-boot-with-faux-fur-and-wool-blend-lining)
+### [Bearpaw Sheilah Knee High Boot with Faux Fur and Wool Blend Lining](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-sheilah-knee-high-boot-with-faux-fur-and-wool-blend-lining)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-sheilah-knee-high-boot-with-faux-fur-and-wool-blend-lining"><img alt="womens-bearpaw-sheilah-knee-high-boot-size-8-5-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-bearpaw-sheilah-knee-high-boot-size-8-5-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-sheilah-knee-high-boot-with-faux-fur-and-wool-blend-lining"><img alt="womens-bearpaw-sheilah-knee-high-boot-size-8-5-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-bearpaw-sheilah-knee-high-boot-size-8-5-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I'm a fan of the BEARPAW Sheilah Knee High Boot – a cozy and stylish addition to my winter wardrobe. The plush faux-fur trim and sweetheart topline make a statement, while the warm wool/shearling lining keeps my feet toasty. I've been impressed by the NeverWet technology too, which does a great job of keeping my feet nice and dry. 
 
@@ -218,9 +218,9 @@ However, there's a catch: the boots do have a tendency to scuff quickly, which i
 Overall, the BEARPAW Sheilah Boots are a solid choice for those chilly days, but just be aware of the scuffing issue and make sure you get the right fit. 
 
 
-### [Bearpaw Koko 8 Women's Black Boots](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-koko-8-womens-black-boots)
+### [Bearpaw Koko 8 Women's Black Boots](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-koko-8-womens-black-boots)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-koko-8-womens-black-boots"><img alt="bearpaw-koko-8-womens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-koko-8-womens-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-koko-8-womens-black-boots"><img alt="bearpaw-koko-8-womens-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-koko-8-womens-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Bearpaw's Koko Boots for women are a stylish and comfortable addition to any wardrobe. Boasting a sleek design, these boots feature cow suede and a wool blend lining, ensuring that your feet stay cozy in the cold. The sheepskin footbed provides both cushioning and breathability, making these boots perfect for long walks or casual outings. With a slightly lower heel height, the Koko boots are easy to walk in and provide great arch support. 
 
@@ -229,9 +229,9 @@ Despite their attractive design, the Koko Boots may not be the perfect fit for e
 Overall, the Koko Boots by Bearpaw offer a comfortable and stylish option for women looking to stay warm and fashionable in cold weather. With a unique blend of materials and a slim design, these boots are a great choice for those seeking both comfort and style in their footwear. 
 
 
-### [Bearpaw Women's Knit Tall Boot: Cozy Comfort & Classic Style](https://serp.ly/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-knit-tall-boot-cozy-comfort-classic-style)
+### [Bearpaw Women's Knit Tall Boot: Cozy Comfort & Classic Style](https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm\_term=bearpaw-womens-knit-tall-boot-cozy-comfort-classic-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-knit-tall-boot-cozy-comfort-classic-style"><img alt="bearpaw-knit-tall-boot-womens-black-size-11-boots-winter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-knit-tall-boot-womens-black-size-11-boots-winter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black?utm_term=bearpaw-womens-knit-tall-boot-cozy-comfort-classic-style"><img alt="bearpaw-knit-tall-boot-womens-black-size-11-boots-winter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bearpaw-knit-tall-boot-womens-black-size-11-boots-winter-1/h=540,fit=pad,background=black"/></a></div>
 
 As soon as I slipped on the Bearpaw Knit Tall Boot, I instantly felt a cozy embrace around my ankles. The fabric upper, combined with the authentic sheepskin lining, ensured my feet stayed warm and dry. The pull-on style, with side toggle closures, made it super easy to slip into these boots at the start of each day. The lightly padded footbed provided ample comfort, letting me spend long hours working or lounging at home. 
 
@@ -250,7 +250,7 @@ Before embarking on your journey to acquire Bearpaw Boots Black, it's crucial to
 When seeking the perfect pair of Bearpaw Boots Black, consider the following aspects: 
 1. Comfort: Ensure the boots are crafted from superior materials, possess generous cushioning, and provide a snug fit for ultimate comfort. 2. Endurance: Search for Bearpaw Boots Black made from robust materials that can withstand rigorous use, particularly if they will be utilized in severe environments or weather conditions.
 
-<div><a href="https://serp.ly/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-2/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-2/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-2" height="540"></a></div>
 
 
 ### Factors to Take into Account
@@ -264,7 +264,7 @@ Here are some key factors to ponder upon when shopping for Bearpaw Boots Black:
 Here are some general guidelines for procuring Bearpaw Boots Black: 
 1. Explore: Allocate time for researching varying styles, characteristics, and brands to discover the most fitting Bearpaw Boots Black for your specifications and inclinations. Seek brands with a commendable reputation, positive customer testimonials, and reasonable pricing.
 
-<div><a href="https://serp.ly/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-3/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-3/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-3" height="540"></a></div>
 
 
 ### Shopping Recommendations
@@ -275,7 +275,7 @@ Here are some shopping suggestions to assist you in discovering the ideal Bearpa
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-4/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-4/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-4" height="540"></a></div>
 
 
 ### What are the key features of Bearpaw Boots Black?
@@ -291,7 +291,7 @@ The Bearpaw Boots Black are made using high-quality genuine leather, which is bo
 
 A durable rubber outsole is also present in the Bearpaw Boots Black, providing excellent slip resistance and weatherproofing. Rubber soles typically last longer than other types of soles and can withstand harsh conditions. This, along with the breathable leather, makes the boots suitable for a variety of winter activities. 
 
-<div><a href="https://serp.ly/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-5/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-5/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-5" height="540"></a></div>
 
 
 ### What are the available sizes and widths for the Bearpaw Boots Black?
@@ -307,7 +307,7 @@ Bearpaw Boots Black are designed with high-quality materials and workmanship. To
 
 In the event that a Bearpaw Boots Black product is found to have a manufacturing or material defect, the manufacturer may either repair or replace the product, depending on the product and the cause of the defect. For more detailed information on the warranty policy, customers are encouraged to contact the manufacturer. 
 
-<div><a href="https://serp.ly/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-6/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bearpaw+Boots+Black"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bearpaw-Boots-Black-6/h=540,fit=pad,background=black" alt="Bearpaw-Boots-Black-6" height="540"></a></div>
 
 
 ### Are the Bearpaw Boots Black suitable for various outdoors activities?

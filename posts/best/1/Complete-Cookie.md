@@ -14,27 +14,27 @@ If you're someone who's always on the go and looking for a quick energy boost or
 ## Reviews
 
 
-### [Complete Cookie Lemon Poppy Seed Variety Pack](https://serp.ly/amazon/Complete+Cookie?utm\_term=complete-cookie-lemon-poppy-seed-variety-pack)
+### [Complete Cookie Lemon Poppy Seed Variety Pack](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=complete-cookie-lemon-poppy-seed-variety-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=complete-cookie-lemon-poppy-seed-variety-pack"><img alt="the-complete-cookie-lemon-poppy-seed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-complete-cookie-lemon-poppy-seed-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=complete-cookie-lemon-poppy-seed-variety-pack"><img alt="the-complete-cookie-lemon-poppy-seed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-complete-cookie-lemon-poppy-seed-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Complete Cookie offers a scrumptious and healthy snack option for those looking to indulge in a sweet treat. With a soft-baked texture, these plant-based cookies come in various flavors, including Lemon Poppy Seed, which combines a refreshing lemon taste with the crunch of poppy seeds. Certified Vegan and Kosher, the cookies do not contain any high fructose corn syrup, artificial sweeteners, or sugar alcohols, making them a guilt-free indulgence. 
 
 Each 4oz cookie provides 16g of plant-based protein and 10g of fiber, ensuring a satisfying snack for those with active lifestyles or those who need a protein boost. 
 
 
-### [White Chocolate Macadamia Complete Cookie](https://serp.ly/amazon/Complete+Cookie?utm\_term=white-chocolate-macadamia-complete-cookie)
+### [White Chocolate Macadamia Complete Cookie](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=white-chocolate-macadamia-complete-cookie)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=white-chocolate-macadamia-complete-cookie"><img alt="lenny-larrys-the-complete-cookie-white-chocolaty-macadamia-soft-baked-16g-plant-protein-vegan-non-gm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-white-chocolaty-macadamia-soft-baked-16g-plant-protein-vegan-non-gm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=white-chocolate-macadamia-complete-cookie"><img alt="lenny-larrys-the-complete-cookie-white-chocolaty-macadamia-soft-baked-16g-plant-protein-vegan-non-gm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-white-chocolaty-macadamia-soft-baked-16g-plant-protein-vegan-non-gm-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Complete Cookies are a delightful treat for those who love sweet and crunchy indulgences without the guilt. Available in various flavors, these cookies provide a whopping 16 grams of plant protein, making them a satisfying snack option for those who are health-conscious. The White Chocolaty Macadamia flavor stands out with its delectable mix of sweet and crunchy textures, making it an ideal choice for those with a sweet tooth. 
 
 Being vegan, non-GMO, and free from artificial preservatives, these cookies are a perfect pick for health-conscious food enthusiasts. The 16g protein content is a bonus for those who are searching for a protein-rich snack. 
 
 
-### [My Cookie Dealer: Complete Cookies with 18g Raw Protein](https://serp.ly/amazon/Complete+Cookie?utm\_term=my-cookie-dealer-complete-cookies-with-18g-raw-protein)
+### [My Cookie Dealer: Complete Cookies with 18g Raw Protein](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=my-cookie-dealer-complete-cookies-with-18g-raw-protein)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=my-cookie-dealer-complete-cookies-with-18g-raw-protein"><img alt="my-cookie-dealer-made-with-18-grams-of-raw-protein-milk-and-cookies-12-servings-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/my-cookie-dealer-made-with-18-grams-of-raw-protein-milk-and-cookies-12-servings-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=my-cookie-dealer-complete-cookies-with-18g-raw-protein"><img alt="my-cookie-dealer-made-with-18-grams-of-raw-protein-milk-and-cookies-12-servings-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/my-cookie-dealer-made-with-18-grams-of-raw-protein-milk-and-cookies-12-servings-1/h=540,fit=pad,background=black"/></a></div>
 
 My first impression of My Cookie Dealer's Protein Cookies was that they looked like any other cookie, until I noticed the 18 grams of raw protein emblazoned on the packaging. I was intrigued by the combination of a cookie and a protein-rich snack, so I decided to give it a try. 
 
@@ -45,9 +45,9 @@ However, I couldn't help but notice that the product was rather expensive compar
 Despite these concerns, My Cookie Dealer's Protein Cookies did have their unique appeal. They offered a satisfying and indulgent snack experience, all while providing a good dose of protein. If I were in the market for a treat that could help me feel full and satisfied without sacrificing too much in terms of protein content, I'd give these cookies another try. 
 
 
-### [Lenny & Larry's Crunchy Chocolate Chip Cookies - 6 Pack](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-crunchy-chocolate-chip-cookies-6-pack)
+### [Lenny & Larry's Crunchy Chocolate Chip Cookies - 6 Pack](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-crunchy-chocolate-chip-cookies-6-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-crunchy-chocolate-chip-cookies-6-pack"><img alt="6-pack-lenny-larrys-the-complete-crunchy-cookie-chocolate-chip-4-25-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/6-pack-lenny-larrys-the-complete-crunchy-cookie-chocolate-chip-4-25-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-crunchy-chocolate-chip-cookies-6-pack"><img alt="6-pack-lenny-larrys-the-complete-crunchy-cookie-chocolate-chip-4-25-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/6-pack-lenny-larrys-the-complete-crunchy-cookie-chocolate-chip-4-25-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's The Complete Crunchy Cookies are a delightful treat that combines plant-based proteins with a satisfying crunch. Each 4.25 oz bag offers a whopping 20g of protein and 14g of fiber, making it a perfect snack for those who want to maintain a healthy diet. 
 
@@ -56,9 +56,9 @@ The cookies come in an assortment of flavors, including Chocolate Chip, Chocolat
 With a range of flavors and catering to various dietary needs, these cookies are sure to become a guilty-free guilty pleasure for those with a sweet tooth. 
 
 
-### [Lenny & Larry's Complete Oatmeal Raisin Cookies Box](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-oatmeal-raisin-cookies-box)
+### [Lenny & Larry's Complete Oatmeal Raisin Cookies Box](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-oatmeal-raisin-cookies-box)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-oatmeal-raisin-cookies-box"><img alt="lenny-larrys-complete-oatmeal-raisin-cookie-4-oz-12ct-box-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-oatmeal-raisin-cookie-4-oz-12ct-box-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-oatmeal-raisin-cookies-box"><img alt="lenny-larrys-complete-oatmeal-raisin-cookie-4-oz-12ct-box-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-oatmeal-raisin-cookie-4-oz-12ct-box-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Complete Oatmeal Raisin Cookie is a delightful, filling snack for those seeking a healthier alternative. Soft-baked and vegan-friendly, these cookies are packed with 16g of plant-based protein and 10g of fiber per serving, making them an ideal choice for those looking to boost their nutrient intake without sacrificing taste. 
 
@@ -69,9 +69,9 @@ However, the experience is not without its drawbacks. While the cookie's texture
 In conclusion, Lenny & Larry's Complete Oatmeal Raisin Cookie is a tasty and convenient snack option for those looking to incorporate more plant-based protein and fiber into their daily routine. Despite the occasional dryness or lack of sweetness, it remains a satisfying treat that caters to the needs of health-conscious consumers. 
 
 
-### [Vegan Oatmeal Raisin Complete Cookies (PACK OF 12) - All Natural, Dairy-Free, and GMO-Free](https://serp.ly/amazon/Complete+Cookie?utm\_term=vegan-oatmeal-raisin-complete-cookies-pack-of-12-all-natural-dairy-free-and-gmo-free)
+### [Vegan Oatmeal Raisin Complete Cookies (PACK OF 12) - All Natural, Dairy-Free, and GMO-Free](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=vegan-oatmeal-raisin-complete-cookies-pack-of-12-all-natural-dairy-free-and-gmo-free)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=vegan-oatmeal-raisin-complete-cookies-pack-of-12-all-natural-dairy-free-and-gmo-free"><img alt="lenny-larrys-the-complete-cookie-oatmeal-raisin-16g-plant-based-protein-per-cookie-vegan-non-gmo-4-o-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-oatmeal-raisin-16g-plant-based-protein-per-cookie-vegan-non-gmo-4-o-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=vegan-oatmeal-raisin-complete-cookies-pack-of-12-all-natural-dairy-free-and-gmo-free"><img alt="lenny-larrys-the-complete-cookie-oatmeal-raisin-16g-plant-based-protein-per-cookie-vegan-non-gmo-4-o-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-oatmeal-raisin-16g-plant-based-protein-per-cookie-vegan-non-gmo-4-o-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Lenny & Larry's Complete Cookie in Oatmeal Raisin flavor, and I must say, I was pleasantly surprised. The cookie is vegan, non-GMO, and packed with 16g of plant-based protein per cookie, which is a great addition to a balanced diet. It's also free of dairy and preservatives, which is a big plus for me as I try to consume clean ingredients. 
 
@@ -82,9 +82,9 @@ However, there were a couple of downsides. Firstly, the cookie was slightly smal
 In conclusion, Lenny & Larry's Complete Cookie Oatmeal Raisin is a tasty and satisfying snack that caters to various dietary needs. Although it's a bit on the smaller side, the nutritional value and overall taste make it a worthwhile addition to my daily routine. If you're looking for a vegan, high-protein snack with a satisfying texture, this cookie might be the one for you. 
 
 
-### [Lenny & Larry's Complete Cookie Sandwich Cookies - Vanilla Flavor, Plant-Based Protein, 12-Pack](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-cookie-sandwich-cookies-vanilla-flavor-plant-based-protein-12-pack)
+### [Lenny & Larry's Complete Cookie Sandwich Cookies - Vanilla Flavor, Plant-Based Protein, 12-Pack](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-cookie-sandwich-cookies-vanilla-flavor-plant-based-protein-12-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-cookie-sandwich-cookies-vanilla-flavor-plant-based-protein-12-pack"><img alt="lenny-larrys-the-complete-cremes-sandwich-cookies-plant-based-proteins-vanilla-12-pack-2-86-oz-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cremes-sandwich-cookies-plant-based-proteins-vanilla-12-pack-2-86-oz-packs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-cookie-sandwich-cookies-vanilla-flavor-plant-based-protein-12-pack"><img alt="lenny-larrys-the-complete-cremes-sandwich-cookies-plant-based-proteins-vanilla-12-pack-2-86-oz-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cremes-sandwich-cookies-plant-based-proteins-vanilla-12-pack-2-86-oz-packs-1/h=540,fit=pad,background=black"/></a></div>
 
 Wow, Lenny & Larry's Complete Cremes are a game changer! Not only do they satisfy my craving for a sweet treat, but they're also packed with good-for-you ingredients. Each crunchy, vanilla cookie is bursting with a creamy filling, making for a delicious and satisfying snack. As a bonus, these cookies are plant-based, so there's no need to worry about eating junky, processed snacks. 
 
@@ -93,9 +93,9 @@ My favorite part is that these cookies have been crafted with care. They're vega
 I'm not sure what it is, but there's something about these Complete Cremes that really hits the mark. Whether you're a health-conscious snacker, or just someone looking for a tasty, guilt-free treat, these cookies deliver. So the next time your sweet tooth starts craving something indulgent, remember – Lenny & Larry's Complete Cremes are here to save the day. 
 
 
-### [Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookie-fied Bars (4ct)](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-fied-bars-4ct)
+### [Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookie-fied Bars (4ct)](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-fied-bars-4ct)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-fied-bars-4ct"><img alt="lenny-larrys-the-complete-cookie-fied-bar-peanut-butter-chocolate-chip-4ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-fied-bar-peanut-butter-chocolate-chip-4ct-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-fied-bars-4ct"><img alt="lenny-larrys-the-complete-cookie-fied-bar-peanut-butter-chocolate-chip-4ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-fied-bar-peanut-butter-chocolate-chip-4ct-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookie-fied Bar, and I must say, it's a game-changer! This little bar packs a mighty punch of plant-based protein and fiber, making it a perfect snack on the go. The soft, chewy bar is filled with crunchy cookie bits, semi-sweet chocolate chips, chopped peanuts, and a hint of peanut butter goodness. 
 
@@ -104,9 +104,9 @@ One highlight for me was the bar's gluten-free, vegan, and non-GMO certification
 However, I noticed that the bar is quite small, which might not be enough to satisfy a hearty snack craving. But overall, Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookie-fied Bar is a delicious and convenient way to get a boost of plant-based protein in a tasty, cookie-dough style bar. 
 
 
-### [Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookies](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookies)
+### [Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookies](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookies)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookies"><img alt="lenny-larrys-the-complete-cookie-peanut-butter-chocolate-chip-12-oz-cookies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-peanut-butter-chocolate-chip-12-oz-cookies-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-peanut-butter-chocolate-chip-complete-cookies"><img alt="lenny-larrys-the-complete-cookie-peanut-butter-chocolate-chip-12-oz-cookies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-peanut-butter-chocolate-chip-12-oz-cookies-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine a delightful world of Peanut Butter Chocolate Chip-flavored cookies, but with a twist of plant-based protein, fiber, and zero guilt. Lenny and Larry's Complete Cookie is more than just a cookie - it's a celebration of health-conscious indulgence. 
 
@@ -119,18 +119,18 @@ My experience with Lenny and Larry's Complete Cookie has been nothing short of d
 I wholeheartedly recommend Lenny and Larry's Complete Cookie for those seeking a guilt-free, protein-packed snack that satisfies their sweet tooth. The Peanut Butter Chocolate Chip flavor is a standout, but with a variety of other flavors available, there's something for everyone to indulge in. 
 
 
-### [Lenny Larry's Complete Cookie Counter Display 24-2-4 Ounce](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-cookie-counter-display-24-2-4-ounce)
+### [Lenny Larry's Complete Cookie Counter Display 24-2-4 Ounce](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-cookie-counter-display-24-2-4-ounce)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-cookie-counter-display-24-2-4-ounce"><img alt="lenny-larrys-complete-cookie-89300-counter-display-chocolate-chip-double-chocolate-24-2-4-ounce-pric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-cookie-89300-counter-display-chocolate-chip-double-chocolate-24-2-4-ounce-pric-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-cookie-counter-display-24-2-4-ounce"><img alt="lenny-larrys-complete-cookie-89300-counter-display-chocolate-chip-double-chocolate-24-2-4-ounce-pric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-cookie-89300-counter-display-chocolate-chip-double-chocolate-24-2-4-ounce-pric-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny Larry's Complete Cookie offers a delightful treat for fitness enthusiasts and health-conscious individuals who crave sweet indulgence. With a range of delicious flavors, each cookie is packed with an impressive 16 grams of protein, ensuring that you're getting the nourishment you need after a grueling workout or simply satisfying your snack cravings. The absence of dairy, egg, and soy ingredients make these cookies a fantastic vegan snack, further appealing to a wide range of dietary preferences. 
 
 The Complete Cookie lineup features an assortment of mouthwatering flavors like Chocolate Chip, Double Chocolate, White Choc Macadamia, Oatmeal Raisin, Snickerdoodle, and Birthday Cake, catering to diverse taste buds. Whether you're looking for a protein-packed energy boost or simply want to indulge in a guilt-free snack, Lenny Larry's Complete Cookie is a fantastic choice, offering health benefits, delectable flavors, and a satisfyingly filling experience. 
 
 
-### [Lenny & Larry's Cookies & Creme Protein Bars for Complete Satisfaction](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-cookies-creme-protein-bars-for-complete-satisfaction)
+### [Lenny & Larry's Cookies & Creme Protein Bars for Complete Satisfaction](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-cookies-creme-protein-bars-for-complete-satisfaction)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-cookies-creme-protein-bars-for-complete-satisfaction"><img alt="lenny-larrys-cookie-fied-bar-the-complete-cookies-creme-9-pack-1-59-oz-bars-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-cookie-fied-bar-the-complete-cookies-creme-9-pack-1-59-oz-bars-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-cookies-creme-protein-bars-for-complete-satisfaction"><img alt="lenny-larrys-cookie-fied-bar-the-complete-cookies-creme-9-pack-1-59-oz-bars-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-cookie-fied-bar-the-complete-cookies-creme-9-pack-1-59-oz-bars-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Lenny & Larry's Complete Cookie-Fied Bar in Cookies & Creme flavor, and it was an interesting experience. First of all, the packaging is quite appealing, with a vibrant color scheme and clever branding. The 1.59 oz bars are perfect for on-the-go snacking, and the box contains nine of them. 
 
@@ -141,36 +141,36 @@ However, there were a couple of things I didn't enjoy as much. The size of the b
 Despite these minor drawbacks, I found the Lenny & Larry's Complete Cookie-Fied Bar to be a convenient and tasty snack option, especially for those looking for a healthier alternative to traditional candy bars. The plant-based protein and gluten-free ingredients make it a suitable choice for vegans and those with dietary restrictions. I would definitely consider buying these bars again in the future, especially when they're on sale. 
 
 
-### [Lenny & Larry's Snickerdoodle Complete Cookies - 12 Delicious Bites](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-snickerdoodle-complete-cookies-12-delicious-bites)
+### [Lenny & Larry's Snickerdoodle Complete Cookies - 12 Delicious Bites](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-snickerdoodle-complete-cookies-12-delicious-bites)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-snickerdoodle-complete-cookies-12-delicious-bites"><img alt="lenny-larrys-the-complete-cookie-2-oz-single-serve-snickerdoodle-12-cookies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-2-oz-single-serve-snickerdoodle-12-cookies-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-snickerdoodle-complete-cookies-12-delicious-bites"><img alt="lenny-larrys-the-complete-cookie-2-oz-single-serve-snickerdoodle-12-cookies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-2-oz-single-serve-snickerdoodle-12-cookies-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's The Complete Cookie is an exceptional plant-based protein snack, packed with 16g of protein and 10g of fiber per cookie. The 2oz pack of 12 cookies provides a healthier alternative to traditional sweets, with its Non-GMO Project Verified, kosher, vegan, and sustainable palm oil ingredients. These delicious cookies are dairy-free, egg-free, soy-free, high fructose corn syrup-free, cholesterol-free, and preservatives-free. 
 
 The Snickerdoodle flavor is a delightful addition to this product range, offering a fresh-baked taste without any artificial sweeteners. Overall, Lenny & Larry's The Complete Cookie is an enjoyable and convenient way to indulge in a guilt-free treat while still satisfying your taste buds. 
 
 
-### [Lenny & Larry's Complete Chocolate Chip Cookies - Nutritious Snack for an Active Lifestyle](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-chocolate-chip-cookies-nutritious-snack-for-an-active-lifestyle)
+### [Lenny & Larry's Complete Chocolate Chip Cookies - Nutritious Snack for an Active Lifestyle](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-complete-chocolate-chip-cookies-nutritious-snack-for-an-active-lifestyle)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-chocolate-chip-cookies-nutritious-snack-for-an-active-lifestyle"><img alt="lenny-larrys-complete-cookie-chocolate-chip-12-pack-2-oz-packets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-cookie-chocolate-chip-12-pack-2-oz-packets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-complete-chocolate-chip-cookies-nutritious-snack-for-an-active-lifestyle"><img alt="lenny-larrys-complete-cookie-chocolate-chip-12-pack-2-oz-packets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-complete-cookie-chocolate-chip-12-pack-2-oz-packets-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Complete Cookies offer a tasty and nutritious snack option for those looking to maintain their fitness or boost their protein intake. These cookies are vegan and free of eggs, dairy, soy, and GMOs, making them an ideal choice for those with dietary restrictions. 
 
 As a 12-pack of 2 oz packets, they provide a convenient on-the-go solution for your nutritional needs. With various flavors available, you can indulge in a crunchy, protein-packed treat without sacrificing taste. While some users may appreciate having larger options or more flavors, the overall consensus seems to be positive for Lenny & Larry's Complete Cookies, making them a great addition to a balanced diet. 
 
 
-### [Lenny and Larry's Vegan Complete Cookie Variety Pack - 16 Pcs](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-and-larrys-vegan-complete-cookie-variety-pack-16-pcs)
+### [Lenny and Larry's Vegan Complete Cookie Variety Pack - 16 Pcs](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-and-larrys-vegan-complete-cookie-variety-pack-16-pcs)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-and-larrys-vegan-complete-cookie-variety-pack-16-pcs"><img alt="the-complete-soft-baked-cookie-variety-pack-16-pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-complete-soft-baked-cookie-variety-pack-16-pcs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-and-larrys-vegan-complete-cookie-variety-pack-16-pcs"><img alt="the-complete-soft-baked-cookie-variety-pack-16-pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-complete-soft-baked-cookie-variety-pack-16-pcs-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny and Larry's Complete Cookies provide an array of soft-baked, plant-based protein delights. With flavors ranging from Birthday Cake to Oatmeal Raisin, these cookies are perfect for those with dietary restrictions or anyone looking for a flavorful, protein-packed treat. 
 
 These cookies, made in the USA, are also a good source of fiber and protein, with each cookie boasting 16 grams of protein and 6 grams of fiber. Although some users may find the size slightly smaller than expected, Lenny and Larry's Complete Cookies offer a delicious and convenient option for satisfying those sugar cravings while keeping things protein-packed and plant-based. 
 
 
-### [Lenny & Larry's Cookies & Creme Protein Bar Variety Pack](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-cookies-creme-protein-bar-variety-pack)
+### [Lenny & Larry's Cookies & Creme Protein Bar Variety Pack](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-cookies-creme-protein-bar-variety-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-cookies-creme-protein-bar-variety-pack"><img alt="lenny-larrys-the-complete-cookie-fied-bar-4-flavor-variety-pack-16ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-fied-bar-4-flavor-variety-pack-16ct-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-cookies-creme-protein-bar-variety-pack"><img alt="lenny-larrys-the-complete-cookie-fied-bar-4-flavor-variety-pack-16ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-fied-bar-4-flavor-variety-pack-16ct-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's The Complete Cookie-fied Bar is a deliciously indulgent protein bar, perfect for those who want a tasty treat with the added benefits of extra protein. The Cookie-fied Variety Pack comes with four unique flavors, each filled with signature cookie pieces that offer an unforgettable explosion of flavor. 
 
@@ -179,9 +179,9 @@ With a soft, chewy texture reminiscent of a thick cookie or brownie, these bars 
 Nonetheless, Lenny & Larry's Cookie-fied bars are a satisfying treat to indulge in after a workout or throughout the day. 
 
 
-### [Lenny & Larry Peanut Butter Chocolate Chip Protein Cookies](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larry-peanut-butter-chocolate-chip-protein-cookies)
+### [Lenny & Larry Peanut Butter Chocolate Chip Protein Cookies](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larry-peanut-butter-chocolate-chip-protein-cookies)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larry-peanut-butter-chocolate-chip-protein-cookies"><img alt="lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larry-peanut-butter-chocolate-chip-protein-cookies"><img alt="lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-peanut-butter-chocolate-chip-complete-cookie-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Complete Cookie with Peanut Butter Chocolate Chip is revolutionizing the market for those who desire something decadent while maintaining a balanced, healthy diet. This cookie comes in at 21.99 ounces, boasting an impressive 16 grams of protein and 10 grams of fiber. It's an ideal choice for busy individuals in need of a quick snack on-the-go.
 
@@ -192,9 +192,9 @@ The combination of peanut butter and chocolate chip flavors offers a match made 
 The downside of these cookies is their price point, which may be a little higher than that of some other snacks on the market. Nevertheless, for those who are health-conscious and want to treat themselves to a scrumptious indulgence, Lenny & Larry's Peanut Butter Chocolate Chip Complete Cookie is likely worth the investment. 
 
 
-### [Lenny & Larry's High Protein Vegan Cookie Variety Pack (8 Flavors)](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-larrys-high-protein-vegan-cookie-variety-pack-8-flavors)
+### [Lenny & Larry's High Protein Vegan Cookie Variety Pack (8 Flavors)](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-larrys-high-protein-vegan-cookie-variety-pack-8-flavors)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-larrys-high-protein-vegan-cookie-variety-pack-8-flavors"><img alt="lenny-larrys-the-complete-cookie-8-flavor-variety-pack-soft-baked-16g-plant-protein-vegan-non-gmo-4--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-8-flavor-variety-pack-soft-baked-16g-plant-protein-vegan-non-gmo-4--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-larrys-high-protein-vegan-cookie-variety-pack-8-flavors"><img alt="lenny-larrys-the-complete-cookie-8-flavor-variety-pack-soft-baked-16g-plant-protein-vegan-non-gmo-4--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-larrys-the-complete-cookie-8-flavor-variety-pack-soft-baked-16g-plant-protein-vegan-non-gmo-4--1/h=540,fit=pad,background=black"/></a></div>
 
 Enjoy a perfect balance of taste and nourishment with Lenny & Larry's Complete Cookie variety pack. Created with 16g of plant protein and vegan ingredients, these cookies are a convenient and satisfying snack for fitness enthusiasts and health-conscious eaters alike. The cookies are soft baked, making them a fantastic option for those who prefer a crunchy texture over chewy. 
 
@@ -203,9 +203,9 @@ With 8 mouthwatering flavors to choose from, you're sure to find your favorite. 
 Whether you're at home or on the go, this Lenny & Larry's Complete Cookie roundup provides you the convenience and nutrition you need to keep up with your active lifestyle. 
 
 
-### [Lenny and Larry's Cookie-fied Big Bar Protein Cookies & Creme](https://serp.ly/amazon/Complete+Cookie?utm\_term=lenny-and-larrys-cookie-fied-big-bar-protein-cookies-creme)
+### [Lenny and Larry's Cookie-fied Big Bar Protein Cookies & Creme](https://serp.ly/@outrun/amazon/Complete+Cookie?utm\_term=lenny-and-larrys-cookie-fied-big-bar-protein-cookies-creme)
 
-<div class="image"><a href="https://serp.ly/amazon/Complete+Cookie?utm_term=lenny-and-larrys-cookie-fied-big-bar-protein-cookies-creme"><img alt="lenny-and-larrys-cookie-fied-big-bar-cookies-creme-12-bars-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-and-larrys-cookie-fied-big-bar-cookies-creme-12-bars-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Complete+Cookie?utm_term=lenny-and-larrys-cookie-fied-big-bar-protein-cookies-creme"><img alt="lenny-and-larrys-cookie-fied-big-bar-cookies-creme-12-bars-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lenny-and-larrys-cookie-fied-big-bar-cookies-creme-12-bars-1/h=540,fit=pad,background=black"/></a></div>
 
 Lenny & Larry's Cookie-fied Big Bar Cookies & Creme brings a delicious twist to the traditional protein bar. This nutrient-dense treat packs in 24g of plant-based protein and 10g of fiber, offering a satisfying snack for health-conscious individuals. The gluten-free, Certified Vegan, and Non-GMO Project Verified bar is free from any artificial sweeteners, soy ingredients, or high fructose corn syrup. 
 
@@ -221,7 +221,7 @@ Get ready to dive into our all-encompassing guide on Complete Cookies. This comp
 
 A Complete Cookie is a convenient and portable snack or breakfast option designed to deliver essential nutrients such as protein, fiber, healthy fats, and carbohydrates in a single package. These cookies cater to active individuals, busy professionals, and anyone seeking a nutritious and all-in-one meal alternative. 
 
-<div><a href="https://serp.ly/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-2/h=540,fit=pad,background=black" alt="Complete-Cookie-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-2/h=540,fit=pad,background=black" alt="Complete-Cookie-2" height="540"></a></div>
 
 
 ### Desirable Ingredients
@@ -233,7 +233,7 @@ When shopping for Complete Cookies, be on the lookout for products featuring hig
 
 Pay close attention to the serving sizes and portion control recommendations of the Complete Cookie. Typically, one serving can range from 1 to 2 cookies, depending on the brand and its nutritional content. Consuming the suggested serving size ensures you get the optimal balance of nutrients without overdoing it on calories. 
 
-<div><a href="https://serp.ly/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-3/h=540,fit=pad,background=black" alt="Complete-Cookie-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-3/h=540,fit=pad,background=black" alt="Complete-Cookie-3" height="540"></a></div>
 
 
 ### A Palatable Experience
@@ -243,7 +243,7 @@ Some Complete Cookies may provide a more subtle taste profile, while others migh
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-4/h=540,fit=pad,background=black" alt="Complete-Cookie-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-4/h=540,fit=pad,background=black" alt="Complete-Cookie-4" height="540"></a></div>
 
 
 ### Discover the Delights of Complete Cookie!
@@ -259,7 +259,7 @@ The ingredients used in Complete Cookie products play a critical role in deliver
 
 For instance, oats, a common ingredient in Complete Cookie products, are rich in fiber, aiding digestion and helping lower cholesterol levels. Other ingredients, such as chia seeds and flaxseeds, are also packed with nutrients like omega-3 fatty acids, which support heart health and promote healthy skin and hair. 
 
-<div><a href="https://serp.ly/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-5/h=540,fit=pad,background=black" alt="Complete-Cookie-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-5/h=540,fit=pad,background=black" alt="Complete-Cookie-5" height="540"></a></div>
 
 
 ### What Flavors Does Complete Cookie Offer?
@@ -275,7 +275,7 @@ When compared to other cookie brands, Complete Cookie products stand out due to 
 
 Complete Cookie products contain a combination of wholesome ingredients, such as rolled oats, nuts, seeds, and fruits, which contribute to their higher nutritional value. These ingredients also provide a naturally sweet taste, reducing the need for excessive added sugars. Furthermore, Complete Cookie products are often lower in saturated fats and calories when compared to traditional cookies, making them a healthier choice for snack time. 
 
-<div><a href="https://serp.ly/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-6/h=540,fit=pad,background=black" alt="Complete-Cookie-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Complete+Cookie"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Complete-Cookie-6/h=540,fit=pad,background=black" alt="Complete-Cookie-6" height="540"></a></div>
 
 
 ### Can Complete Cookie Products Be Considered a Healthy Snack?

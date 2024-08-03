@@ -14,45 +14,45 @@ Welcome baseball fans! Get ready to show your support for the Blue Jays with thi
 ## Reviews
 
 
-### [New Era Pop Sweat 59FIFTY Toronto Blue Jays Fitted Cap](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-cap)
+### [New Era Pop Sweat 59FIFTY Toronto Blue Jays Fitted Cap](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-cap)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-cap"><img alt="new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-hat-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-hat-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-cap"><img alt="new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-hat-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-pop-sweat-59fifty-toronto-blue-jays-fitted-hat-8-1/h=540,fit=pad,background=black"/></a></div>
 
 This New Era Pop Sweat hat, also known as the Toronto Blue Jays Fitted Hat, is a must-have for every diehard fan. With its 100% polyester fabric, the hat promises excellent comfort and durability. A prominently embroidered team logo rests on the front, proudly showcasing your loyalty. 
 
 A unique highlight, the side patch emblematic of the 1992 World Series participation, adds a special touch, making this hat more than just a casual accessory. Furthermore, the vibrant undervisor ensures you make a bold statement wherever you go. While the hat may feel a little snug for some, it's a small price to pay for supporting your favorite team in style. Overall, this New Era Pop Sweat Toronto Blue Jays Fitted Hat 8 is a stylish and functional choice for every Blue Jays fan. 
 
 
-### [Bluefield Blue Jays New Era Blue 59FIFTY Fitted Caps - Official Team Style](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=bluefield-blue-jays-new-era-blue-59fifty-fitted-caps-official-team-style)
+### [Bluefield Blue Jays New Era Blue 59FIFTY Fitted Caps - Official Team Style](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=bluefield-blue-jays-new-era-blue-59fifty-fitted-caps-official-team-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=bluefield-blue-jays-new-era-blue-59fifty-fitted-caps-official-team-style"><img alt="bluefield-blue-jays-new-era-authentic-home-59fifty-fitted-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bluefield-blue-jays-new-era-authentic-home-59fifty-fitted-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=bluefield-blue-jays-new-era-blue-59fifty-fitted-caps-official-team-style"><img alt="bluefield-blue-jays-new-era-authentic-home-59fifty-fitted-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bluefield-blue-jays-new-era-authentic-home-59fifty-fitted-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
 
 Step up your casual style game with this Bluefield Blue Jays Authentic Home 59FIFTY fitted hat from New Era. This baseball cap features a bold and vibrant Royal design that catches eyes, making it perfect for die-hard sports fans or anyone looking to switch up their wardrobe. A comfortable, fitted design ensures a snug and stylish fit, while the 59FIFTY label adds a touch of sports-inspired flair. 
 
 However, be cautious of the size, as it might run slightly small for some users. Overall, this Bluefield Blue Jays hat is a great choice for those seeking style and comfort in a fashionable accessory. 
 
 
-### [Men's Iconic Blue Jays Fitted Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=mens-iconic-blue-jays-fitted-hat)
+### [Men's Iconic Blue Jays Fitted Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=mens-iconic-blue-jays-fitted-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=mens-iconic-blue-jays-fitted-hat"><img alt="mens-fanatics-branded-white-royal-toronto-blue-jays-iconic-color-blocked-fitted-hat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-fanatics-branded-white-royal-toronto-blue-jays-iconic-color-blocked-fitted-hat-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=mens-iconic-blue-jays-fitted-hat"><img alt="mens-fanatics-branded-white-royal-toronto-blue-jays-iconic-color-blocked-fitted-hat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-fanatics-branded-white-royal-toronto-blue-jays-iconic-color-blocked-fitted-hat-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to rep your love for the Toronto Blue Jays with this fantastic cap from Fanatics Branded. Its colorful block design is a head-turner, and you'll find your new go-to hat for any occasion. The fitted design hugs your head perfectly, making it both stylish and functional. 
 
 It's an excellent choice for sports fanatics or anyone who enjoys the iconic Blue Jays look. 
 
 
-### [Toronto Blue Jays 39THIRTY Flex Hat - Royal](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-39thirty-flex-hat-royal)
+### [Toronto Blue Jays 39THIRTY Flex Hat - Royal](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-39thirty-flex-hat-royal)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-39thirty-flex-hat-royal"><img alt="new-era-toronto-blue-jays-mlb-team-classic-39thirty-flex-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-mlb-team-classic-39thirty-flex-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-39thirty-flex-hat-royal"><img alt="new-era-toronto-blue-jays-mlb-team-classic-39thirty-flex-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-mlb-team-classic-39thirty-flex-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the vibrant world of sports fandom through this New Era Toronto Blue Jays MLB Team Classic flex hat in royal! Its structured, slightly curved bill gives it a sophisticated yet trendy look, while the stretch fit ensures a comfortable wear. The six-panel design with eyelets allows for a breathable experience that you'll appreciate under the sun's glare. 
 
 As an authentic piece from the renowned brand, New Era, the true-to-life player-like design of this hat is both stylish and a genuine nod to the team's spirit. Despite the slight confusion I had with the sizing on one website, I easily found accurate measurements on the 39THIRTY's official site. The royal color is a striking fashion statement and, in combination with the team's logo and branding, makes it the perfect hat for any Blue Jays fan. The hat also features a flexible band that makes it easy to adjust to your ideal fit. All aspects of this hat stand out, and I'm certain it will be a fan's favorite. 
 
 
-### [New Era Toronto Blue Jays Monocamo Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-toronto-blue-jays-monocamo-hat)
+### [New Era Toronto Blue Jays Monocamo Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-toronto-blue-jays-monocamo-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-toronto-blue-jays-monocamo-hat"><img alt="new-era-toronto-blue-jays-59fifty-monocamo-mens-fitted-hat-light-royal-light-royal-7-5-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-59fifty-monocamo-mens-fitted-hat-light-royal-light-royal-7-5-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-toronto-blue-jays-monocamo-hat"><img alt="new-era-toronto-blue-jays-59fifty-monocamo-mens-fitted-hat-light-royal-light-royal-7-5-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-59fifty-monocamo-mens-fitted-hat-light-royal-light-royal-7-5-8-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to cheer on the Toronto Blue Jays with style and pride! This 59FIFTY fitted hat from New Era is a must-have for any devoted fan. 
 
@@ -61,9 +61,9 @@ The sleek design boasts the iconic Blue Jays logo emblazoned on the front, makin
 Sport this hat with confidence and show off your allegiance in true Blue Jays fashion! 
 
 
-### [New Era 1992 Toronto Blue Jays 'Polar Lights' World Series Fitted Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-1992-toronto-blue-jays-polar-lights-world-series-fitted-hat)
+### [New Era 1992 Toronto Blue Jays 'Polar Lights' World Series Fitted Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-1992-toronto-blue-jays-polar-lights-world-series-fitted-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-1992-toronto-blue-jays-polar-lights-world-series-fitted-hat"><img alt="new-era-toronto-blue-jays-1992-world-series-polar-lights-59fifty-fitted-hat-7-1-2-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-1992-world-series-polar-lights-59fifty-fitted-hat-7-1-2-royal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-1992-toronto-blue-jays-polar-lights-world-series-fitted-hat"><img alt="new-era-toronto-blue-jays-1992-world-series-polar-lights-59fifty-fitted-hat-7-1-2-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-1992-world-series-polar-lights-59fifty-fitted-hat-7-1-2-royal-1/h=540,fit=pad,background=black"/></a></div>
 
 A few weeks ago, the Toronto Blue Jays' 1992 World Series Polar Lights New Era 59FIFTY fitted hat made its way into my life. I've been a sports fan for as long as I can remember and this hat is just the perfect addition to my collection. 
 
@@ -78,9 +78,9 @@ The Polar Lights Toronto Blue Jays hat is a great choice for any sports fan, esp
 In conclusion, the hat fits me well, it's comfortable and looks great. The embroidered graphics and patchwork are of high quality and the hat is made from 100% polyester. It's a great hat for sports fans and I'd definitely recommend it. 
 
 
-### [Structured Blue Jays Fitted Cap with Contrast Undervisor](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=structured-blue-jays-fitted-cap-with-contrast-undervisor)
+### [Structured Blue Jays Fitted Cap with Contrast Undervisor](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=structured-blue-jays-fitted-cap-with-contrast-undervisor)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=structured-blue-jays-fitted-cap-with-contrast-undervisor"><img alt="new-era-side-split-59fifty-toronto-blue-jays-fitted-hat-7-3-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-side-split-59fifty-toronto-blue-jays-fitted-hat-7-3-4-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=structured-blue-jays-fitted-cap-with-contrast-undervisor"><img alt="new-era-side-split-59fifty-toronto-blue-jays-fitted-hat-7-3-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-side-split-59fifty-toronto-blue-jays-fitted-hat-7-3-4-1/h=540,fit=pad,background=black"/></a></div>
 
 Step up your game day style with this Sidesplit 59FIFTY hat from New Era. Crafted with a structured fit, it features an adjustable flat bill that can curve, giving it a unique and modern look. 
 
@@ -89,9 +89,9 @@ The vibrant green undervisor proudly displays the team's emblem as well as the c
 So, don't miss your chance to show off your fan spirit in style – grab your very own Sidesplit 59FIFTY hat today! 
 
 
-### [New Era Blue Jays Blooming Fitted Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-blue-jays-blooming-fitted-hat)
+### [New Era Blue Jays Blooming Fitted Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-blue-jays-blooming-fitted-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-blue-jays-blooming-fitted-hat"><img alt="new-era-59fifty-mlb-toronto-blue-jays-blooming-fitted-hat-7-3-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-59fifty-mlb-toronto-blue-jays-blooming-fitted-hat-7-3-4-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-blue-jays-blooming-fitted-hat"><img alt="new-era-59fifty-mlb-toronto-blue-jays-blooming-fitted-hat-7-3-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-59fifty-mlb-toronto-blue-jays-blooming-fitted-hat-7-3-4-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to wear this stylish New Era 59FIFTY Toronto Blue Jays Blooming Fitted Hat. It's a great way to show my support for the Blue Jays while adding a touch of blooming floral details to my style. I can't get over how well the embroidered team logo stands out on the front, adding to the overall boldness of the cap. 
 
@@ -100,18 +100,18 @@ One of my favorite features of this fitted hat is the 6-panel crown, which ensur
 However, there are a couple of things that could use some improvement. It would be great if they could come up with a wider range of sizes, especially since my head is at the larger end of the spectrum. Overall, I'd highly recommend this cap for a die-hard Blue Jays fan who also loves a touch of blooming designs. It's a great blend of team spirit and fashion, making it an absolute must-have accessory. 
 
 
-### [World Series Champion Toronto Blue Jays Fitted Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=world-series-champion-toronto-blue-jays-fitted-hat)
+### [World Series Champion Toronto Blue Jays Fitted Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=world-series-champion-toronto-blue-jays-fitted-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=world-series-champion-toronto-blue-jays-fitted-hat"><img alt="new-era-59fifty-toronto-blue-jays-champions-black-fitted-hat-60185214-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-59fifty-toronto-blue-jays-champions-black-fitted-hat-60185214-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=world-series-champion-toronto-blue-jays-fitted-hat"><img alt="new-era-59fifty-toronto-blue-jays-champions-black-fitted-hat-60185214-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-59fifty-toronto-blue-jays-champions-black-fitted-hat-60185214-8-1/h=540,fit=pad,background=black"/></a></div>
 
 This New Era 59FIFTY Champions hat is a real showstopper, boasting World Series Champions embroidery and the year of their victory. Its structured crown not only feels comfortable but looks sleek too. The team logo graces the front, adding an element of fandom. 
 
 To keep you cool under pressure, it features ventilation eyelets. Crafted from 100% wool, this hat is sure to last and keep its shape, thanks to its fitted design. It's more than just a cap - it's a piece of baseball history that you can wear proudly on your head. 
 
 
-### ['47 Light Toronto Blue Jays Cooperstown Collection Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=47-light-toronto-blue-jays-cooperstown-collection-hat)
+### ['47 Light Toronto Blue Jays Cooperstown Collection Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=47-light-toronto-blue-jays-cooperstown-collection-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=47-light-toronto-blue-jays-cooperstown-collection-hat"><img alt="47-light-toronto-jays-cooperstown-collection-franchise-fitted-hat-light-blue-x-large-mlb-caps-at-aca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/47-light-toronto-jays-cooperstown-collection-franchise-fitted-hat-light-blue-x-large-mlb-caps-at-aca-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=47-light-toronto-blue-jays-cooperstown-collection-hat"><img alt="47-light-toronto-jays-cooperstown-collection-franchise-fitted-hat-light-blue-x-large-mlb-caps-at-aca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/47-light-toronto-jays-cooperstown-collection-franchise-fitted-hat-light-blue-x-large-mlb-caps-at-aca-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the '47 Light Toronto Jays Cooperstown Collection Franchise hat. It's a classic piece of gear that instantly elevates any game day ensemble. The light blue color is understated yet eye-catching, and it pairs so well with other Toronto Blue Jays apparel. 
 
@@ -122,9 +122,9 @@ When using the cap, I appreciated the sturdy build and durability. It's clear th
 Overall, I'm really happy with the '47 Light Toronto Jays Cooperstown Collection Franchise hat. It's a great accessory for any Toronto Blue Jays fan and I've received many compliments on my style! 
 
 
-### [Toronto Blue Jays 10th Anniversary Sky Blue Fitted Hat by New Era](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-10th-anniversary-sky-blue-fitted-hat-by-new-era)
+### [Toronto Blue Jays 10th Anniversary Sky Blue Fitted Hat by New Era](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-10th-anniversary-sky-blue-fitted-hat-by-new-era)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-10th-anniversary-sky-blue-fitted-hat-by-new-era"><img alt="new-era-mens-tan-toronto-blue-jays-10th-anniversary-sky-blue-undervisor-59fifty-fitted-hat-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-tan-toronto-blue-jays-10th-anniversary-sky-blue-undervisor-59fifty-fitted-hat-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-10th-anniversary-sky-blue-fitted-hat-by-new-era"><img alt="new-era-mens-tan-toronto-blue-jays-10th-anniversary-sky-blue-undervisor-59fifty-fitted-hat-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-tan-toronto-blue-jays-10th-anniversary-sky-blue-undervisor-59fifty-fitted-hat-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to add some team spirit to my casual look by grabbing the New Era Men's Tan Toronto Blue Jays 10th Anniversary Sky Blue Undervisor 59FIFTY fitted hat. Wearing the hat has been nothing short of a refreshing experience. 
 
@@ -133,9 +133,9 @@ The sky blue undervisor complements the hat's versatility, making it perfect for
 Despite this, I'm confident that with the right sizing, this hat is a winner for any Blue Jays fan looking to upgrade their headwear game. 
 
 
-### [Toronto Blue Jays Walnut Hat, 71/4" (2006 30th Season Edition)](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-walnut-hat-71-4-2006-30th-season-edition)
+### [Toronto Blue Jays Walnut Hat, 71/4" (2006 30th Season Edition)](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-walnut-hat-71-4-2006-30th-season-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-walnut-hat-71-4-2006-30th-season-edition"><img alt="new-era-toronto-blue-jays-walnut-59fifty-fitted-cap-71-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-walnut-59fifty-fitted-cap-71-4-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-walnut-hat-71-4-2006-30th-season-edition"><img alt="new-era-toronto-blue-jays-walnut-59fifty-fitted-cap-71-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-toronto-blue-jays-walnut-59fifty-fitted-cap-71-4-1/h=540,fit=pad,background=black"/></a></div>
 
 This Blue Jays fans' dream cap comes in a stunning walnut shade, highlighting the crown and visor. Bright orange brim adds a pop of color to the design. With an iconic "30th Season" patch from 1977 to 2006, this hat reflects the team's rich history. 
 
@@ -144,18 +144,18 @@ Crafted using 59FIFTY technology, this fan cap is both comfortable and stylish. 
 Overall, this hat is perfect for any Blue Jays supporter looking to show their team spirit. 
 
 
-### [New Era Royal Blue Jays Alternate 5950 MLB Fitted Hat](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-royal-blue-jays-alternate-5950-mlb-fitted-hat)
+### [New Era Royal Blue Jays Alternate 5950 MLB Fitted Hat](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-royal-blue-jays-alternate-5950-mlb-fitted-hat)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-royal-blue-jays-alternate-5950-mlb-fitted-hat"><img alt="toronto-blue-jays-new-era-alternate-authentic-collection-on-field-59fifty-fitted-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toronto-blue-jays-new-era-alternate-authentic-collection-on-field-59fifty-fitted-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-royal-blue-jays-alternate-5950-mlb-fitted-hat"><img alt="toronto-blue-jays-new-era-alternate-authentic-collection-on-field-59fifty-fitted-hat-royal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toronto-blue-jays-new-era-alternate-authentic-collection-on-field-59fifty-fitted-hat-royal-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into Blue Jays fandom with the New Era Alternate Authentic Collection on Field 59Fifty Fitted Hat in Royal. Featuring a drawstring closure, machine washable, and performance sweatband capabilities, this cap allows you to wear it like a pro. The 100% polyester construction ensures durability and a comfortable fit for all-day wear. 
 
 With its team logo on the front, this Blue Jays hat is not only stylish but also a nod to the team's spirit. 
 
 
-### [New Era Toronto Blue Jays Fitted Hat - Light Beige Style 60243576](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-toronto-blue-jays-fitted-hat-light-beige-style-60243576)
+### [New Era Toronto Blue Jays Fitted Hat - Light Beige Style 60243576](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=new-era-toronto-blue-jays-fitted-hat-light-beige-style-60243576)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-toronto-blue-jays-fitted-hat-light-beige-style-60243576"><img alt="nwt-new-era-59fifty-toronto-blue-jays-fitted-hat-7-7-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nwt-new-era-59fifty-toronto-blue-jays-fitted-hat-7-7-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=new-era-toronto-blue-jays-fitted-hat-light-beige-style-60243576"><img alt="nwt-new-era-59fifty-toronto-blue-jays-fitted-hat-7-7-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nwt-new-era-59fifty-toronto-blue-jays-fitted-hat-7-7-8-1/h=540,fit=pad,background=black"/></a></div>
 
 I wore this Nwt New Era 59FIFTY hat for a baseball game recently and it was a real game-changer. The high profile crown stood out perfectly, and the 6-panel structured silhouette made it a comfortable fit. 
 
@@ -164,16 +164,16 @@ The light beige color went well with the blue Jays logo embroidery, and it defin
 It's made of 100% polyester, so it might not be the best choice if it rains unexpectedly. But overall, I give this hat a thumbs up for style and comfort while representing my favorite team. 
 
 
-### [Teal Blue Jays Mango Forest Fitted Hat by New Era](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=teal-blue-jays-mango-forest-fitted-hat-by-new-era)
+### [Teal Blue Jays Mango Forest Fitted Hat by New Era](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=teal-blue-jays-mango-forest-fitted-hat-by-new-era)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=teal-blue-jays-mango-forest-fitted-hat-by-new-era"><img alt="new-era-mens-natural-teal-toronto-blue-jays-mango-forest-59fifty-fitted-hat-natural-teal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-natural-teal-toronto-blue-jays-mango-forest-59fifty-fitted-hat-natural-teal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=teal-blue-jays-mango-forest-fitted-hat-by-new-era"><img alt="new-era-mens-natural-teal-toronto-blue-jays-mango-forest-59fifty-fitted-hat-natural-teal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-natural-teal-toronto-blue-jays-mango-forest-59fifty-fitted-hat-natural-teal-1/h=540,fit=pad,background=black"/></a></div>
 
 Step up your game with this stylish Toronto Blue Jays Mango Forest 59FIFTY fitted hat by New Era. Get ready to make a statement as you proudly showcase your team loyalty through the bold Toronto Blue Jays graphics on the crown. This hat is designed to fit like a glove, making it a perfect addition to your cap collection. 
 
 
-### [Toronto Blue Jays On-Field Batting Practice 59FIFTY Fitted Hat - Gray](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-on-field-batting-practice-59fifty-fitted-hat-gray)
+### [Toronto Blue Jays On-Field Batting Practice 59FIFTY Fitted Hat - Gray](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-on-field-batting-practice-59fifty-fitted-hat-gray)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-on-field-batting-practice-59fifty-fitted-hat-gray"><img alt="new-era-mens-gray-toronto-blue-jays-2023-on-field-batting-practice-59fifty-fitted-hat-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-gray-toronto-blue-jays-2023-on-field-batting-practice-59fifty-fitted-hat-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-on-field-batting-practice-59fifty-fitted-hat-gray"><img alt="new-era-mens-gray-toronto-blue-jays-2023-on-field-batting-practice-59fifty-fitted-hat-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-era-mens-gray-toronto-blue-jays-2023-on-field-batting-practice-59fifty-fitted-hat-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 A few days ago, I decided to treat myself to a new piece of sportswear that would truly embody my passion for baseball. I've always been a big fan of the Toronto Blue Jays, and when I came across the New Era Men's Gray Toronto Blue Jays 2023 On-Field Batting Practice 59FIFTY Fitted Hat, I knew it was the perfect addition to my collection. 
 
@@ -184,27 +184,27 @@ However, there were a couple of minor issues I encountered. Firstly, the hat fel
 Despite these small drawbacks, I'm still really happy with my purchase. This hat has become my go-to accessory whenever I'm supporting the Toronto Blue Jays, and I can't wait to see my team crush it on the field this season. 
 
 
-### [Toronto Blue Jays 59FIFTY Fitted Hat - Blue Jays Fitted Hat with COOLERA Technology](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-59fifty-fitted-hat-blue-jays-fitted-hat-with-coolera-technology)
+### [Toronto Blue Jays 59FIFTY Fitted Hat - Blue Jays Fitted Hat with COOLERA Technology](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=toronto-blue-jays-59fifty-fitted-hat-blue-jays-fitted-hat-with-coolera-technology)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-59fifty-fitted-hat-blue-jays-fitted-hat-with-coolera-technology"><img alt="toronto-blue-jays-new-era-authentic-collection-on-field-59fifty-fitted-hat-7-1-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toronto-blue-jays-new-era-authentic-collection-on-field-59fifty-fitted-hat-7-1-4-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=toronto-blue-jays-59fifty-fitted-hat-blue-jays-fitted-hat-with-coolera-technology"><img alt="toronto-blue-jays-new-era-authentic-collection-on-field-59fifty-fitted-hat-7-1-4-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toronto-blue-jays-new-era-authentic-collection-on-field-59fifty-fitted-hat-7-1-4-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the world of Blue Jays fandom with this impressive hat from New Era. Display your team's logo in style as you show off your support. This fitted hat boasts COOLERA technology for moisture-wicking capabilities, ensuring your comfort on game day. 
 
 The flat bill is a great feature, offering the perfect amount of sunshade, allowing you to cheer for your favorite team without any pesky glare. 
 
 
-### [Retro Toronto Blue Jays Fitted Hat - MLB Caps at Academy Sports](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=retro-toronto-blue-jays-fitted-hat-mlb-caps-at-academy-sports)
+### [Retro Toronto Blue Jays Fitted Hat - MLB Caps at Academy Sports](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=retro-toronto-blue-jays-fitted-hat-mlb-caps-at-academy-sports)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=retro-toronto-blue-jays-fitted-hat-mlb-caps-at-academy-sports"><img alt="47-toronto-blue-jays-franchise-logo-fitted-hat-royal-x-large-mlb-caps-at-academy-sports-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/47-toronto-blue-jays-franchise-logo-fitted-hat-royal-x-large-mlb-caps-at-academy-sports-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=retro-toronto-blue-jays-fitted-hat-mlb-caps-at-academy-sports"><img alt="47-toronto-blue-jays-franchise-logo-fitted-hat-royal-x-large-mlb-caps-at-academy-sports-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/47-toronto-blue-jays-franchise-logo-fitted-hat-royal-x-large-mlb-caps-at-academy-sports-1/h=540,fit=pad,background=black"/></a></div>
 
 This '47 Franchise fitted hat is the perfect game day essential. Featuring a simple design, it allows the iconic Toronto Blue Jays embroidery to be the standout element. 
 
 Ideal for any fan, this cap pairs perfectly with a matching Toronto Blue Jays shirt or shorts, creating a head-to-toe look for true supporters. The soft, unstructured fit ensures comfort, making it a great choice for all-day wear. 
 
 
-### [Men's Blue Jays Logo Fitted Hat - Mitchell & Ness Royal Collection](https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm\_term=mens-blue-jays-logo-fitted-hat-mitchell-ness-royal-collection)
+### [Men's Blue Jays Logo Fitted Hat - Mitchell & Ness Royal Collection](https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm\_term=mens-blue-jays-logo-fitted-hat-mitchell-ness-royal-collection)
 
-<div class="image"><a href="https://serp.ly/amazon/Blue+Jays+Fitted+Hat?utm_term=mens-blue-jays-logo-fitted-hat-mitchell-ness-royal-collection"><img alt="mens-mitchell-ness-royal-toronto-blue-jays-bases-loaded-fitted-hat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-mitchell-ness-royal-toronto-blue-jays-bases-loaded-fitted-hat-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Blue+Jays+Fitted+Hat?utm_term=mens-blue-jays-logo-fitted-hat-mitchell-ness-royal-collection"><img alt="mens-mitchell-ness-royal-toronto-blue-jays-bases-loaded-fitted-hat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-mitchell-ness-royal-toronto-blue-jays-bases-loaded-fitted-hat-1/h=540,fit=pad,background=black"/></a></div>
 
 As a die-hard fan of baseball and the Toronto Blue Jays, I was drawn to the Mitchell & Ness Royal Blue Jays Bases Loaded Fitted Hat. I had long admired the athletic spirit of the Blue Jays, and wearing this hat made me feel like I belong on the field with them. The vibrant embroidered graphics on the front panels proudly display my allegiance to the team. 
 

@@ -14,9 +14,9 @@ If you're looking to create a stunning look for your car, headers are an essenti
 ## Reviews
 
 
-### [Summit Racing Black 5.4L Modular Truck Headers](https://serp.ly/amazon/Headers+For+Cars?utm\_term=summit-racing-black-5-4l-modular-truck-headers)
+### [Summit Racing Black 5.4L Modular Truck Headers](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=summit-racing-black-5-4l-modular-truck-headers)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=summit-racing-black-5-4l-modular-truck-headers"><img alt="summit-racing-sum-g9047-black-painted-shorty-headers-ford-5-4l-modular-v8-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/summit-racing-sum-g9047-black-painted-shorty-headers-ford-5-4l-modular-v8-trucks-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=summit-racing-black-5-4l-modular-truck-headers"><img alt="summit-racing-sum-g9047-black-painted-shorty-headers-ford-5-4l-modular-v8-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/summit-racing-sum-g9047-black-painted-shorty-headers-ford-5-4l-modular-v8-trucks-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Summit Racing SUM-G9047 black painted shorty headers for my Ford 5.4L Modular V8 pickup, and I must say, the performance boost was noticeable. Right off the bat, I felt a surge of power, giving me that satisfying edge while driving. The flange thickness is a standout feature for me, as it contributes to a more sturdy build. 
 
@@ -25,9 +25,9 @@ That being said, I did come across a minor inconvenience. The paint, while visua
 Overall, these Summit Racing headers are a worthwhile addition for those seeking improved engine performance. Just ensure you're mindful of the heat-resistance for best results. 
 
 
-### [HKS Stainless Steel Headers for Cars](https://serp.ly/amazon/Headers+For+Cars?utm\_term=hks-stainless-steel-headers-for-cars)
+### [HKS Stainless Steel Headers for Cars](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=hks-stainless-steel-headers-for-cars)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=hks-stainless-steel-headers-for-cars"><img alt="hks-stainless-steel-header-3304-st010-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hks-stainless-steel-header-3304-st010-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=hks-stainless-steel-headers-for-cars"><img alt="hks-stainless-steel-header-3304-st010-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hks-stainless-steel-header-3304-st010-1/h=540,fit=pad,background=black"/></a></div>
 
 The HKS Super Header Type II, also known as the 3304ST010, is a premium exhaust solution designed specifically for Lexus IS300 models. Though the fitment range may vary, this header is built to ensure optimal performance across a wide RPM spectrum. The 45mm, 50.8mm, and 60.5mm dimensions of this header contribute to its versatility, and the adoption of a 421 Straight Junction design showcases HKS' dedication to exhaust technology. 
 
@@ -38,9 +38,9 @@ The HKS Super Header's 421 Straight Junction design is an excellent choice for d
 However, it's crucial to verify the fitment of the HKS 3304ST010 on your specific Lexus IS300 model before making a purchase to ensure compatibility. While its superior performance and innovative design are appealing, it is essential to conduct proper research beforehand to ensure a seamless installation process and optimal results. 
 
 
-### [Universal LT Forward Facing Turbo Headers for Gen 5 LT2 Cars](https://serp.ly/amazon/Headers+For+Cars?utm\_term=universal-lt-forward-facing-turbo-headers-for-gen-5-lt2-cars)
+### [Universal LT Forward Facing Turbo Headers for Gen 5 LT2 Cars](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=universal-lt-forward-facing-turbo-headers-for-gen-5-lt2-cars)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=universal-lt-forward-facing-turbo-headers-for-gen-5-lt2-cars"><img alt="speed-engineering-universal-lt-forward-facing-turbo-1-3-4-headers-gen-5-lt2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-universal-lt-forward-facing-turbo-1-3-4-headers-gen-5-lt2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=universal-lt-forward-facing-turbo-headers-for-gen-5-lt2-cars"><img alt="speed-engineering-universal-lt-forward-facing-turbo-1-3-4-headers-gen-5-lt2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-universal-lt-forward-facing-turbo-1-3-4-headers-gen-5-lt2-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're in the market for a set of versatile and affordable headers for your C8 Corvette, look no further than Speed Engineering's Universal LT Forward Facing Turbo 1 3/4" Headers. Constructed from durable 304 stainless steel, these headers ensure top-notch performance and reliability. 
 
@@ -53,18 +53,18 @@ Now for the downside: these headers do not come with any specific application-de
 Overall, Speed Engineering's Universal LT Forward Facing Turbo 1 3/4" Headers offer a balance of affordability and high-quality performance for the C8 Corvette enthusiast. They might not be perfect out of the box, but with a bit of tweaking, they could certainly become a valuable addition to your car. 
 
 
-### [Boost Car Performance with High-Quality Header Exhaust](https://serp.ly/amazon/Headers+For+Cars?utm\_term=boost-car-performance-with-high-quality-header-exhaust)
+### [Boost Car Performance with High-Quality Header Exhaust](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=boost-car-performance-with-high-quality-header-exhaust)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=boost-car-performance-with-high-quality-header-exhaust"><img alt="header-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/header-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=boost-car-performance-with-high-quality-header-exhaust"><img alt="header-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/header-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's driven a variety of vehicles, I've used Procomp Electronics headers to upgrade the performance of my 1971 Buick Lesabre. I was blown away by the smooth installation process and the immediate boost in horsepower and torque. The heavy-duty flanges were surprisingly easy to fit, and the customization options allowed me to tailor them to my specific car model. 
 
 The only downside was the lack of a collector, but with the range of styles available, I'm confident I'll find one in the near future. Overall, these Headers For Cars are a solid investment for any enthusiast looking to improve the performance of their vehicle. 
 
 
-### [Speed Engineering Truck & SUV 1 7/8" Longtube Headers (2007-2013) - Performance Upgrade for Cars](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2013-performance-upgrade-for-cars)
+### [Speed Engineering Truck & SUV 1 7/8" Longtube Headers (2007-2013) - Performance Upgrade for Cars](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2013-performance-upgrade-for-cars)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2013-performance-upgrade-for-cars"><img alt="speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2014/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2013-performance-upgrade-for-cars"><img alt="speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-7-8-longtube-headers-2007-2014/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to install the Speed Engineering Truck & SUV 1 7/8" Longtube Headers on my 2009 Tahoe, and I must say, I'm genuinely impressed with the results. After doing my research and realizing the importance of improving the performance of my engine, I decided to go with these headers due to their exceptional value and promising dyno-proven results. 
 
@@ -77,27 +77,27 @@ However, it's worth mentioning that these headers are not shipped to California,
 Overall, the Speed Engineering Truck & SUV 1 7/8" Longtube Headers have exceeded my expectations in terms of performance and durability. If you're looking to enhance your engine's performance while maintaining a balance of affordability and quality, I would highly recommend giving these headers a try. 
 
 
-### [Upgrade Your Ride: PCE PCE316.1043 Stainless Steel Exhaust Headers](https://serp.ly/amazon/Headers+For+Cars?utm\_term=upgrade-your-ride-pce-pce316-1043-stainless-steel-exhaust-headers)
+### [Upgrade Your Ride: PCE PCE316.1043 Stainless Steel Exhaust Headers](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=upgrade-your-ride-pce-pce316-1043-stainless-steel-exhaust-headers)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=upgrade-your-ride-pce-pce316-1043-stainless-steel-exhaust-headers"><img alt="pce-pce316-1043-stainless-steel-natural-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pce-pce316-1043-stainless-steel-natural-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=upgrade-your-ride-pce-pce316-1043-stainless-steel-exhaust-headers"><img alt="pce-pce316-1043-stainless-steel-natural-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pce-pce316-1043-stainless-steel-natural-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried these PCE Natural Exhaust Headers for my car, and let me tell you, they're impressive! The stainless steel material and laser-cut flanges give them a premium feel, and their fitment has held up well. One caveat I should note is that if you have aftermarket components or custom alternations, it's essential that you double-check their compatibility before proceeding with the install. 
 
 Using these headers has undoubtedly increased my horsepower and torque, giving me a much smoother driving experience. However, it's essential to mention that the primary tube can be a bit longer, impeding proper fitment in certain instances. While this detail might pose an inconvenience for some users, I still found the overall value and performance to be worth the investment. 
 
 
-### [Flowtech 12131FLT Car Performance Headers](https://serp.ly/amazon/Headers+For+Cars?utm\_term=flowtech-12131flt-car-performance-headers)
+### [Flowtech 12131FLT Car Performance Headers](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=flowtech-12131flt-car-performance-headers)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=flowtech-12131flt-car-performance-headers"><img alt="flowtech-12131flt-shorty-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flowtech-12131flt-shorty-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=flowtech-12131flt-car-performance-headers"><img alt="flowtech-12131flt-shorty-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flowtech-12131flt-shorty-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently installed these Flowtech 12131FLT Shorty Headers on my Ford Mustang, and I must say, the performance boost was immediate. The mandrel-bent tubing ensures smooth flow and increases performance, making my car feel more powerful on the road. The leak-free seal also provides peace of mind, knowing that my exhaust system is functioning at its best. 
 
 However, the installation process was a bit more complicated than I expected, but that's a minor con compared to the benefits I've experienced since the installation. Overall, these headers are a game-changer for my Mustang and worth the investment. 
 
 
-### [EMUSA 4-1 SS Exhaust Header for Chevy S10/GMC Sonoma Pickup](https://serp.ly/amazon/Headers+For+Cars?utm\_term=emusa-4-1-ss-exhaust-header-for-chevy-s10-gmc-sonoma-pickup)
+### [EMUSA 4-1 SS Exhaust Header for Chevy S10/GMC Sonoma Pickup](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=emusa-4-1-ss-exhaust-header-for-chevy-s10-gmc-sonoma-pickup)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=emusa-4-1-ss-exhaust-header-for-chevy-s10-gmc-sonoma-pickup"><img alt="emusa-4-1-ss-exhaust-header-manifold-for-94-04-chevy-s10-gmc-sonoma-pickup-2-2l-4cyl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/emusa-4-1-ss-exhaust-header-manifold-for-94-04-chevy-s10-gmc-sonoma-pickup-2-2l-4cyl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=emusa-4-1-ss-exhaust-header-for-chevy-s10-gmc-sonoma-pickup"><img alt="emusa-4-1-ss-exhaust-header-manifold-for-94-04-chevy-s10-gmc-sonoma-pickup-2-2l-4cyl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/emusa-4-1-ss-exhaust-header-manifold-for-94-04-chevy-s10-gmc-sonoma-pickup-2-2l-4cyl-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer, I recently installed the EMUSA 4-1 SS Exhaust Header Manifold on my old Chevrolet S10 to give it a much-needed power boost. The stainless steel design looked sleek and stylish, just like the picture. 
 
@@ -108,9 +108,9 @@ Once installed, I could immediately notice a difference - the exhaust note was l
 However, this product does have a minor downside - it requires time and effort to install properly. There's also a possibility of rust formation due to the stainless steel material, which could be a concern for some. But overall, the EMUSA 4-1 SS Exhaust Header Manifold proved to be a worthwhile upgrade for my Chevrolet S10. 
 
 
-### [Speed Engineering Longtube Headers for Trucks & SUVs](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speed-engineering-longtube-headers-for-trucks-suvs)
+### [Speed Engineering Longtube Headers for Trucks & SUVs](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speed-engineering-longtube-headers-for-trucks-suvs)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speed-engineering-longtube-headers-for-trucks-suvs"><img alt="speed-engineering-truck-suv-1-3-4-longtube-headers-2007-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-3-4-longtube-headers-2007-2014/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speed-engineering-longtube-headers-for-trucks-suvs"><img alt="speed-engineering-truck-suv-1-3-4-longtube-headers-2007-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-3-4-longtube-headers-2007-2014/h=540,fit=pad,background=black"/></a></div>
 
 For my daily driving, I've recently installed the Speed Engineering 1-3/4" Long Tube Headers on my 2012 Silverado. The moment I started the engine, I could feel the difference in performance. The sound was louder and sharper, indicating more power from my V8. 
 
@@ -121,18 +121,18 @@ The installation process was straightforward, helped by the well-designed CNC ma
 In conclusion, these long tube headers deliver on power and sound, making them worthwhile for enthusiasts looking to boost their vehicle's performance. But remember, they might not ship to California due to restrictions mentioned on the product listing. Always double-check product specifications before making a purchase. 
 
 
-### [High-Performance Steel Chrome Exhaust Headers for Car Enhancement](https://serp.ly/amazon/Headers+For+Cars?utm\_term=high-performance-steel-chrome-exhaust-headers-for-car-enhancement)
+### [High-Performance Steel Chrome Exhaust Headers for Car Enhancement](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=high-performance-steel-chrome-exhaust-headers-for-car-enhancement)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=high-performance-steel-chrome-exhaust-headers-for-car-enhancement"><img alt="pce-pce316-1018-steel-chrome-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pce-pce316-1018-steel-chrome-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=high-performance-steel-chrome-exhaust-headers-for-car-enhancement"><img alt="pce-pce316-1018-steel-chrome-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pce-pce316-1018-steel-chrome-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 Step up your engine's performance with these PCE exhaust headers. Made from high-quality materials, these headers feature 3/8-inch thick laser-cut flanges and mandrel-bent primary tube, offering improved horsepower and torque. 
 
 Installation is a breeze, but keep in mind that you'll need to verify fitment if your vehicle is using aftermarket components or custom parts. Overall, these headers provide a cost-effective option for performance enthusiasts looking to enhance their driving experience. 
 
 
-### [Stainless Steel Exhaust Headers for Ford Mustang II](https://serp.ly/amazon/Headers+For+Cars?utm\_term=stainless-steel-exhaust-headers-for-ford-mustang-ii)
+### [Stainless Steel Exhaust Headers for Ford Mustang II](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=stainless-steel-exhaust-headers-for-ford-mustang-ii)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=stainless-steel-exhaust-headers-for-ford-mustang-ii"><img alt="speedmaster-pce316-1092-ford-2-3l-140-pinto-mustang-ii-stainless-steel-exhaust-headers-f235v-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1092-ford-2-3l-140-pinto-mustang-ii-stainless-steel-exhaust-headers-f235v-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=stainless-steel-exhaust-headers-for-ford-mustang-ii"><img alt="speedmaster-pce316-1092-ford-2-3l-140-pinto-mustang-ii-stainless-steel-exhaust-headers-f235v-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1092-ford-2-3l-140-pinto-mustang-ii-stainless-steel-exhaust-headers-f235v-1/h=540,fit=pad,background=black"/></a></div>
 
 Got my hands on these Speedmaster headers for my ol' 2.3L Pinto Mustang II recently. I gotta say, they look sharp with the silver uncoated coating, but I reckon they'd look even better with a little chrome! 
 
@@ -141,9 +141,9 @@ As for performance, these babies really deliver. They did wonders for my car's p
 My only complaint? The lack of gaskets included in the package. I had to pick up some separately, but hey, that's a small price to pay for the performance boost. I gotta say, I'm happy with this purchase. 
 
 
-### [Speedmaster IMCA Stainless Steel Exhaust Headers](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speedmaster-imca-stainless-steel-exhaust-headers)
+### [Speedmaster IMCA Stainless Steel Exhaust Headers](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speedmaster-imca-stainless-steel-exhaust-headers)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speedmaster-imca-stainless-steel-exhaust-headers"><img alt="speedmaster-pce316-1086-imca-modified-stainless-steel-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1086-imca-modified-stainless-steel-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speedmaster-imca-stainless-steel-exhaust-headers"><img alt="speedmaster-pce316-1086-imca-modified-stainless-steel-exhaust-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1086-imca-modified-stainless-steel-exhaust-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who is always looking for ways to enhance the performance of my ride, I decided to give these Speedmaster PCE316.1086 IMCA Modified Stainless Steel Exhaust Headers a try. Right off the bat, I was impressed by the thick laser-cut flanges and mandrel-bent primary tube, which added an extra layer of durability and strength. 
 
@@ -154,9 +154,9 @@ While the installation process required some extra effort, the overall build qua
 In summary, if you're looking to seriously upgrade your vehicle's performance, these Speedmaster PCE316.1086 IMCA Modified Stainless Steel Exhaust Headers are definitely worth considering. Just be sure to handle the fitment aspect with care, and these headers will deliver the results you've been searching for. 
 
 
-### [ZZP Ecotec Shorty Performance Header](https://serp.ly/amazon/Headers+For+Cars?utm\_term=zzp-ecotec-shorty-performance-header)
+### [ZZP Ecotec Shorty Performance Header](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=zzp-ecotec-shorty-performance-header)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=zzp-ecotec-shorty-performance-header"><img alt="zzp-ecotec-shorty-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zzp-ecotec-shorty-header-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=zzp-ecotec-shorty-performance-header"><img alt="zzp-ecotec-shorty-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zzp-ecotec-shorty-header-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking for a high-quality header to enhance your car's performance? The ZZP Ecotec Shorty Header might be just what you need. This stainless header is designed to fit in place of the stock manifold and connects seamlessly to an OEM-style downpipe. With a 1 5/8" primary and a 3" exit flange, it offers impressive performance improvements, particularly in torque. 
 
@@ -165,9 +165,9 @@ The header comes with new head-to-header and header-to-downpipe gaskets, along w
 Installing the header may require some effort, especially when removing it from the downpipe. The reviewer recommends using an U joint and penetrating fluid to loosen the bolts. Additionally, removing the plastic housing for the wipers can provide additional space during installation. Overall, the ZZP Ecotec Shorty Header is a top-rated product, offering noticeable power improvements and a satisfying installation experience. 
 
 
-### [Speed Engineering Shorty Headers for Trucks & SUVs (1999-2013)](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speed-engineering-shorty-headers-for-trucks-suvs-1999-2013)
+### [Speed Engineering Shorty Headers for Trucks & SUVs (1999-2013)](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speed-engineering-shorty-headers-for-trucks-suvs-1999-2013)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speed-engineering-shorty-headers-for-trucks-suvs-1999-2013"><img alt="speed-engineering-shorty-headers-truck-suv-1999-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-shorty-headers-truck-suv-1999-2014/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speed-engineering-shorty-headers-for-trucks-suvs-1999-2013"><img alt="speed-engineering-shorty-headers-truck-suv-1999-2014" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-shorty-headers-truck-suv-1999-2014/h=540,fit=pad,background=black"/></a></div>
 
 As a truck enthusiast, I've been on the lookout for affordable, high-performance headers, and Speed Engineering's 1-5/8" Shorty Headers are just what the doctor ordered for my 1999 Silverado Sierra. These headers are crafted from 304 stainless steel, making them both durable and resistant to corrosion. 
 
@@ -180,18 +180,18 @@ In my experience, the Speed Engineering Shorty Headers have provided a noticeabl
 Overall, I'm highly satisfied with the performance and value offered by Speed Engineering's 1-5/8" Shorty Headers for my 1999 Silverado Sierra. They're a great choice for anyone looking to boost power and improve the sound of their truck. 
 
 
-### [Speedmaster PCE316.1124 Stainless Steel 4 into 1 Header for Honda Civic 1.6 SI/DEL SOL DOHC VTEC (01-05)](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speedmaster-pce316-1124-stainless-steel-4-into-1-header-for-honda-civic-1-6-si-del-sol-dohc-vtec-01-05)
+### [Speedmaster PCE316.1124 Stainless Steel 4 into 1 Header for Honda Civic 1.6 SI/DEL SOL DOHC VTEC (01-05)](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speedmaster-pce316-1124-stainless-steel-4-into-1-header-for-honda-civic-1-6-si-del-sol-dohc-vtec-01-05)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speedmaster-pce316-1124-stainless-steel-4-into-1-header-for-honda-civic-1-6-si-del-sol-dohc-vtec-01-05"><img alt="speedmaster-pce316-1124-stainless-steel-header-4-into-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1124-stainless-steel-header-4-into-2/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speedmaster-pce316-1124-stainless-steel-4-into-1-header-for-honda-civic-1-6-si-del-sol-dohc-vtec-01-05"><img alt="speedmaster-pce316-1124-stainless-steel-header-4-into-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1124-stainless-steel-header-4-into-2/h=540,fit=pad,background=black"/></a></div>
 
 A few weeks ago, I decided to rev up my Honda Civic's performance with the Speedmaster PCE316.1124 Stainless Steel Header. This 4 into 1 design promises improved exhaust gas flow and enhanced ground clearance. The thick 16-gauge steel flanges certainly add an extra layer of durability, making me feel more confident on the road. 
 
 However, I wished it came with better-fitting instructions. But overall, it was worth the upgrade for the added power and a smoother ride. 
 
 
-### [Flowtech Exhaust Header 11506FLT: Car Performance Solution at AutoZone](https://serp.ly/amazon/Headers+For+Cars?utm\_term=flowtech-exhaust-header-11506flt-car-performance-solution-at-autozone)
+### [Flowtech Exhaust Header 11506FLT: Car Performance Solution at AutoZone](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=flowtech-exhaust-header-11506flt-car-performance-solution-at-autozone)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=flowtech-exhaust-header-11506flt-car-performance-solution-at-autozone"><img alt="flowtech-exhaust-header-11506flt-at-autozone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flowtech-exhaust-header-11506flt-at-autozone-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=flowtech-exhaust-header-11506flt-car-performance-solution-at-autozone"><img alt="flowtech-exhaust-header-11506flt-at-autozone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flowtech-exhaust-header-11506flt-at-autozone-1/h=540,fit=pad,background=black"/></a></div>
 
 Flowtech long tube headers have always intrigued me, as they promise a perfect combination of performance and value. During a recent car show, I was approached by an auto enthusiast who suggested trying out the 11506FLT exhaust header for my 1973 Chevrolet Blazer. I ended up purchasing it, and boy, was I excited to test it out! 
 
@@ -204,9 +204,9 @@ During a short drive around town, I couldn't help but notice some minor vibratio
 Overall, my experience with the Flowtech Exhaust Header 11506FLT has been mostly positive. The performance improvements are undeniable, but I'd suggest keeping a close eye on potential vibration issues for optimal vehicle performance. 
 
 
-### [JEGS Metallic Ceramic Coated Universal Headers](https://serp.ly/amazon/Headers+For+Cars?utm\_term=jegs-metallic-ceramic-coated-universal-headers)
+### [JEGS Metallic Ceramic Coated Universal Headers](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=jegs-metallic-ceramic-coated-universal-headers)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=jegs-metallic-ceramic-coated-universal-headers"><img alt="jegs-300100-metallic-ceramic-coated-long-tube-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jegs-300100-metallic-ceramic-coated-long-tube-headers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=jegs-metallic-ceramic-coated-universal-headers"><img alt="jegs-300100-metallic-ceramic-coated-long-tube-headers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jegs-300100-metallic-ceramic-coated-long-tube-headers-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the JEGS 300100 Metallic Ceramic Coated Long Tube Headers for my classic Chevy Impala. Right off the bat, I was impressed with the oval port shape and 3" collector. It seemed like a well-engineered product that would do the job efficiently. 
 
@@ -219,18 +219,18 @@ One of the biggest advantages of this product is the ceramic coating. Although i
 Overall, the JEGS 300100 Metallic Ceramic Coated Long Tube Headers provided excellent clearance, a perfect fit, and that extra touch of ceramic coating which adds a sense of elegance to the overall performance. I look forward to hearing the sound once I get the motor running! 
 
 
-### [2009-2012 Honda Fit Racing Header 953-204-107](https://serp.ly/amazon/Headers+For+Cars?utm\_term=2009-2012-honda-fit-racing-header-953-204-107)
+### [2009-2012 Honda Fit Racing Header 953-204-107](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=2009-2012-honda-fit-racing-header-953-204-107)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=2009-2012-honda-fit-racing-header-953-204-107"><img alt="honda-fit-weapon-r-953-204-107-racing-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/honda-fit-weapon-r-953-204-107-racing-header-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=2009-2012-honda-fit-racing-header-953-204-107"><img alt="honda-fit-weapon-r-953-204-107-racing-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/honda-fit-weapon-r-953-204-107-racing-header-1/h=540,fit=pad,background=black"/></a></div>
 
 The Honda Fit Weapon-R Racing Header is perfect for your 2009, 2010, 2011, and 2012 models, offering a great fit with part number 953-204-107. These headers are designed to boost exhaust flow, maximizing horsepower and torque for an improved driving experience. 
 
 Made from top-notch materials, they ensure superior quality without breaking the bank. It's a fantastic choice for those seeking affordability and reliability in their upgrade. 
 
 
-### [Stainless Steel Race Headers: Precision Speedmaster PCE316.1137](https://serp.ly/amazon/Headers+For+Cars?utm\_term=stainless-steel-race-headers-precision-speedmaster-pce316-1137)
+### [Stainless Steel Race Headers: Precision Speedmaster PCE316.1137](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=stainless-steel-race-headers-precision-speedmaster-pce316-1137)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=stainless-steel-race-headers-precision-speedmaster-pce316-1137"><img alt="speedmaster-pce316-1137-stainless-steel-race-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1137-stainless-steel-race-header-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=stainless-steel-race-headers-precision-speedmaster-pce316-1137"><img alt="speedmaster-pce316-1137-stainless-steel-race-header-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedmaster-pce316-1137-stainless-steel-race-header-1/h=540,fit=pad,background=black"/></a></div>
 
 During the past few weeks, I was searching for the perfect header to enhance my car's performance. After plenty of research, I came across the Speedmaster PCE316.1137 stainless steel race header. The first thing that caught my eye was the sleek stainless steel design, which matched my car's overall look. 
 
@@ -239,9 +239,9 @@ One of the features I appreciated the most was the 1 1/2-inch primary tube O. D.
 Although I loved the product, I found that the installation process could be a bit challenging. However, after consulting the user manual, I was able to get it done without any issues. Overall, the Speedmaster PCE316.1137 race header was a great choice for my car, and I'd definitely recommend it to anyone looking to improve their vehicle's performance. 
 
 
-### [Speed Engineering 1999-2006 1 3/4" Longtube Headers for Trucks & SUVs](https://serp.ly/amazon/Headers+For+Cars?utm\_term=speed-engineering-1999-2006-1-3-4-longtube-headers-for-trucks-suvs)
+### [Speed Engineering 1999-2006 1 3/4" Longtube Headers for Trucks & SUVs](https://serp.ly/@outrun/amazon/Headers+For+Cars?utm\_term=speed-engineering-1999-2006-1-3-4-longtube-headers-for-trucks-suvs)
 
-<div class="image"><a href="https://serp.ly/amazon/Headers+For+Cars?utm_term=speed-engineering-1999-2006-1-3-4-longtube-headers-for-trucks-suvs"><img alt="speed-engineering-truck-suv-1-3-4-longtube-headers-1999-2007" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-3-4-longtube-headers-1999-2007/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars?utm_term=speed-engineering-1999-2006-1-3-4-longtube-headers-for-trucks-suvs"><img alt="speed-engineering-truck-suv-1-3-4-longtube-headers-1999-2007" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speed-engineering-truck-suv-1-3-4-longtube-headers-1999-2007/h=540,fit=pad,background=black"/></a></div>
 
 As a car enthusiast, I've recently had the pleasure of installing Speed Engineering's 1 3/4" Long Tube Headers on my 2005 Chevrolet Silverado. This upgrade not only adds a sleek touch to the engine but also provides a noticeable boost in power. 
 
@@ -261,7 +261,7 @@ Locating the ideal headers for your automobile can significantly improve its saf
 
 Headers serve as integral components within a car's exhaust system, channeling exhaust fumes away from the engine whilst fostering aerodynamic flow. These come in diverse forms, such as mandrel bent headers, extractor headers, and performance headers, each providing various advantages in terms of power, efficiency, and sound reduction. Equipping your vehicle with aftermarket headers can lead to substantial enhancements in engine performance, fuel economy, and sonic quality. They also allow for customization to align with your car's aesthetic inclinations.
 
-<div><a href="https://serp.ly/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-2/h=540,fit=pad,background=black" alt="Headers-For-Cars-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-2/h=540,fit=pad,background=black" alt="Headers-For-Cars-2" height="540"></a></div>
 
 
 ### Critical Specifications of Headers
@@ -273,7 +273,7 @@ When you're scouring the market for headers, take into account the following par
 
 Compatibility is paramount when selecting headers for your automobile. Verify that the headers you opt for are congruent with your engine's make, model, and year. The installation process for headers might involve professional aid, as it entails cutting and welding. Be prepared to allocate both time and money for perfect installation, guaranteeing that the headers align perfectly, operate optimally, and sustain the safety and reliability of your vehicle.
 
-<div><a href="https://serp.ly/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-3/h=540,fit=pad,background=black" alt="Headers-For-Cars-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-3/h=540,fit=pad,background=black" alt="Headers-For-Cars-3" height="540"></a></div>
 
 
 ### Maintenance and Durability
@@ -283,7 +283,7 @@ Quality headers crafted from robust materials, like stainless steel, should boas
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-4/h=540,fit=pad,background=black" alt="Headers-For-Cars-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-4/h=540,fit=pad,background=black" alt="Headers-For-Cars-4" height="540"></a></div>
 
 
 ### What role do headers play in enhancing car performance?
@@ -297,7 +297,7 @@ Headers come in various materials such as stainless steel, titanium, or aluminum
 
 Headers are often available in high polish, ceramic coating, or anodized finishes. These finishes not only look visually appealing but also serve as a protective layer for the header, preventing oxidation over time. Some manufacturers also offer custom paint options, providing a unique aesthetic touch to the header. 
 
-<div><a href="https://serp.ly/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-5/h=540,fit=pad,background=black" alt="Headers-For-Cars-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-5/h=540,fit=pad,background=black" alt="Headers-For-Cars-5" height="540"></a></div>
 
 
 ### Do headers require any additional modifications to the car?
@@ -309,7 +309,7 @@ Yes, headers require some adjustments or custom fabrication to ensure proper ins
 
 Headers are universally adaptable and generally compatible with most cars. However, it's essential to ensure that the headers you choose are compatible with the make and model of your vehicle. Aftermarket header manufacturers create universal-fit headers that can accommodate different versions of the same car model. Consult with the manufacturer or a knowledgeable mechanic to confirm compatibility and avoid potential issues with installation or performance.
 
-<div><a href="https://serp.ly/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-6/h=540,fit=pad,background=black" alt="Headers-For-Cars-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Headers+For+Cars"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Headers-For-Cars-6/h=540,fit=pad,background=black" alt="Headers-For-Cars-6" height="540"></a></div>
 
 
 ### What is the pricing range for headers for cars?

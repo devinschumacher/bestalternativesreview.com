@@ -14,9 +14,9 @@ Safety Wear: Protecting your workforce with the perfect blend of style, function
 ## Reviews
 
 
-### [JORESTECH 4-in-1 Reversible Safety Jacket & Vest with ANSI Reflective Strips](https://serp.ly/amazon/Safety+Wear?utm\_term=jorestech-4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips)
+### [JORESTECH 4-in-1 Reversible Safety Jacket & Vest with ANSI Reflective Strips](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=jorestech-4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=jorestech-4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips"><img alt="4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips-2xl-by-jorestech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips-2xl-by-jorestech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=jorestech-4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips"><img alt="4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips-2xl-by-jorestech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/4-in-1-reversible-safety-jacket-vest-with-ansi-reflective-strips-2xl-by-jorestech-1/h=540,fit=pad,background=black"/></a></div>
 
 Embrace functionality and style with JORESTECH's 4-in-1 Reversible Safety Jacket & Vest. Combining high-visibility features with cozy insulation, this versatile piece is the perfect companion for safety-conscious individuals. 
 
@@ -25,9 +25,9 @@ The reversible design allows for a smooth transition from workwear to casual att
 So, whether you're working on construction sites or enjoying recreational activities, JORESTECH Safety Division has got you fully covered. 
 
 
-### [High Visibility Hoodie for Safety](https://serp.ly/amazon/Safety+Wear?utm\_term=high-visibility-hoodie-for-safety)
+### [High Visibility Hoodie for Safety](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=high-visibility-hoodie-for-safety)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=high-visibility-hoodie-for-safety"><img alt="safetyshirtz-01010303xxl-basic-high-visibility-hoodie-royal-blue-2xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-01010303xxl-basic-high-visibility-hoodie-royal-blue-2xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=high-visibility-hoodie-for-safety"><img alt="safetyshirtz-01010303xxl-basic-high-visibility-hoodie-royal-blue-2xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-01010303xxl-basic-high-visibility-hoodie-royal-blue-2xl-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the chance to try on the SafetyShirtz Basic High Visibility Hoodie in a royal blue, 2XL size. The first thing that caught my eye was how similar the front and back print designs were. It's a nice touch, ensuring that people can see you from any angle. 
 
@@ -38,9 +38,9 @@ However, bear in mind that this hoodie does tend to run slightly small, so be su
 The fact that the SafetyShirtz hoodie is designed and printed in the USA adds an extra layer of trust and pride. I've received a lot of compliments on my new hoodie and have found it to be an excellent choice for safety wear. 
 
 
-### [Skylinewears Heavy Duty Work Pants with Cordura Reinforcement](https://serp.ly/amazon/Safety+Wear?utm\_term=skylinewears-heavy-duty-work-pants-with-cordura-reinforcement)
+### [Skylinewears Heavy Duty Work Pants with Cordura Reinforcement](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=skylinewears-heavy-duty-work-pants-with-cordura-reinforcement)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=skylinewears-heavy-duty-work-pants-with-cordura-reinforcement"><img alt="skylinewears-mens-cordura-utility-tool-pockets-pants-carpenter-heavy-duty-knee-reinforced-safety-wor-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skylinewears-mens-cordura-utility-tool-pockets-pants-carpenter-heavy-duty-knee-reinforced-safety-wor-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=skylinewears-heavy-duty-work-pants-with-cordura-reinforcement"><img alt="skylinewears-mens-cordura-utility-tool-pockets-pants-carpenter-heavy-duty-knee-reinforced-safety-wor-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skylinewears-mens-cordura-utility-tool-pockets-pants-carpenter-heavy-duty-knee-reinforced-safety-wor-1/h=540,fit=pad,background=black"/></a></div>
 
 The Skylinewears Men's Cordura Utility Tool Pockets Pants offer a durable and comfortable solution for heavy-duty tasks. Made from 100% finest cotton and reinforced with Cordura, these trousers offer both protection and functionality. The Cordura-reinforced knee provides additional reinforcement and support, while the zipper closure ensures a secure fit. 
 
@@ -49,9 +49,9 @@ The pants also feature multiple pockets, including a holster pocket, to carry to
 Overall, these trousers provide a reliable option for those in need of heavy-duty work pants. 
 
 
-### [Men's Waterproof High Visibility ANSI Class 3 Bomber Safety Jacket](https://serp.ly/amazon/Safety+Wear?utm\_term=mens-waterproof-high-visibility-ansi-class-3-bomber-safety-jacket)
+### [Men's Waterproof High Visibility ANSI Class 3 Bomber Safety Jacket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=mens-waterproof-high-visibility-ansi-class-3-bomber-safety-jacket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=mens-waterproof-high-visibility-ansi-class-3-bomber-safety-jacket"><img alt="mens-ansi-class-3-high-visibility-bomber-safety-jacket-waterproof-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-ansi-class-3-high-visibility-bomber-safety-jacket-waterproof-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=mens-waterproof-high-visibility-ansi-class-3-bomber-safety-jacket"><img alt="mens-ansi-class-3-high-visibility-bomber-safety-jacket-waterproof-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-ansi-class-3-high-visibility-bomber-safety-jacket-waterproof-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Men's ANSI Class 3 High Visibility Bomber Safety Jacket, and I must say, it's a game-changer for anyone who needs to stay visible and protected on the job. The vibrant, reflective taping on the front, back, and arms makes me feel like I'm glowing in the dark, ensuring I'm seen by drivers and coworkers alike. 
 
@@ -64,9 +64,9 @@ Another downside was the durability of the jacket. Within just a few months, the
 Overall, the Men's ANSI Class 3 High Visibility Bomber Safety Jacket is a solid choice for those in need of a reliable, high-visibility workwear option. Just remember to keep an eye on the durability, and you'll be good to go. 
 
 
-### [Patriotic Class 3 Safety Hoodie for Cold Weather](https://serp.ly/amazon/Safety+Wear?utm\_term=patriotic-class-3-safety-hoodie-for-cold-weather)
+### [Patriotic Class 3 Safety Hoodie for Cold Weather](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=patriotic-class-3-safety-hoodie-for-cold-weather)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=patriotic-class-3-safety-hoodie-for-cold-weather"><img alt="safetyshirtz-65111303xxxxl-ss360-american-grit-class-3-hoodie-safety-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-65111303xxxxl-ss360-american-grit-class-3-hoodie-safety-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=patriotic-class-3-safety-hoodie-for-cold-weather"><img alt="safetyshirtz-65111303xxxxl-ss360-american-grit-class-3-hoodie-safety-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-65111303xxxxl-ss360-american-grit-class-3-hoodie-safety-1/h=540,fit=pad,background=black"/></a></div>
 
 The SafetyShirtz 65111303XXXXL SS360 American Grit Class 3 Hoodie is a stylish and efficient safety wear option for those seeking both warmth and visibility on the job site. With its top-tier construction featuring a 100% polyester high viz fabric, this hoodie offers the perfect balance of both comfort and durability. 
 
@@ -77,18 +77,18 @@ With a sturdy 13oz construction, the SS360 hoodie delivers exceptional warmth, p
 Overall, the SafetyShirtz 65111303XXXXL SS360 American Grit Class 3 Hoodie is a smart investment for any professional seeking a well-designed, durable, and high-quality safety wear option that is both fashionable and functional. 
 
 
-### [American Grit Safety Shirt for Style and Protection](https://serp.ly/amazon/Safety+Wear?utm\_term=american-grit-safety-shirt-for-style-and-protection)
+### [American Grit Safety Shirt for Style and Protection](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=american-grit-safety-shirt-for-style-and-protection)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=american-grit-safety-shirt-for-style-and-protection"><img alt="safetyshirtz-65111301xxl-ss360-american-grit-class-2-t-shirt-safety-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-65111301xxl-ss360-american-grit-class-2-t-shirt-safety-g-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=american-grit-safety-shirt-for-style-and-protection"><img alt="safetyshirtz-65111301xxl-ss360-american-grit-class-2-t-shirt-safety-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-65111301xxl-ss360-american-grit-class-2-t-shirt-safety-g-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the world of American Grit with the SafetyShirtz SS360, an XL T-Shirt boasting not only a bold patriotic design but also meeting ANSI/ ISEA Class 2 standards. Made from 100% high-quality polyester, this shirt is built to not only stand out on the job site but also provides exceptional ventilation thanks to its ventilated mesh side panels. Perfect for warm weather, the SS360 provides excellent moisture and odor wicking control ensuring comfort and durability. 
 
 With its exclusive American Grit flag design, this shirt is sure to turn heads while keeping you safe in style. 
 
 
-### [Hi-Vis Mesh-Lined Safety Jacket with Secure Chest Pocket](https://serp.ly/amazon/Safety+Wear?utm\_term=hi-vis-mesh-lined-safety-jacket-with-secure-chest-pocket)
+### [Hi-Vis Mesh-Lined Safety Jacket with Secure Chest Pocket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=hi-vis-mesh-lined-safety-jacket-with-secure-chest-pocket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=hi-vis-mesh-lined-safety-jacket-with-secure-chest-pocket"><img alt="walls-outdoor-goods-unisex-hi-vis-ansi-ii-mesh-lined-safety-jacket-yj201vy9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walls-outdoor-goods-unisex-hi-vis-ansi-ii-mesh-lined-safety-jacket-yj201vy9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=hi-vis-mesh-lined-safety-jacket-with-secure-chest-pocket"><img alt="walls-outdoor-goods-unisex-hi-vis-ansi-ii-mesh-lined-safety-jacket-yj201vy9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walls-outdoor-goods-unisex-hi-vis-ansi-ii-mesh-lined-safety-jacket-yj201vy9-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few months, I've been relying on the Walls Outdoor Goods Hi-Vis ANSI II Mesh-Lined Safety Jacket to keep me protected while I'm out and about during late nights or early mornings. The jacket's reflective taping, made from 3M Scotchlite's premium material, has been a game-changer in helping me feel seen and secure in any situation. 
 
@@ -97,18 +97,18 @@ One of the standout features for me has been the hand warmer pockets. On colder 
 As a bonus, the secure chest pocket has been incredibly useful for holding essentials like my phone and keys. Although it's been designed to withstand various weather conditions, I have noticed that the plastic zipper may not be the most durable component of the jacket. Despite this minor shortcoming, I'm still very happy with the overall quality and performance of the Hi-Vis ANSI II Mesh-Lined Safety Jacket. It's been an essential part of my wardrobe, providing both safety and comfort in a stylish package. 
 
 
-### [SMASYS High Visibility Oxford Reflective Safety Jacket](https://serp.ly/amazon/Safety+Wear?utm\_term=smasys-high-visibility-oxford-reflective-safety-jacket)
+### [SMASYS High Visibility Oxford Reflective Safety Jacket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=smasys-high-visibility-oxford-reflective-safety-jacket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=smasys-high-visibility-oxford-reflective-safety-jacket"><img alt="smasys-safety-high-visibility-oxford-double-thick-reflective-jacket-ansi-class-3-construction-protec-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smasys-safety-high-visibility-oxford-double-thick-reflective-jacket-ansi-class-3-construction-protec-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=smasys-high-visibility-oxford-reflective-safety-jacket"><img alt="smasys-safety-high-visibility-oxford-double-thick-reflective-jacket-ansi-class-3-construction-protec-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smasys-safety-high-visibility-oxford-double-thick-reflective-jacket-ansi-class-3-construction-protec-1/h=540,fit=pad,background=black"/></a></div>
 
 The SMASYS Safety High Visibility Oxford Double Thick Reflective Jacket is a versatile choice for those seeking superior protection and visibility on the job. Its robust components, Windproof and Waterproof Oxford material, and 360° High Visibility make it an outstanding option for construction workers, traffic control, and various industrial applications. 
 
 The Jacket's multiple pockets offer flexible storage solutions, catering to diverse needs. It is available in a wide range of sizes, ensuring an optimum fit for everyone. For added convenience, the hat is detachable and stackable, making this jacket a go-to choice for workers across numerous industries. 
 
 
-### [KwikSafety Class 3 Hi-Visibility Waterproof Safety Jacket](https://serp.ly/amazon/Safety+Wear?utm\_term=kwiksafety-class-3-hi-visibility-waterproof-safety-jacket)
+### [KwikSafety Class 3 Hi-Visibility Waterproof Safety Jacket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=kwiksafety-class-3-hi-visibility-waterproof-safety-jacket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=kwiksafety-class-3-hi-visibility-waterproof-safety-jacket"><img alt="kwiksafety-charlotte-nc-agent-softshell-safety-jacket-detachable-hood-class-3-hi-visibility-water-re-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kwiksafety-charlotte-nc-agent-softshell-safety-jacket-detachable-hood-class-3-hi-visibility-water-re-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=kwiksafety-class-3-hi-visibility-waterproof-safety-jacket"><img alt="kwiksafety-charlotte-nc-agent-softshell-safety-jacket-detachable-hood-class-3-hi-visibility-water-re-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kwiksafety-charlotte-nc-agent-softshell-safety-jacket-detachable-hood-class-3-hi-visibility-water-re-1/h=540,fit=pad,background=black"/></a></div>
 
 This Agent Softshell Safety Jacket from KwikSafety in Charlotte, North Carolina, is a fantastic choice for those seeking safety, comfort, and style. As a Class 3 Hi Visibility water-resistant jacket, it boasts both a comfortable, yet protective fit, and a detachable hood that's perfect for facing down the elements. 
 
@@ -119,9 +119,9 @@ Despite these features, users highlight its warm, rain-resistant performance and
 If you're a working professional who needs high visibility rain gear, this safety jacket deserves your consideration. 
 
 
-### [Pyramex RJ3210XL Lime High Visibility Bomber Jacket](https://serp.ly/amazon/Safety+Wear?utm\_term=pyramex-rj3210xl-lime-high-visibility-bomber-jacket)
+### [Pyramex RJ3210XL Lime High Visibility Bomber Jacket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=pyramex-rj3210xl-lime-high-visibility-bomber-jacket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=pyramex-rj3210xl-lime-high-visibility-bomber-jacket"><img alt="pyramex-rj3210xl-hi-vis-lime-safety-bomber-jacket-with-quilted-lining-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pyramex-rj3210xl-hi-vis-lime-safety-bomber-jacket-with-quilted-lining-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=pyramex-rj3210xl-lime-high-visibility-bomber-jacket"><img alt="pyramex-rj3210xl-hi-vis-lime-safety-bomber-jacket-with-quilted-lining-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pyramex-rj3210xl-hi-vis-lime-safety-bomber-jacket-with-quilted-lining-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's always on the go, the Pyramex RJ3210XL Hi Vis Lime Safety Bomber Jacket quickly became my go-to outerwear. Constructed with a polyester material, it's not just a sturdy choice for daily wear, but also for those unexpected weather changes. I love the quilted lining that keeps me cozy, but the attached hood stands out the most. It protects my head and ears during those chilly winter days. 
 
@@ -130,9 +130,9 @@ Silver reflective detailing ensures that I'm seen even in low-light conditions, 
 However, there are a couple of downsides. The mic tabs and pencil pockets could be more conveniently placed, and a few users have commented on the tightness of the jacket, possibly due to the sizing. Despite these minor setbacks, the Pyramex RJ3210XL Hi Vis Lime Safety Bomber Jacket is a reliable, practical, and stylish choice for those who need protection while navigating their daily tasks. 
 
 
-### [JORESTECH 4-in-1 Reversible Safety Vest](https://serp.ly/amazon/Safety+Wear?utm\_term=jorestech-4-in-1-reversible-safety-vest)
+### [JORESTECH 4-in-1 Reversible Safety Vest](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=jorestech-4-in-1-reversible-safety-vest)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=jorestech-4-in-1-reversible-safety-vest"><img alt="jorestech-4-in-1-reversible-safety-jacket-vest-with-removable-sleeves-ansi-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jorestech-4-in-1-reversible-safety-jacket-vest-with-removable-sleeves-ansi-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=jorestech-4-in-1-reversible-safety-vest"><img alt="jorestech-4-in-1-reversible-safety-jacket-vest-with-removable-sleeves-ansi-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jorestech-4-in-1-reversible-safety-jacket-vest-with-removable-sleeves-ansi-s-1/h=540,fit=pad,background=black"/></a></div>
 
 The JORESTECH Safety Division offers a versatile solution for high visibility apparel with its 4-in-1 Reversible Safety Jacket & Vest. This product is both comfortable and practical, suitable for a wide range of outdoor activities and situations where safety is crucial. The jacket features removable sleeves, allowing you to easily transform it into a vest, making it an ideal choice for unpredictable weather. 
 
@@ -141,9 +141,9 @@ With vibrant pink details, the JORESTECH jacket stands out as a stylish yet func
 JORESTECH prides itself on the balance it achieves between practicality, comfort, and the well-being of its customers. The brand's Safety Division line of high visibility apparel is an excellent option for those who need to stay safe and comfortable in various environments. 
 
 
-### [Class 3 Safety Hoodie for Cold Weather](https://serp.ly/amazon/Safety+Wear?utm\_term=class-3-safety-hoodie-for-cold-weather)
+### [Class 3 Safety Hoodie for Cold Weather](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=class-3-safety-hoodie-for-cold-weather)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=class-3-safety-hoodie-for-cold-weather"><img alt="safetyshirtz-45120403l-ss360-basic-class-3-hoodie-safety-green-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-45120403l-ss360-basic-class-3-hoodie-safety-green-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=class-3-safety-hoodie-for-cold-weather"><img alt="safetyshirtz-45120403l-ss360-basic-class-3-hoodie-safety-green-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-45120403l-ss360-basic-class-3-hoodie-safety-green-l-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the SafetyShirtz hoodie, and let me tell you, it exceeded my expectations! As someone who works in a high-risk environment, I was drawn to this Safety Green hoodie that met ANSI/ISEA Class 3 standards. I wasn't disappointed. 
 
@@ -154,18 +154,18 @@ The bonded and elastic reflective material was a game-changer. It made the hoodi
 Overall, I couldn't be happier with my SafetyShirtz hoodie. It's well-made, comfortable, and does a fantastic job of keeping me safe while still looking stylish. I highly recommend this hoodie to anyone who wants to stand out on the jobsite while staying warm and comfortable! 
 
 
-### [High-Visibility Safety Sweatshirt with Thumb Holes](https://serp.ly/amazon/Safety+Wear?utm\_term=high-visibility-safety-sweatshirt-with-thumb-holes)
+### [High-Visibility Safety Sweatshirt with Thumb Holes](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=high-visibility-safety-sweatshirt-with-thumb-holes)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=high-visibility-safety-sweatshirt-with-thumb-holes"><img alt="safetyshirtz-ss360-american-grit-hoody-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-ss360-american-grit-hoody-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=high-visibility-safety-sweatshirt-with-thumb-holes"><img alt="safetyshirtz-ss360-american-grit-hoody-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safetyshirtz-ss360-american-grit-hoody-1/h=540,fit=pad,background=black"/></a></div>
 
 The SafetyShirtz SS360 American Grit Hoody is a warm and comfortable option for those who want a fashionable yet practical hoodie. With an ANSI Class 3 rating, you can be sure that this hoodie will keep you safe and visible on the job site. Its heavy 13oz construction provides exceptional warmth, while the 95% polyester and 5% spandex blend offers a soft and comfortable feel. 
 
 It also features an extended collar for extra warmth and a tapered fit with thumbholes for added convenience. However, be prepared for the hand wash-only instruction and the pull-on closure type. Overall, this safety wear is a great choice for those who value both style and functionality. 
 
 
-### [Two-Tone Bike Patrol Shirt with Moisture-Wicking Zipper Pocket](https://serp.ly/amazon/Safety+Wear?utm\_term=two-tone-bike-patrol-shirt-with-moisture-wicking-zipper-pocket)
+### [Two-Tone Bike Patrol Shirt with Moisture-Wicking Zipper Pocket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=two-tone-bike-patrol-shirt-with-moisture-wicking-zipper-pocket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=two-tone-bike-patrol-shirt-with-moisture-wicking-zipper-pocket"><img alt="first-class-security-100-polyester-two-tone-bike-patrol-shirt-with-zipper-pocket-long-sleeve-lime-gr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/first-class-security-100-polyester-two-tone-bike-patrol-shirt-with-zipper-pocket-long-sleeve-lime-gr-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=two-tone-bike-patrol-shirt-with-moisture-wicking-zipper-pocket"><img alt="first-class-security-100-polyester-two-tone-bike-patrol-shirt-with-zipper-pocket-long-sleeve-lime-gr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/first-class-security-100-polyester-two-tone-bike-patrol-shirt-with-zipper-pocket-long-sleeve-lime-gr-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer who's had the chance to wear this First Class Security Bike Patrol Shirt, I must say it truly lives up to its name. The lime green and black two-toned design gives it a striking appearance, while the 100% polyester fabric ensures that the patrolling officers are both comfortable and visible on the job. It's really impressive how the moisture-wicking material keeps them dry and cool, even during long patrols. 
 
@@ -174,9 +174,9 @@ One standout feature is the zipper pocket under the reflective stripe, perfect f
 Overall, this bike patrol shirt is a solid choice for those who seek safety wear that is both stylish and functional. Its robust build and moisture-wicking properties make it a reliable companion for bike patrol officers nationwide. 
 
 
-### [Cordova Reptyle Waterproof Safety Bib for Class E Workers](https://serp.ly/amazon/Safety+Wear?utm\_term=cordova-reptyle-waterproof-safety-bib-for-class-e-workers)
+### [Cordova Reptyle Waterproof Safety Bib for Class E Workers](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=cordova-reptyle-waterproof-safety-bib-for-class-e-workers)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=cordova-reptyle-waterproof-safety-bib-for-class-e-workers"><img alt="cordova-reptyle-quilted-bib-waterproof-lime-pants-class-e-bib401-3xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cordova-reptyle-quilted-bib-waterproof-lime-pants-class-e-bib401-3xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=cordova-reptyle-waterproof-safety-bib-for-class-e-workers"><img alt="cordova-reptyle-quilted-bib-waterproof-lime-pants-class-e-bib401-3xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cordova-reptyle-quilted-bib-waterproof-lime-pants-class-e-bib401-3xl-1/h=540,fit=pad,background=black"/></a></div>
 
 Kickstart your journey of conquering challenging weather with our CORDOVA Reptyle Bib Pants. These quilted bib pants are not just a fashion statement; they are your reliable companion against the harsh winds and heavy rain. The adjustable suspenders ensure a snug fit, while the snap closures at the ankles provide added convenience. 
 
@@ -185,9 +185,9 @@ The highlight? This pair boasts segmented reflective stripes, adding a layer of 
 A Class E certified piece, it's perfect for a Class 2 or Class 3 jacket ensemble, contributing to your complete Class 3 get-up for optimal visibility and compliance. So, buckle up and get ready to face the elements with the CORDOVA Reptyle Bib Pants - your protective gear for your safety wear. 
 
 
-### [High Visibility Waterproof Safety Pants](https://serp.ly/amazon/Safety+Wear?utm\_term=high-visibility-waterproof-safety-pants)
+### [High Visibility Waterproof Safety Pants](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=high-visibility-waterproof-safety-pants)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=high-visibility-waterproof-safety-pants"><img alt="jorestech-high-visibility-waterproof-safety-overall-pants-with-reflective-stripes-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jorestech-high-visibility-waterproof-safety-overall-pants-with-reflective-stripes-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=high-visibility-waterproof-safety-pants"><img alt="jorestech-high-visibility-waterproof-safety-overall-pants-with-reflective-stripes-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jorestech-high-visibility-waterproof-safety-overall-pants-with-reflective-stripes-m-1/h=540,fit=pad,background=black"/></a></div>
 
 As a construction worker, I know how important it is to stay safe and visible on the job site. That's why I was excited to try the JORESTECH High Visibility Waterproof Safety Overall Pants. The high-vis yellow fabric really stands out, and the reflective stripes on the bottom ensure that I can be seen even in low-light conditions. 
 
@@ -198,9 +198,9 @@ However, there are a couple of downsides. The sizing can be a bit tricky, so mak
 Overall, the JORESTECH High Visibility Waterproof Safety Overall Pants provide a nice balance of safety, visibility, and comfort, making them a great addition to any construction worker's wardrobe. 
 
 
-### [High Visibility Reflective Safety Vest for Men Women](https://serp.ly/amazon/Safety+Wear?utm\_term=high-visibility-reflective-safety-vest-for-men-women)
+### [High Visibility Reflective Safety Vest for Men Women](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=high-visibility-reflective-safety-vest-for-men-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=high-visibility-reflective-safety-vest-for-men-women"><img alt="safety-vest-with-pockets-zipper-for-women-men-high-visibility-reflective-construction-work-vest-meet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-vest-with-pockets-zipper-for-women-men-high-visibility-reflective-construction-work-vest-meet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=high-visibility-reflective-safety-vest-for-men-women"><img alt="safety-vest-with-pockets-zipper-for-women-men-high-visibility-reflective-construction-work-vest-meet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-vest-with-pockets-zipper-for-women-men-high-visibility-reflective-construction-work-vest-meet-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Hi Vis Green Safety Vest a try, and I must say, it's a real game-changer for anyone working in a high-traffic environment. The vibrant green color with silver reflective tape was a sight for sore eyes, making me noticeable to everyone around. Now, the vest itself was quite comfortable, made of a durable 100% polyester mesh that allowed for plenty of airflow. 
 
@@ -211,9 +211,9 @@ However, there was one downside I encountered. While the vest met the ANSI/ISEA 
 All in all, this Hi Vis Vest proved to be a reliable and practical safety gear for those working in high-visibility zones. Its sturdy construction and practical features make it a top choice for anyone who needs to stand out and stay safe in their daily lives. 
 
 
-### [Enforcer Hi-Vis Yellow Class 3 Safety Jacket](https://serp.ly/amazon/Safety+Wear?utm\_term=enforcer-hi-vis-yellow-class-3-safety-jacket)
+### [Enforcer Hi-Vis Yellow Class 3 Safety Jacket](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=enforcer-hi-vis-yellow-class-3-safety-jacket)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=enforcer-hi-vis-yellow-class-3-safety-jacket"><img alt="enforcer-safety-jacket-class-3-ansi-osha-hi-vis-bomber-reflective-ppe-yellow-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/enforcer-safety-jacket-class-3-ansi-osha-hi-vis-bomber-reflective-ppe-yellow-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=enforcer-hi-vis-yellow-class-3-safety-jacket"><img alt="enforcer-safety-jacket-class-3-ansi-osha-hi-vis-bomber-reflective-ppe-yellow-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/enforcer-safety-jacket-class-3-ansi-osha-hi-vis-bomber-reflective-ppe-yellow-large-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience ultimate safety and stand out in style with the Enforcer Safety Jacket Class 3 ANSI OSHA Hi Vis Bomber Reflective PPE. This functional jacket provides 360-degree visibility, ensuring you are easily spotted on the job site, without sacrificing professionalism. 
 
@@ -224,9 +224,9 @@ Its multiple safety jacket pockets add to its practicality, and users rave about
 Overall, the Enforcer Safety Jacket Class 3 provides comfort, style, and uncompromising safety perfect for those needing to blend in and stand out all at once. 
 
 
-### [High Visibility Reflective Safety Jacket for Men - Waterproof and Machine Washable](https://serp.ly/amazon/Safety+Wear?utm\_term=high-visibility-reflective-safety-jacket-for-men-waterproof-and-machine-washable)
+### [High Visibility Reflective Safety Jacket for Men - Waterproof and Machine Washable](https://serp.ly/@outrun/amazon/Safety+Wear?utm\_term=high-visibility-reflective-safety-jacket-for-men-waterproof-and-machine-washable)
 
-<div class="image"><a href="https://serp.ly/amazon/Safety+Wear?utm_term=high-visibility-reflective-safety-jacket-for-men-waterproof-and-machine-washable"><img alt="sksafety-high-visibility-reflective-jackets-for-men-waterproof-safety-jacket-for-men-with-pockets-bl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sksafety-high-visibility-reflective-jackets-for-men-waterproof-safety-jacket-for-men-with-pockets-bl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Safety+Wear?utm_term=high-visibility-reflective-safety-jacket-for-men-waterproof-and-machine-washable"><img alt="sksafety-high-visibility-reflective-jackets-for-men-waterproof-safety-jacket-for-men-with-pockets-bl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sksafety-high-visibility-reflective-jackets-for-men-waterproof-safety-jacket-for-men-with-pockets-bl-1/h=540,fit=pad,background=black"/></a></div>
 
 These high-visibility reflective jackets from SKSAFETY are a top choice for men seeking a waterproof, safety jacket with an attractive design. With a 4.7-star rating and 171 reviews, these jackets offer excellent comfort and water resistance for harsh working environments. The jackets are available in a variety of sizes, ensuring a proper fit. 
 
@@ -246,7 +246,7 @@ When it comes to safety wear, choosing the right gear can make all the differenc
 
 One of the most critical aspects of safety wear is the material it's made of. Ensure the material is durable, resistant to wear and tear, and provides adequate protection against various types of hazards. Some common materials used for safety wear include leather, composite materials, and high-tech fabrics. 
 
-<div><a href="https://serp.ly/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-2/h=540,fit=pad,background=black" alt="Safety-Wear-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-2/h=540,fit=pad,background=black" alt="Safety-Wear-2" height="540"></a></div>
 
 
 ### Fit
@@ -258,7 +258,7 @@ Proper fit is essential for safety wear. The gear should be comfortable and not 
 
 When purchasing safety wear, look for items that have been certified by recognized organizations. This certification ensures that the safety wear meets certain standards and provides adequate protection against various hazards. Some common organizations that issue certifications for safety wear include OSHA, ANSI, and NFPA. 
 
-<div><a href="https://serp.ly/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-3/h=540,fit=pad,background=black" alt="Safety-Wear-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-3/h=540,fit=pad,background=black" alt="Safety-Wear-3" height="540"></a></div>
 
 
 ### Additional Features
@@ -268,7 +268,7 @@ Some safety wear items may come with additional features designed to enhance pro
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-4/h=540,fit=pad,background=black" alt="Safety-Wear-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-4/h=540,fit=pad,background=black" alt="Safety-Wear-4" height="540"></a></div>
 
 
 ### What is the Purpose of Safety Gear?
@@ -284,7 +284,7 @@ Safety gear plays a vital role in shielding people from a myriad of hazards in t
 
 In addition, investing in top-notch safety gear contributes to overall productivity and efficiency. It enables individuals to work or enjoy recreational activities without fretting about their safety, allowing professionals to concentrate on their tasks and enthusiasts to fully immerse themselves in their hobbies without unnecessary risk. 
 
-<div><a href="https://serp.ly/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-5/h=540,fit=pad,background=black" alt="Safety-Wear-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-5/h=540,fit=pad,background=black" alt="Safety-Wear-5" height="540"></a></div>
 
 
 ### What Kind of Safety Gear is Available in the Market?
@@ -300,7 +300,7 @@ To maintain the effectiveness of safety gear, following proper care guidelines i
 
 Moreover, some safety gear, like respirators, require frequent filter replacements to maintain their performance. It is crucial to check the manufacturer's guidelines for specific care and maintenance recommendations. By adhering to these guidelines, individuals can ensure their safety equipment remains effective and reliable, ultimately safeguarding them from potential harm. 
 
-<div><a href="https://serp.ly/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-6/h=540,fit=pad,background=black" alt="Safety-Wear-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Safety+Wear"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Safety-Wear-6/h=540,fit=pad,background=black" alt="Safety-Wear-6" height="540"></a></div>
 
 
 ### How Should I Choose the Right Safety Gear for my Needs?

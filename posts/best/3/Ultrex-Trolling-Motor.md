@@ -14,9 +14,9 @@ Get ready to dive into the world of top-notch trolling motors as we present a co
 ## Reviews
 
 
-### [Minn Kota Ultrex 112 Trolling Motor with i-Pilot Link Bluetooth](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth)
+### [Minn Kota Ultrex 112 Trolling Motor with i-Pilot Link Bluetooth](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-112-msi-ip-trolling-motor-i-pilot-link-bluetooth-36v-112lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-msi-ip-trolling-motor-i-pilot-link-bluetooth-36v-112lb-61/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-112-msi-ip-trolling-motor-i-pilot-link-bluetooth-36v-112lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-msi-ip-trolling-motor-i-pilot-link-bluetooth-36v-112lb-61/h=540,fit=pad,background=black"/></a></div>
 
 As I step onto the Ultrex foot pedal, I can't help but feel the smooth power in my hands. The Spot-Lock feature comes in handy when trying to maintain a prime fishing spot automatically. 
 
@@ -25,9 +25,9 @@ However, the only thing that seemed to compromise this experience was the occasi
 The only downside is the steep price tag. Overall, the Ultrex packs a powerful punch in the world of trolling motors, making me glad I made the investment. 
 
 
-### [Minn Kota Ultrex 112 Trolling Motor: Enhancing Fishing Adventures](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-enhancing-fishing-adventures)
+### [Minn Kota Ultrex 112 Trolling Motor: Enhancing Fishing Adventures](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-enhancing-fishing-adventures)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-enhancing-fishing-adventures"><img alt="minn-kota-ultrex-112-trolling-motor-w-micro-remote-dual-spectrum-chirp-36v-112lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-trolling-motor-w-micro-remote-dual-spectrum-chirp-36v-112lb-46/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-enhancing-fishing-adventures"><img alt="minn-kota-ultrex-112-trolling-motor-w-micro-remote-dual-spectrum-chirp-36v-112lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-trolling-motor-w-micro-remote-dual-spectrum-chirp-36v-112lb-46/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to test out the Minn Kota Ultrex 112 trolling motor and let me tell you, it was a game-changer for my fishing adventures. The one-boat network was a standout feature, seamlessly connecting the trolling motor to my Humminbird fish finder, giving me an unparalleled level of control over my entire boat experience. 
 
@@ -38,9 +38,9 @@ Controlling the Ultrex remotely through my Apple or Android device using the mob
 Navigating safely in any direction thanks to the innovative AutoPilot was a life-saver, allowing me to keep an eye on my battery life with just one click. And with Spot-Lock, I was able to quickly find the most productive fishing spots, no matter the challenge. The advanced GPS system made it a breeze to control my boat's positioning and gave me peace of mind on the water. Overall, the Minn Kota Ultrex 112 trolling motor was an incredible addition to my fishing gear, and I couldn't be happier with my purchase. 
 
 
-### [Innovative Ultrex 112 Trolling Motor with Exclusive Features](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=innovative-ultrex-112-trolling-motor-with-exclusive-features)
+### [Innovative Ultrex 112 Trolling Motor with Exclusive Features](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=innovative-ultrex-112-trolling-motor-with-exclusive-features)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=innovative-ultrex-112-trolling-motor-with-exclusive-features"><img alt="minn-kota-ultrex-112-trolling-motor-w-micro-remote-mega-down-imaging-36v-112lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-trolling-motor-w-micro-remote-mega-down-imaging-36v-112lb-61/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=innovative-ultrex-112-trolling-motor-with-exclusive-features"><img alt="minn-kota-ultrex-112-trolling-motor-w-micro-remote-mega-down-imaging-36v-112lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-trolling-motor-w-micro-remote-mega-down-imaging-36v-112lb-61/h=540,fit=pad,background=black"/></a></div>
 
 This Ultrex Trolling Motor is designed to provide an exceptional fishing experience. Its power steering system ensures smooth and effortless maneuverability, enabling you to navigate with precision even after an entire day on the water. 
 
@@ -51,9 +51,9 @@ Moreover, it is compatible with the One-Boat Network, allowing you to have unpre
 Control the Ultrex directly from your Apple or Android device using the mobile app. This trolling motor is perfect for freshwater use, promising a reliable performance with its 36V voltage, 112 lb thrust, and weedless wedge 2 prop. With a two-year warranty, it's backed by Minn Kota's commitment to quality. 
 
 
-### [Minn Kota 112-US2 Ultrex Trolling Motor with i-Pilot and Bluetooth](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-112-us2-ultrex-trolling-motor-with-i-pilot-and-bluetooth)
+### [Minn Kota 112-US2 Ultrex Trolling Motor with i-Pilot and Bluetooth](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-112-us2-ultrex-trolling-motor-with-i-pilot-and-bluetooth)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-112-us2-ultrex-trolling-motor-with-i-pilot-and-bluetooth"><img alt="minn-kota-ultrex-112-us2-36v-112lb-45-inch-with-i-pilot-and-bluetooth-1368821" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-us2-36v-112lb-45-inch-with-i-pilot-and-bluetooth-1368821/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-112-us2-ultrex-trolling-motor-with-i-pilot-and-bluetooth"><img alt="minn-kota-ultrex-112-us2-36v-112lb-45-inch-with-i-pilot-and-bluetooth-1368821" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-us2-36v-112lb-45-inch-with-i-pilot-and-bluetooth-1368821/h=540,fit=pad,background=black"/></a></div>
 
 As a fishing enthusiast, I recently had the pleasure of trying out the Minn Kota Ultrex. This sleek, powerful motor was a game-changer for me. With features like GPS-powered tools, a Weedless Wedge 2 prop, and Bluetooth technology, it was easy to navigate through the water and avoid obstacles. 
 
@@ -64,9 +64,9 @@ While the Ultrex was packed with amazing features, I did encounter a few minor h
 Overall, I had a great experience with the Minn Kota Ultrex. It was a smooth and powerful ride that made my fishing trips more enjoyable. While there were a few minor setbacks, the pros outweighed the cons, and I would definitely recommend this motor to fellow anglers looking for an upgrade. 
 
 
-### [Minn Kota Ultrex 80 Trolling Motor w/Micro Remote - Mega Down](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down)
+### [Minn Kota Ultrex 80 Trolling Motor w/Micro Remote - Mega Down](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down"><img alt="minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down"><img alt="minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-trolling-motor-w-micro-remote-mega-down-1/h=540,fit=pad,background=black"/></a></div>
 
 Last weekend, I decided to take my fishing gear out for a spin with the new Minn Kota Ultrex 80 trolling motor. As I dropped the boat into the water, my excitement was sky-high, knowing that I had a state-of-the-art piece of gear by my side. The moment I turned on the motor, the ease of controlling it blew me away. The foot pedal was incredibly responsive and comfortable, making it impossible not to feel exhilaration as I navigated through the water. 
 
@@ -77,9 +77,9 @@ On the downside, the steering lock feature took a little getting used to. Howeve
 Overall, using the Minn Kota Ultrex 80 trolling motor was an absolute game-changer. The combination of its innovative features and effortless control made my fishing experience more enjoyable and productive. If you're in the market for a trolling motor, I highly recommend giving this one a try. 
 
 
-### [Advanced GPS Trolling Motor with Spot-Lock and Foot Pedal](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=advanced-gps-trolling-motor-with-spot-lock-and-foot-pedal)
+### [Advanced GPS Trolling Motor with Spot-Lock and Foot Pedal](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=advanced-gps-trolling-motor-with-spot-lock-and-foot-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=advanced-gps-trolling-motor-with-spot-lock-and-foot-pedal"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-53/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=advanced-gps-trolling-motor-with-spot-lock-and-foot-pedal"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-53/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, the Minn Kota Ultrex Quest has truly lived up to its name. It's been my go-to trolling motor for the past few months, and I must say, it's been an absolute game-changer. The first thing that stood out to me was its advanced GPS trolling system. It allowed me to navigate through choppy waters with ease, giving me the precision I needed during my fishing trips. 
 
@@ -88,9 +88,9 @@ The foot pedal was another standout feature. The programmable, heel-toe style ma
 While the Ultrex Quest has been an excellent addition to my fishing gear, it's not without its minor drawbacks. The weedless wedge prop can be a bit tricky to maneuver through dense undergrowth, and the control system can be a bit finicky at times. But overall, the Ultrex Quest has been a reliable, powerful, and versatile trolling motor that I can't imagine life without on the water. 
 
 
-### [Minn Kota i-Pilot Link Ultrex 80/US2 Trolling Motor](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-i-pilot-link-ultrex-80-us2-trolling-motor)
+### [Minn Kota i-Pilot Link Ultrex 80/US2 Trolling Motor](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-i-pilot-link-ultrex-80-us2-trolling-motor)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-i-pilot-link-ultrex-80-us2-trolling-motor"><img alt="minn-kota-ultrex-80-us2-trolling-motor-w-i-pilot-link-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-us2-trolling-motor-w-i-pilot-link-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-i-pilot-link-ultrex-80-us2-trolling-motor"><img alt="minn-kota-ultrex-80-us2-trolling-motor-w-i-pilot-link-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-us2-trolling-motor-w-i-pilot-link-1/h=540,fit=pad,background=black"/></a></div>
 
 Using the Minn Kota Ultrex 80/US2 trolling motor in my daily fishing endeavors, I must say it has been a game-changer. The power steering and ultimate foot pedal design have reduced my steering effort while combating foot fatigue for a smooth and responsive driving experience. It's reassuring to be able to take my foot off the pedal, knowing that the motor will stay locked on the direction I intended. 
 
@@ -103,18 +103,18 @@ The composite shaft's flexibility on impact prevents it from breaking, bending, 
 However, there are a few drawbacks. The device's high price point, while impressive, might put some potential buyers off. Additionally, some users have reported that the app interface can be somewhat challenging to navigate. Overall, I highly recommend the Minn Kota Ultrex 80/US2 trolling motor to fellow fishing enthusiasts seeking a smooth, efficient, and reliable motor for their adventures. 
 
 
-### [Ultrex 80 lb. 45" Trolling Motor with i-Pilot Link & Bluetooth](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-80-lb-45-trolling-motor-with-i-pilot-link-bluetooth)
+### [Ultrex 80 lb. 45" Trolling Motor with i-Pilot Link & Bluetooth](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-80-lb-45-trolling-motor-with-i-pilot-link-bluetooth)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-80-lb-45-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-46/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-80-lb-45-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-46/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate control and comfort on the water with the Minn Kota Ultrex Trolling Motor. This innovative motor boasts advanced technologies like built-in MEGA Side and Down Imaging, i-Pilot Link Remote, Power Steering, GPS spot lock, and more. 
 
 Enjoy unprecedented control from anywhere on the boat and change the way you fish forever. From cable steer control to navigation, the Ultrex has everything you've ever wanted and more. With 17 glowing reviews and a 4.8-star rating, this motor is a must-have for avid fishermen and water enthusiasts alike. 
 
 
-### [Minn Kota Ultrex 80/US2 Trolling Motor: Powerful 80 lb. Motor for Your Boating Adventures](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-80-us2-trolling-motor-powerful-80-lb-motor-for-your-boating-adventures)
+### [Minn Kota Ultrex 80/US2 Trolling Motor: Powerful 80 lb. Motor for Your Boating Adventures](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-80-us2-trolling-motor-powerful-80-lb-motor-for-your-boating-adventures)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-80-us2-trolling-motor-powerful-80-lb-motor-for-your-boating-adventures"><img alt="minn-kota-ultrex-80-us2-trolling-motor-24v-80lb-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-us2-trolling-motor-24v-80lb-53/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-80-us2-trolling-motor-powerful-80-lb-motor-for-your-boating-adventures"><img alt="minn-kota-ultrex-80-us2-trolling-motor-24v-80lb-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-us2-trolling-motor-24v-80lb-53/h=540,fit=pad,background=black"/></a></div>
 
 The Ultrex Trolling Motor is a standout among trolling motors, boasting features that enhance steering and control. The foot pedal provides an effortless glide, minimizing foot fatigue, while the spot-lock feature allows you to leave the pedal off without having to steer the motor head manually. The precision of the steering allows you to keep the motor head pointed in the direction you wanted to go without any recoil or readjustment needed. 
 
@@ -123,36 +123,36 @@ The motor's Lift-Assist Design makes it easy to stow and deploy, reducing the we
 While the Ultrex Trolling Motor might be a bit more expensive than other motors in its class, its functionality and ease of use make it worth the investment. Once you try it, you'll wonder how you ever fished without it. 
 
 
-### [Innovative Fortrex Trolling Motor with Advanced Features](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=innovative-fortrex-trolling-motor-with-advanced-features)
+### [Innovative Fortrex Trolling Motor with Advanced Features](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=innovative-fortrex-trolling-motor-with-advanced-features)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=innovative-fortrex-trolling-motor-with-advanced-features"><img alt="minn-kota-fortrex-trolling-motor-80-us2-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-fortrex-trolling-motor-80-us2-53/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=innovative-fortrex-trolling-motor-with-advanced-features"><img alt="minn-kota-fortrex-trolling-motor-80-us2-53" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-fortrex-trolling-motor-80-us2-53/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Fortrex Trolling Motor is a powerful and durable option for fishing enthusiasts, boasting features like a ruthless anodized aluminum mount, Mono-Arm Design, and 80 pounds of thrust. With a high-impact composite material for unparalleled durability and an indestructible composite shaft at its core, this trolling motor is perfect for navigating through thick weeds or stump fields. 
 
 The Weedless Wedge 2 prop ensures smooth operation with its swept-back flared blades, while the Universal Sonar 2 keeps your transducer and wiring concealed and protected for added convenience. With an ultra-responsive foot pedal and built-in battery life status indicator, the Minn Kota Fortrex delivers seamless control and performance on the water. 
 
 
-### [Minn Kota Ultrex Quest 90/115 Trolling Motor with Micro Remote](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-90-115-trolling-motor-with-micro-remote)
+### [Minn Kota Ultrex Quest 90/115 Trolling Motor with Micro Remote](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-90-115-trolling-motor-with-micro-remote)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-90-115-trolling-motor-with-micro-remote"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-90-115-trolling-motor-with-micro-remote"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-1/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Ultrex Quest 90/115 Trolling Motor boasts cutting-edge features that every serious angler would appreciate. It's designed to handle even the toughest conditions, thanks to its re-engineered motor and mount, coupled with advanced GPS functionality. 
 
 What sets it apart is the programmable foot pedal, wireless remote, and an eco mode that extends battery life. The motor's powerful performance, combined with a three-year warranty, makes it a worthy investment for boaters seeking a reliable and efficient trolling motor. However, those who prefer a bowguard and autostow/deploy feature may need to look elsewhere. 
 
 
-### [Minn Kota Ultrex 45in Trolling Motor with i-Pilot Link MDI](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-45in-trolling-motor-with-i-pilot-link-mdi)
+### [Minn Kota Ultrex 45in Trolling Motor with i-Pilot Link MDI](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-45in-trolling-motor-with-i-pilot-link-mdi)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-45in-trolling-motor-with-i-pilot-link-mdi"><img alt="minn-kota-ultrex-trolling-motor-45in-80lb-i-pilot-link-mdi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-trolling-motor-45in-80lb-i-pilot-link-mdi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-45in-trolling-motor-with-i-pilot-link-mdi"><img alt="minn-kota-ultrex-trolling-motor-45in-80lb-i-pilot-link-mdi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-trolling-motor-45in-80lb-i-pilot-link-mdi-1/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Ultrex trolling motor, boasting an 80lb motor and built-in MEGA Down Imaging technology, is a powerful tool for those seeking clear and unobstructed underwater visibility. The i-Pilot Link remote provides easy operation, while the USB DC Adapter ensures smooth charging. 
 
 Weighing at just 83 oz, this sleek motor promises seamless installation and an impressive balance of power and efficiency. With its Spot-Lock feature, users can enjoy accurate automatic GPS anchoring, perfect for those in pursuit of the perfect fishing spot. 
 
 
-### [Minn Kota Ultrex Quest 90/115 Trolling Motor: 24/36V Dual Spectrum CHIRP - Micro Remote - 60](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-90-115-trolling-motor-24-36v-dual-spectrum-chirp-micro-remote-60)
+### [Minn Kota Ultrex Quest 90/115 Trolling Motor: 24/36V Dual Spectrum CHIRP - Micro Remote - 60](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-90-115-trolling-motor-24-36v-dual-spectrum-chirp-micro-remote-60)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-90-115-trolling-motor-24-36v-dual-spectrum-chirp-micro-remote-60"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-61/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-90-115-trolling-motor-24-36v-dual-spectrum-chirp-micro-remote-60"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-micro-remote-dual-spectrum-chirp-24-36v-90-115lbs-61/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Minn Kota Ultrex Quest 90/115 Trolling Motor with Micro Remote. As someone who spends a lot of time on the water, I was excited to see how this motor would perform. 
 
@@ -163,9 +163,9 @@ But what really blew me away was the programmable foot pedal. It made the experi
 There were a few minor drawbacks, such as the lack of power trim and i-Pilot link GPS, but overall, the Ultrex Quest 90/115 Trolling Motor with Micro Remote exceeded my expectations. It's a versatile, powerful, and easy-to-use tool for anyone looking to take their fishing experience to the next level. 
 
 
-### [Ultrex Trolling Motor with i-Pilot Link & Bluetooth - Minn Kota 24V 80LB 60](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-trolling-motor-with-i-pilot-link-bluetooth-minn-kota-24v-80lb-60)
+### [Ultrex Trolling Motor with i-Pilot Link & Bluetooth - Minn Kota 24V 80LB 60](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-trolling-motor-with-i-pilot-link-bluetooth-minn-kota-24v-80lb-60)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-trolling-motor-with-i-pilot-link-bluetooth-minn-kota-24v-80lb-60"><img alt="minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-61/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-trolling-motor-with-i-pilot-link-bluetooth-minn-kota-24v-80lb-60"><img alt="minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-80-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-24v-80lb-61/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate trolling motor with the Minn Kota Ultrex 80 - a game-changer that's sure to elevate your fishing adventures. This innovative motor boasts features like Power Steering and GPS-powered Spot-Lock, allowing you to stay anchored at your favorite fishing spots with ease. 
 
@@ -176,18 +176,18 @@ Weighing in at just 8 pounds, this motor is both lightweight and powerful, featu
 While some users have reported minor technical issues, overall the Minn Kota Ultrex 80 receives high praise for its advanced features, responsive steering, and ease of use. Whether you're a seasoned angler or just starting your fishing journey, this trolling motor is sure to make a significant impact on your experience on the water. 
 
 
-### [Minn Kota Ultrex Quest Mega Trolling Motor with Remote](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-mega-trolling-motor-with-remote)
+### [Minn Kota Ultrex Quest Mega Trolling Motor with Remote](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-quest-mega-trolling-motor-with-remote)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-mega-trolling-motor-with-remote"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-remote-mega-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-remote-mega-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-quest-mega-trolling-motor-with-remote"><img alt="minn-kota-ultrex-quest-90-115-trolling-motor-w-remote-mega-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-quest-90-115-trolling-motor-w-remote-mega-1/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Ultrex Quest 90/115 Trolling Motor w/Remote - Mega boasts the QUEST Series, which combines responsive, intuitive steering with GPS-powered automatic boat control. This motor is ideal for anglers seeking the best gear even in challenging conditions. 
 
 Equipped with a programmable foot pedal, re-engineered motor and mount, enhanced GPS functionality, and an eco mode to extend battery life, this trolling motor truly stands out. 
 
 
-### [Minn Kota Ultrex 112/US2 Remanufactured i-Pilot Trolling Motor with Bluetooth](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-us2-remanufactured-i-pilot-trolling-motor-with-bluetooth)
+### [Minn Kota Ultrex 112/US2 Remanufactured i-Pilot Trolling Motor with Bluetooth](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-us2-remanufactured-i-pilot-trolling-motor-with-bluetooth)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-us2-remanufactured-i-pilot-trolling-motor-with-bluetooth"><img alt="minn-kota-ultrex-112-us2-trolling-motor-w-i-pilot-bluetooth-36v-112lb-45-inch-remanufactured-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-us2-trolling-motor-w-i-pilot-bluetooth-36v-112lb-45-inch-remanufactured-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-us2-remanufactured-i-pilot-trolling-motor-with-bluetooth"><img alt="minn-kota-ultrex-112-us2-trolling-motor-w-i-pilot-bluetooth-36v-112lb-45-inch-remanufactured-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-us2-trolling-motor-w-i-pilot-bluetooth-36v-112lb-45-inch-remanufactured-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready for the smoothest, most responsive fishing experience with Minn Kota's Ultrex 112/US2 Trolling Motor. Equipped with i-Pilot and Bluetooth technology, this motor offers ultimate control with remote and foot pedal options. Its ultra-responsive Power Steering provides GPS-powered tools like Spot-Lock for unparalleled precision. 
 
@@ -196,18 +196,18 @@ The remanufactured motor features a 45-inch shaft length, ideal for any fishing 
 With a rating of 5.0, the Ultrex Trolling Motor is praised for its superb customer service and exceptional performance. 
 
 
-### [Ultrex Trolling Motor with Advanced Power Steering and i-Pilot Link](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-trolling-motor-with-advanced-power-steering-and-i-pilot-link)
+### [Ultrex Trolling Motor with Advanced Power Steering and i-Pilot Link](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=ultrex-trolling-motor-with-advanced-power-steering-and-i-pilot-link)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-trolling-motor-with-advanced-power-steering-and-i-pilot-link"><img alt="minn-kota-ultrex-112-mdi-ip-trolling-motor-w-i-pilot-link-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-mdi-ip-trolling-motor-w-i-pilot-link-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=ultrex-trolling-motor-with-advanced-power-steering-and-i-pilot-link"><img alt="minn-kota-ultrex-112-mdi-ip-trolling-motor-w-i-pilot-link-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-mdi-ip-trolling-motor-w-i-pilot-link-1/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Ultrex 112/MDI/iPilot Link trolling motor offers smooth and responsive performance with power steering and Spot-Lock technology. Its i-Pilot Link GPS system allows for dead-on accurate automatic GPS anchoring, while the built-in Humminbird MEGA Down Imaging technology provides clear images without the need for extra rigging. The motor also features a conveniently placed foot pedal for all-day comfort, and a 45-inch shaft for excellent thrust. 
 
 Although some users have reported issues with durability and certain components, overall, the Ultrex 112/MDI/iPilot Link trolling motor is a solid choice for a reliable and feature-packed fishing experience. 
 
 
-### [Minn Kota Ultrex 112 Trolling Motor with i-Pilot Link & Bluetooth](https://serp.ly/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth)
+### [Minn Kota Ultrex 112 Trolling Motor with i-Pilot Link & Bluetooth](https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm\_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth)
 
-<div class="image"><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-112-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-36v-112lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-36v-112lb-46/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor?utm_term=minn-kota-ultrex-112-trolling-motor-with-i-pilot-link-bluetooth"><img alt="minn-kota-ultrex-112-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-36v-112lb-46" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/minn-kota-ultrex-112-msi-ip-trolling-motor-w-i-pilot-link-bluetooth-36v-112lb-46/h=540,fit=pad,background=black"/></a></div>
 
 The Minn Kota Ultrex Trolling Motor boasts incredible control and responsiveness, designed specifically for fishermen to make the most of their experience on the water. This motor offers a range of innovative features such as i-Pilot Link and Bluetooth for ultimate convenience. 
 
@@ -226,7 +226,7 @@ Welcome to the buyer's guide for Ultrex trolling motors. In this section, we'll 
 When looking for an Ultrex trolling motor, consider the following features that can impact your overall experience and performance on the water. We've highlighted a few key areas for you to pay attention to: 
 1) Power, 2) Control, 3) Shaft Length, and 4) Materials Used Constructively. Each aspect plays an integral role in the motor's performance, durability, and ease of use. 
 
-<div><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-2/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-2/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-2" height="540"></a></div>
 
 
 ### Power
@@ -238,7 +238,7 @@ One of the primary factors to consider when purchasing an Ultrex trolling motor 
 
 The control features of an Ultrex trolling motor can significantly improve your boating experience. Look for features such as 8- or 10-speed forward and reverse control, digital speed control, and shift-on-the-fly technology which allows you to change gears easily without having to reverse while doing so. These features enhance the motor's performance and ensure a smooth, safe, and efficient ride. 
 
-<div><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-3/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-3/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-3" height="540"></a></div>
 
 
 ### Shaft Length
@@ -248,7 +248,7 @@ The shaft length of the Ultrex trolling motor plays an important role in determi
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-4/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-4/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-4" height="540"></a></div>
 
 
 ### What is the Mightyfish Trolling Motor?
@@ -264,7 +264,7 @@ The Mightyfish Trolling Motor stands out from the competition in several ways, s
 
 Additionally, the Mightyfish Trolling Motor comes with a variety of features that cater to the needs of anglers. These include multiple speed options, autopilot mode, and a built-in GPS system, making it easy to use and highly versatile. Overall, the Mightyfish Trolling Motor provides unparalleled performance and convenience, making it a top choice for anglers. 
 
-<div><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-5/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-5/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-5" height="540"></a></div>
 
 
 ### What is the warranty for the Mightyfish Trolling Motor?
@@ -280,7 +280,7 @@ Yes, the Mightyfish Trolling Motor is designed to be used in both freshwater and
 
 Moreover, the Mightyfish Trolling Motor is built with corrosion-resistant materials, which further protects it from the damaging effects of saltwater. This ensures that the trolling motor maintains its performance and reliability even when used in saltwater environments for extended periods of time. 
 
-<div><a href="https://serp.ly/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-6/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Ultrex+Trolling+Motor"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ultrex-Trolling-Motor-6/h=540,fit=pad,background=black" alt="Ultrex-Trolling-Motor-6" height="540"></a></div>
 
 
 ### How do I install the Mightyfish Trolling Motor on my boat?

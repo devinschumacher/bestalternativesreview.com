@@ -14,9 +14,9 @@ Say goodbye to unsightly root lines and hello to beautiful, vibrant hair. In thi
 ## Reviews
 
 
-### [Dark-Brown Root Touch Up Spray for Brush-on Application](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=dark-brown-root-touch-up-spray-for-brush-on-application)
+### [Dark-Brown Root Touch Up Spray for Brush-on Application](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=dark-brown-root-touch-up-spray-for-brush-on-application)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=dark-brown-root-touch-up-spray-for-brush-on-application"><img alt="salon-on-5th-ave-brush-on-root-concealer-dark-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-on-5th-ave-brush-on-root-concealer-dark-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=dark-brown-root-touch-up-spray-for-brush-on-application"><img alt="salon-on-5th-ave-brush-on-root-concealer-dark-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-on-5th-ave-brush-on-root-concealer-dark-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 A few weeks ago, I decided to try the Salon on 5th Ave Brush on Root Concealer in Dark-Brown. I was intrigued by the quick and easy application, as well as the long-lasting color the brand promised. 
 
@@ -29,9 +29,9 @@ However, I must mention one downside - the brush is not the best quality. It did
 Overall, I would recommend the Salon on 5th Ave Brush on Root Concealer Dark-Brown. It's quick, easy, and provides the perfect amount of coverage for those in need of a temporary root touch-up. Just make sure to use a good-quality brush for the best results. 
 
 
-### [Agadir 2-Ounce Root Touch Up Spray for Gray Coverage and All Hair Types](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=agadir-2-ounce-root-touch-up-spray-for-gray-coverage-and-all-hair-types)
+### [Agadir 2-Ounce Root Touch Up Spray for Gray Coverage and All Hair Types](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=agadir-2-ounce-root-touch-up-spray-for-gray-coverage-and-all-hair-types)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=agadir-2-ounce-root-touch-up-spray-for-gray-coverage-and-all-hair-types"><img alt="agadir-2-ounce-root-concealer-touch-up-spray-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/agadir-2-ounce-root-concealer-touch-up-spray-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=agadir-2-ounce-root-touch-up-spray-for-gray-coverage-and-all-hair-types"><img alt="agadir-2-ounce-root-concealer-touch-up-spray-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/agadir-2-ounce-root-concealer-touch-up-spray-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the pleasure of trying the Agadir Root Concealer Touch Up Spray recently, and it quickly became my go-to for effortless hair touch-ups. The spray is incredibly versatile, working on all hair types and even synthetic ones. It's reassuring to know that it's sweat and water-resistant, making it perfect for those adventurous days. 
 
@@ -42,18 +42,18 @@ While the tiny nozzle might seem insignificant at first, it offers more control 
 Overall, the Agadir Root Concealer Touch Up Spray is a must-have product for anyone looking for a reliable and easy-to-use solution to cover gray and enhance their hair's natural beauty. The satisfaction of my fellow reviewers is a testament to its effectiveness and ease of use, making it a top choice for anyone seeking an exceptional hair care product. 
 
 
-### [Root Concealer for Women - Light Brown Shade 1.5 oz](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=root-concealer-for-women-light-brown-shade-1-5-oz)
+### [Root Concealer for Women - Light Brown Shade 1.5 oz](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=root-concealer-for-women-light-brown-shade-1-5-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=root-concealer-for-women-light-brown-shade-1-5-oz"><img alt="gray-away-womens-root-concealer-light-brown-1-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gray-away-womens-root-concealer-light-brown-1-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=root-concealer-for-women-light-brown-shade-1-5-oz"><img alt="gray-away-womens-root-concealer-light-brown-1-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gray-away-womens-root-concealer-light-brown-1-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Gray Away Women's Root Concealer Light Brown, a game-changer in hair care, offering a fast and easy solution to cover those pesky gray roots in seconds. Embrace the self-adjusting color technology that seamlessly blends to match any hair color, creating a natural, soft feel. Its unique pinpoint applicator makes targeted gray root coverage effortless, while its transfer and rain-resistant feature ensures all-day staying power. 
 
 Free of peroxide, parabens, ammonia, or harsh chemicals, this product promises safety for your scalp as well as a long-lasting, color-rich finish. With 40 applications, you'll have plenty to touch up in between salon visits. 
 
 
-### [Everpro Gray Away: Non-Permanent Root Touch Up Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=everpro-gray-away-non-permanent-root-touch-up-spray)
+### [Everpro Gray Away: Non-Permanent Root Touch Up Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=everpro-gray-away-non-permanent-root-touch-up-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=everpro-gray-away-non-permanent-root-touch-up-spray"><img alt="everpro-gray-away-temporary-root-concealer-black-dark-brown-1-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/everpro-gray-away-temporary-root-concealer-black-dark-brown-1-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=everpro-gray-away-non-permanent-root-touch-up-spray"><img alt="everpro-gray-away-temporary-root-concealer-black-dark-brown-1-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/everpro-gray-away-temporary-root-concealer-black-dark-brown-1-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Everpro Gray Away Temporary Root Concealer is a must-have for anyone looking to temporarily cover up those pesky gray roots. With its precision applicator, you can easily touch up your roots on-the-go, extending the life of your color between salon visits or at-home hair coloring. The lightweight spray not only lasts till you shampoo your hair but also boasts being transfer, sweat, and rain resistant. 
 
@@ -64,9 +64,9 @@ That being said, some users have experienced a little bit of difficulty with the
 Overall, the Everpro Gray Away Temporary Root Concealer is an excellent choice for those needing a quick fix for their gray roots. Its blendable, moisturizing formula and easy application make it a popular pick. Just remember to practice with caution when using the applicator and to keep it away from your face. 
 
 
-### [L'ange Root Touch Up Spray: Easy Coverage for Gray & Regrowth, Quick Dry Formula](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=lange-root-touch-up-spray-easy-coverage-for-gray-regrowth-quick-dry-formula)
+### [L'ange Root Touch Up Spray: Easy Coverage for Gray & Regrowth, Quick Dry Formula](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=lange-root-touch-up-spray-easy-coverage-for-gray-regrowth-quick-dry-formula)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=lange-root-touch-up-spray-easy-coverage-for-gray-regrowth-quick-dry-formula"><img alt="root-touch-up-spray-blonde-travel-friendly-spray-covers-gray-root-regrowth-quick-dry-formula-lange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/root-touch-up-spray-blonde-travel-friendly-spray-covers-gray-root-regrowth-quick-dry-formula-lange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=lange-root-touch-up-spray-easy-coverage-for-gray-regrowth-quick-dry-formula"><img alt="root-touch-up-spray-blonde-travel-friendly-spray-covers-gray-root-regrowth-quick-dry-formula-lange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/root-touch-up-spray-blonde-travel-friendly-spray-covers-gray-root-regrowth-quick-dry-formula-lange-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using this root touch-up spray for a few weeks now, and I have to say, it's been a bit of a mixed experience. The good news is that it's incredibly handy to have on the go when you need a quick fix for those pesky gray hairs. And the spray itself is very fine and evenly distributed, making it easy to apply to specific areas. 
 
@@ -75,18 +75,18 @@ However, I've found that it can sometimes be a bit too heavy-handed and leave my
 Overall, if you're someone who needs a travel-friendly solution for covering up gray roots, this product might just do the trick. But it's definitely not a long-term solution, and I'd recommend using a different product if you're looking for something more permanent. 
 
 
-### [Mane Hair Volumizing Root Touch Up Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=mane-hair-volumizing-root-touch-up-spray)
+### [Mane Hair Volumizing Root Touch Up Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=mane-hair-volumizing-root-touch-up-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=mane-hair-volumizing-root-touch-up-spray"><img alt="mane-hair-thickening-spray-and-root-concealer-black-200ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mane-hair-thickening-spray-and-root-concealer-black-200ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=mane-hair-volumizing-root-touch-up-spray"><img alt="mane-hair-thickening-spray-and-root-concealer-black-200ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mane-hair-thickening-spray-and-root-concealer-black-200ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Mane Hair Thickening Spray and Root Concealer offers a quick, easy solution for those struggling with thinning hair. Suitable for both men and women, this dual-action product instantly adds volume and blends seamlessly with your locks. With the ability to disguise unwanted grays and roots between dyes, Mane Hair Thickening Spray can also be used as a root concealer. 
 
 Available in 12 natural shades, customers can find the perfect match for their needs. Although some users have noticed a slight learning curve when applying the product, overall it is well-received and praised for its ability to make a noticeable difference in the volume and appearance of thin hair. 
 
 
-### [Alfaparf Invisible Root Touch Up Spray: Effortless Root Coloring Concealment](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=alfaparf-invisible-root-touch-up-spray-effortless-root-coloring-concealment)
+### [Alfaparf Invisible Root Touch Up Spray: Effortless Root Coloring Concealment](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=alfaparf-invisible-root-touch-up-spray-effortless-root-coloring-concealment)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=alfaparf-invisible-root-touch-up-spray-effortless-root-coloring-concealment"><img alt="alfaparf-invisible-root-touch-up-spray-red-copper-2-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfaparf-invisible-root-touch-up-spray-red-copper-2-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=alfaparf-invisible-root-touch-up-spray-effortless-root-coloring-concealment"><img alt="alfaparf-invisible-root-touch-up-spray-red-copper-2-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfaparf-invisible-root-touch-up-spray-red-copper-2-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Alfaparf Invisible Root Touch Up Spray in Red Copper is the perfect solution for temporary root coverage between salon visits. With its 2.5-ounce capacity and compact design, this spray is easy to use and precise, featuring a built-in precision brush. The root touch-up powder offers a practical and easy application experience, allowing users to cover their roots and achieve a natural look. 
 
@@ -95,9 +95,9 @@ Customers love the quick shipping and the brand's commitment to quality. However
 Overall, the Alfaparf Invisible Root Touch Up Spray is a popular choice for those seeking a temporary root fix. 
 
 
-### [Salon in A Bottle: Root Touch Up Spray in Auburn-Red](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=salon-in-a-bottle-root-touch-up-spray-in-auburn-red)
+### [Salon in A Bottle: Root Touch Up Spray in Auburn-Red](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=salon-in-a-bottle-root-touch-up-spray-in-auburn-red)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=salon-in-a-bottle-root-touch-up-spray-in-auburn-red"><img alt="salon-in-a-bottle-root-touch-up-spray-red-auburn-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-in-a-bottle-root-touch-up-spray-red-auburn-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=salon-in-a-bottle-root-touch-up-spray-in-auburn-red"><img alt="salon-in-a-bottle-root-touch-up-spray-red-auburn-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-in-a-bottle-root-touch-up-spray-red-auburn-1/h=540,fit=pad,background=black"/></a></div>
 
 This root touch-up spray is a game-changer for those who want to cover their gray roots without heading to the salon. The product, named "Salon in a Bottle, " offers a professional-quality, non-permanent option that can blend seamlessly with different hair colors. The unique pinpoint applicator makes it easy to apply the product directly to the gray roots, providing instant coverage in just a few seconds. The natural mineral formula ensures a soft and natural feel, without weighing down the hair. 
 
@@ -106,9 +106,9 @@ One of the most appealing aspects of this product is its versatility. It can wor
 While the product has received mostly positive reviews, some users have expressed concerns about the coverage not being as effective as they hoped. Nevertheless, the majority of users have praised the product for its ease of use, natural finish, and ability to save time and money between salon visits. Overall, "Salon in a Bottle" is a convenient and effective tool for those who want to maintain their hair color without the frequent salon visits. 
 
 
-### [Root Blender Root Concealer Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=root-blender-root-concealer-spray)
+### [Root Blender Root Concealer Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=root-blender-root-concealer-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=root-blender-root-concealer-spray"><img alt="root-blender-root-concealer-touch-up-spray-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/root-blender-root-concealer-touch-up-spray-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=root-blender-root-concealer-spray"><img alt="root-blender-root-concealer-touch-up-spray-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/root-blender-root-concealer-touch-up-spray-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Pure Blends Root Blender Concealer & Touch Up Spray: The ultimate root concealer for a seamless, revitalized hair color. This mineral-based spray efficiently covers regrowth roots of various colors and conceals thinning spots. It's perfect for blending lighter or darker hair colors, making your roots look like your desired hue. 
 
@@ -117,9 +117,9 @@ Shake, spray, and blend for impressive results. Although it's free of sulfate, p
 To ensure safety, perform a skin allergy test before use. 
 
 
-### [Instant Root Touch-Up for Gray-Free Hair](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=instant-root-touch-up-for-gray-free-hair)
+### [Instant Root Touch-Up for Gray-Free Hair](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=instant-root-touch-up-for-gray-free-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=instant-root-touch-up-for-gray-free-hair"><img alt="clairol-root-touch-up-hair-color-temporary-dark-brown-2-1-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clairol-root-touch-up-hair-color-temporary-dark-brown-2-1-g-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=instant-root-touch-up-for-gray-free-hair"><img alt="clairol-root-touch-up-hair-color-temporary-dark-brown-2-1-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clairol-root-touch-up-hair-color-temporary-dark-brown-2-1-g-1/h=540,fit=pad,background=black"/></a></div>
 
 As a writer, I was excited to give the Clairol Root Touch-Up Hair Color a try in a more relaxed setting. It wasn't long before this product brightened up my life, as well as my hair. The product comes in a convenient, easy-to-use applicator brush that allows you to apply the powder precisely where it's needed. As a result, I was able to cover those pesky grays and roots with minimal effort, letting me enjoy a fuller head of hair with ease. 
 
@@ -130,18 +130,18 @@ However, like with any product, there were a couple of drawbacks. The applicator
 The ease of application, lack of mess, and the fact that the color washes out easily made this product an impressive choice for anyone looking to touch up their roots or conceal grays. Though I might not reach for it over a dye job for a permanent change, it's a great option for anyone looking to freshen up their hair on-the-go. Give it a try and see the difference for yourself. 
 
 
-### [AGEbeautiful Root Touch Up Black Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=agebeautiful-root-touch-up-black-spray)
+### [AGEbeautiful Root Touch Up Black Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=agebeautiful-root-touch-up-black-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=agebeautiful-root-touch-up-black-spray"><img alt="agebeautiful-root-touch-up-temporary-haircolor-spray-black-2-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/agebeautiful-root-touch-up-temporary-haircolor-spray-black-2-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=agebeautiful-root-touch-up-black-spray"><img alt="agebeautiful-root-touch-up-temporary-haircolor-spray-black-2-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/agebeautiful-root-touch-up-temporary-haircolor-spray-black-2-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the AGEbeautiful Root Touch Up Temporary Haircolor Spray, a convenient solution for those looking to quickly cover up gray roots at home. This black spray not only gives a natural-like luster to your hair but also helps conceal thinning patches, resulting in a full and beautiful appearance. 
 
 Its easy-to-use spray dispenser allows for precise and convenient application, ensuring a mess-free experience. While some users may find the price to be a bit steep, the water, sweat, and stain-resistant formula lasts until your next shampoo. Perfect for a quick touch-up or complementing your existing hair color, the Root Touch Up Spray is a must-try for those seeking a hassle-free solution for their hair needs. 
 
 
-### [Salon-Quality Root Touch Up Spray for Grey and Off Color Hair](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=salon-quality-root-touch-up-spray-for-grey-and-off-color-hair)
+### [Salon-Quality Root Touch Up Spray for Grey and Off Color Hair](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=salon-quality-root-touch-up-spray-for-grey-and-off-color-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=salon-quality-root-touch-up-spray-for-grey-and-off-color-hair"><img alt="got-black-root-concealer-spray-2-0-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/got-black-root-concealer-spray-2-0-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=salon-quality-root-touch-up-spray-for-grey-and-off-color-hair"><img alt="got-black-root-concealer-spray-2-0-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/got-black-root-concealer-spray-2-0-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Got Black Root Concealer Spray is a salon-quality root concealer that works well for all hair types and textures. With a unique dual applicator, it allows for both broad coverage and pinpoint application without overspray, ensuring easy and precise use. 
 
@@ -150,18 +150,18 @@ Ideal for use at home or on the go, this tinted hair spray quickly provides cove
 Don't settle for less – experience the best with Got Roots Concealer Spray. 
 
 
-### [Tresemme Root Touch Up Spray - Dark Blonde for Quick, Temporary Hair Color](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=tresemme-root-touch-up-spray-dark-blonde-for-quick-temporary-hair-color)
+### [Tresemme Root Touch Up Spray - Dark Blonde for Quick, Temporary Hair Color](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=tresemme-root-touch-up-spray-dark-blonde-for-quick-temporary-hair-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=tresemme-root-touch-up-spray-dark-blonde-for-quick-temporary-hair-color"><img alt="tresemme-root-touch-up-temporary-hair-color-spray-dark-blonde-2-5oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresemme-root-touch-up-temporary-hair-color-spray-dark-blonde-2-5oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=tresemme-root-touch-up-spray-dark-blonde-for-quick-temporary-hair-color"><img alt="tresemme-root-touch-up-temporary-hair-color-spray-dark-blonde-2-5oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tresemme-root-touch-up-temporary-hair-color-spray-dark-blonde-2-5oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The TRESemmé Root Touch-Up is a perfect solution for those seeking a quick and convenient way to hide their unwanted gray roots. With its gentle ammonia-free formulation, this temporary hair color spray offers a lightweight solution for a touch-up whenever you need it. The easy-to-use spray nozzle ensures an even spread and application, making it a go-to for any hair coloring emergency. 
 
 At 2.5oz, it's a convenient size to take anywhere for a hassle-free touch-up on the go. Whether you're attending an important event or simply seeking a temporary solution until your next salon visit, the TRESemmé Root Touch-Up has got you covered. 
 
 
-### [Sleek & Effective Root Touch-Up Spray for Natural-Looking Hair Colors](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=sleek-effective-root-touch-up-spray-for-natural-looking-hair-colors)
+### [Sleek & Effective Root Touch-Up Spray for Natural-Looking Hair Colors](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=sleek-effective-root-touch-up-spray-for-natural-looking-hair-colors)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=sleek-effective-root-touch-up-spray-for-natural-looking-hair-colors"><img alt="oribe-airbrush-root-touch-up-spray-1-8-oz-light-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oribe-airbrush-root-touch-up-spray-1-8-oz-light-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=sleek-effective-root-touch-up-spray-for-natural-looking-hair-colors"><img alt="oribe-airbrush-root-touch-up-spray-1-8-oz-light-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oribe-airbrush-root-touch-up-spray-1-8-oz-light-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 The Oribe Root Touch-Up Spray is a game-changer for those looking to conceal unwanted grey roots or hair regrowth without visiting the salon. With its natural mineral colorants and UV absorber, this light brown formula offers a natural-looking coverage that blends effortlessly with hair. 
 
@@ -170,18 +170,18 @@ The 1.8 oz bottle is compact and easy to use, while the fine mist spray provides
 Ideal for all ages, this touch-up spray offers an exceptional salon quality hair color in the comfort of one's own home, making it a smart and non-messy solution for in-between salon visits. 
 
 
-### [Salon in a Bottle Dark Blonde Root Touch-Up Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=salon-in-a-bottle-dark-blonde-root-touch-up-spray)
+### [Salon in a Bottle Dark Blonde Root Touch-Up Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=salon-in-a-bottle-dark-blonde-root-touch-up-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=salon-in-a-bottle-dark-blonde-root-touch-up-spray"><img alt="salon-in-a-bottle-dark-blonde-root-touch-up-spray-1-5oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-in-a-bottle-dark-blonde-root-touch-up-spray-1-5oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=salon-in-a-bottle-dark-blonde-root-touch-up-spray"><img alt="salon-in-a-bottle-dark-blonde-root-touch-up-spray-1-5oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/salon-in-a-bottle-dark-blonde-root-touch-up-spray-1-5oz-1/h=540,fit=pad,background=black"/></a></div>
 
 This root touch-up spray quickly and easily covers your grown-out roots and gray hair in a matter of seconds. The lightweight, natural formula provides a smudge-proof, long-lasting coverage, leaving your hair soft and vibrant. 
 
 The airbrush nozzle ensures a quick and precise application, making it a mess-free option for on-the-go touch-ups. Formulated to be swim-proof, this product keeps your hair looking great even when submerged in water. 
 
 
-### [Toppik Med Brown Root Coverage Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=toppik-med-brown-root-coverage-spray)
+### [Toppik Med Brown Root Coverage Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=toppik-med-brown-root-coverage-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=toppik-med-brown-root-coverage-spray"><img alt="toppik-colored-hair-thickener-dry-formula-med-brown-5-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toppik-colored-hair-thickener-dry-formula-med-brown-5-1-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=toppik-med-brown-root-coverage-spray"><img alt="toppik-colored-hair-thickener-dry-formula-med-brown-5-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/toppik-colored-hair-thickener-dry-formula-med-brown-5-1-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Toppik Colored Hair Thickener is a game-changing solution designed for those dealing with thinning hair. It's developed to give your hair a voluminous appearance, covering up thinning spots, exposed scalp, and even bald patches. 
 
@@ -190,9 +190,9 @@ The dry formula is a standout feature, as it helps protect the solution from fad
 It's lightweight, easy to use, and safe for everyday use, with four different shades available to suit various hair colors. 
 
 
-### [L'Oreal Root Concealer: Temporary Dark Brown/Black Spray for Natural Hair Color](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=loreal-root-concealer-temporary-dark-brown-black-spray-for-natural-hair-color)
+### [L'Oreal Root Concealer: Temporary Dark Brown/Black Spray for Natural Hair Color](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=loreal-root-concealer-temporary-dark-brown-black-spray-for-natural-hair-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=loreal-root-concealer-temporary-dark-brown-black-spray-for-natural-hair-color"><img alt="loreal-hair-touch-up-root-concealer-dark-brown-black-2oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-hair-touch-up-root-concealer-dark-brown-black-2oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=loreal-root-concealer-temporary-dark-brown-black-spray-for-natural-hair-color"><img alt="loreal-hair-touch-up-root-concealer-dark-brown-black-2oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-hair-touch-up-root-concealer-dark-brown-black-2oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Gray roots are a challenge we all face, but with L'Oreal's Hair Touch Up Professional Root Concealer, we can instantly conceal them and blend perfectly with our natural hair color. The lightweight spray effortlessly hides greys without leaving any residue or stickiness. It dries instantly and offers precise, mess-free application. Suitable for all hair types, this product is an essential tool for maintaining flawless hair color between appointments. 
 
@@ -203,9 +203,9 @@ One thing I loved about this product was its ability to wash out easily with jus
 Overall, I highly recommend L'Oreal's Hair Touch Up Professional Root Concealer for anyone looking for a quick, easy, and natural-looking solution to cover up the unwanted greys. The product delivers an impressive salon-like finish, making it an essential tool for maintaining perfect hair color between appointments. 
 
 
-### [Quick & Easy Root Cover Up: Medium Brown Spray](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=quick-easy-root-cover-up-medium-brown-spray)
+### [Quick & Easy Root Cover Up: Medium Brown Spray](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=quick-easy-root-cover-up-medium-brown-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=quick-easy-root-cover-up-medium-brown-spray"><img alt="loreal-magic-root-cover-up-medium-brown-2-0-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-magic-root-cover-up-medium-brown-2-0-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=quick-easy-root-cover-up-medium-brown-spray"><img alt="loreal-magic-root-cover-up-medium-brown-2-0-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-magic-root-cover-up-medium-brown-2-0-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I've tried the L'Oréal Magic Root Cover Up and I'm impressed! This product is a God-send for those who want to cover up their roots without having to go to the salon. 
 
@@ -216,9 +216,9 @@ Although it's supposed to last for up to a week, I prefer to apply it every few 
 Overall, I'd say that the L'Oréal Magic Root Cover Up is an excellent product for those who want quick and easy coverage on their roots. 
 
 
-### [Root Touch-Up Spray by Kevin Murphy for Natural Roots](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=root-touch-up-spray-by-kevin-murphy-for-natural-roots)
+### [Root Touch-Up Spray by Kevin Murphy for Natural Roots](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=root-touch-up-spray-by-kevin-murphy-for-natural-roots)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=root-touch-up-spray-by-kevin-murphy-for-natural-roots"><img alt="kevin-murphy-retouch-me-root-touch-up-spray-black-1oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kevin-murphy-retouch-me-root-touch-up-spray-black-1oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=root-touch-up-spray-by-kevin-murphy-for-natural-roots"><img alt="kevin-murphy-retouch-me-root-touch-up-spray-black-1oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kevin-murphy-retouch-me-root-touch-up-spray-black-1oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Kevin Murphy RETOUCH. ME Root Touch-Up Spray Black, and I must say, it made covering my roots a breeze! The satin finish gives my hair a natural shine, and the micro-fine, light reflecting pigments last through my next wash. However, there was a downside - the spray nozzle could have been more refined to prevent messy splashes and over-application on my scalp. 
 
@@ -227,9 +227,9 @@ One of the things I loved about RETOUCH. ME was its quick-drying property that d
 Overall, the product delivers on its promise of easy, long-lasting color touch-ups. It even had a pleasant scent, which was an added bonus. Although there was a slight downside with the stickiness and nozzle situation, I would definitely recommend anyone who needs an effective and convenient root touch-up spray to give RETOUCH. ME a try. 
 
 
-### [Paraben-Free Root Touch Up Spray by RITA HAZAN](https://serp.ly/amazon/Root+Touch+Up+Spray?utm\_term=paraben-free-root-touch-up-spray-by-rita-hazan)
+### [Paraben-Free Root Touch Up Spray by RITA HAZAN](https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm\_term=paraben-free-root-touch-up-spray-by-rita-hazan)
 
-<div class="image"><a href="https://serp.ly/amazon/Root+Touch+Up+Spray?utm_term=paraben-free-root-touch-up-spray-by-rita-hazan"><img alt="rita-hazan-root-concealer-touch-up-spray-2oz-dark-brown-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rita-hazan-root-concealer-touch-up-spray-2oz-dark-brown-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray?utm_term=paraben-free-root-touch-up-spray-by-rita-hazan"><img alt="rita-hazan-root-concealer-touch-up-spray-2oz-dark-brown-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rita-hazan-root-concealer-touch-up-spray-2oz-dark-brown-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rita Hazan Root Concealer Touch Up Spray is a must-have for anyone dealing with unwanted gray roots. This paraben-free, sulfate-free, and cruelty-free product is formulated to be gentle on your hair and comes in a convenient aerosol dispenser for quick and easy application. The lightweight spray evenly disperses and adheres to your hair, providing full coverage that can last until you shampoo it out. 
 
@@ -249,7 +249,7 @@ When it comes to root touch-up sprays, there are several factors you should cons
 
 1. Color Selection: Look for a root touch-up spray that offers a wide range of colors to match your hair's natural shade or the desired outcome. This will ensure a natural-looking finish and help you achieve the desired color result. Most root touch-up sprays come in various shades of brown, black, and blonde, but some even offer options for red, gray, or highlights. 
 
-<div><a href="https://serp.ly/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-2/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-2/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-2" height="540"></a></div>
 
 
 ### Considerations Before Purchasing a Root Touch-Up Spray
@@ -261,7 +261,7 @@ When it comes to root touch-up sprays, there are several factors you should cons
 
 3. Application Technique: To achieve a natural-looking and blended outcome, it's essential to use the spray as directed. Typically, you'll want to apply it over a dry scalp and onto the roots only. Use a thin layer to start, and you can always add more if needed. It's also important not to overapply, as this can lead to unwanted buildup or a visible texture. 
 
-<div><a href="https://serp.ly/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-3/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-3/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-3" height="540"></a></div>
 
 
 ### Maintaining and Extending the Life of Your Root Touch-Up Spray
@@ -271,7 +271,7 @@ When it comes to root touch-up sprays, there are several factors you should cons
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-4/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-4/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-4" height="540"></a></div>
 
 
 ###  What is Root Touch Up Spray?
@@ -287,7 +287,7 @@ Root Touch Up Spray works by utilizing a blend of synthetic pigments and polymer
 
 Additionally, the product's applicator nozzle has been designed for precise and easy application. To use, simply shake the can well before spraying, hold it 12-15 inches away from your hair, and lightly mist the root area. Once applied, you can let it dry naturally or use a blow dryer on low heat to speed up the process. The dry time usually takes around 10-15 minutes. When you're ready, you can gently comb your hair to blend the color further into your natural hair, giving it a more seamless and natural appearance. 
 
-<div><a href="https://serp.ly/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-5/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-5/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-5" height="540"></a></div>
 
 
 ### Is it messy to use?
@@ -303,7 +303,7 @@ Root Touch Up Spray comes in a range of shades to perfectly match most natural h
 
 It's essential to select the most closely matched shade when choosing the product. Applying a shade that's too light or too dark might result in an unnatural appearance, so use your best judgment based on your hair color and consider getting a friend's opinion or asking a professional for advice to achieve the best touch-up result. If this product doesn't meet your expectations, consider using a hair toner or temporary hair color spray for a more precise match. 
 
-<div><a href="https://serp.ly/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-6/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Root+Touch+Up+Spray"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Root-Touch-Up-Spray-6/h=540,fit=pad,background=black" alt="Root-Touch-Up-Spray-6" height="540"></a></div>
 
 
 ### Is Root Touch Up Spray safe for all hair types?

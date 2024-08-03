@@ -14,9 +14,9 @@ Dive into the world of books and discover products that can enhance your reading
 ## Reviews
 
 
-### [Vergissm Wooden Book Light with Folding Metal Bracket for Reading](https://serp.ly/amazon/Reading+Light?utm\_term=vergissm-wooden-book-light-with-folding-metal-bracket-for-reading)
+### [Vergissm Wooden Book Light with Folding Metal Bracket for Reading](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=vergissm-wooden-book-light-with-folding-metal-bracket-for-reading)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=vergissm-wooden-book-light-with-folding-metal-bracket-for-reading"><img alt="vergissm-wooden-book-light-3-colors-folding-book-lamp-white-light-yellow-light-warm-yellow-light-col-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vergissm-wooden-book-light-3-colors-folding-book-lamp-white-light-yellow-light-warm-yellow-light-col-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=vergissm-wooden-book-light-with-folding-metal-bracket-for-reading"><img alt="vergissm-wooden-book-light-3-colors-folding-book-lamp-white-light-yellow-light-warm-yellow-light-col-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vergissm-wooden-book-light-3-colors-folding-book-lamp-white-light-yellow-light-warm-yellow-light-col-1/h=540,fit=pad,background=black"/></a></div>
 
 The Vergissm Wooden Book Light is a unique and practical accessory for avid bookworms. With its sleek wood finish and versatile LED light options, it becomes an attractive addition to any reading nook. 
 
@@ -25,9 +25,9 @@ One of the key features that stood out to me is the touch control, which allows 
 Additionally, the size of the product is a bit on the larger side, which might not be ideal for people who prefer compact devices. Nevertheless, the Vergissm Wooden Book Light remains an impressive addition to my daily reading routine. 
 
 
-### [Portable USB Neck-Hugging Book Light for Reading in Bed or Outdoors - LED & Adjustable Brightness](https://serp.ly/amazon/Reading+Light?utm\_term=portable-usb-neck-hugging-book-light-for-reading-in-bed-or-outdoors-led-adjustable-brightness)
+### [Portable USB Neck-Hugging Book Light for Reading in Bed or Outdoors - LED & Adjustable Brightness](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=portable-usb-neck-hugging-book-light-for-reading-in-bed-or-outdoors-led-adjustable-brightness)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=portable-usb-neck-hugging-book-light-for-reading-in-bed-or-outdoors-led-adjustable-brightness"><img alt="betensh-rechargeable-4-led-book-light-bright-neck-hug-light-reading-lights-for-reading-in-bed-3-brig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/betensh-rechargeable-4-led-book-light-bright-neck-hug-light-reading-lights-for-reading-in-bed-3-brig-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=portable-usb-neck-hugging-book-light-for-reading-in-bed-or-outdoors-led-adjustable-brightness"><img alt="betensh-rechargeable-4-led-book-light-bright-neck-hug-light-reading-lights-for-reading-in-bed-3-brig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/betensh-rechargeable-4-led-book-light-bright-neck-hug-light-reading-lights-for-reading-in-bed-3-brig-1/h=540,fit=pad,background=black"/></a></div>
 
 The Betensh Rechargeable Book Light is designed to provide the perfect reading experience in any environment. With its flexible neckband, it allows users to adjust the lighting angle to suit their needs. This hands-free light is suitable for both indoor and outdoor use, making it perfect for reading, night jogging, writing, and more. 
 
@@ -36,9 +36,9 @@ The light features 4 LED beads with a luminous flux of 36 LM, a lifespan of abou
 This product is a great choice for anyone who wants to read comfortably without the need for a separate flashlight or headlamp. 
 
 
-### [Dabney Lee Stylish Ombre Heart LED Reading Light](https://serp.ly/amazon/Reading+Light?utm\_term=dabney-lee-stylish-ombre-heart-led-reading-light)
+### [Dabney Lee Stylish Ombre Heart LED Reading Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=dabney-lee-stylish-ombre-heart-led-reading-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=dabney-lee-stylish-ombre-heart-led-reading-light"><img alt="dabney-lee-led-book-and-reading-light-ombre-heart-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dabney-lee-led-book-and-reading-light-ombre-heart-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=dabney-lee-stylish-ombre-heart-led-reading-light"><img alt="dabney-lee-led-book-and-reading-light-ombre-heart-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dabney-lee-led-book-and-reading-light-ombre-heart-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dabney Lee LED Book and Reading Light, boasting a sleek design and versatile features, is an excellent choice for anyone who enjoys reading in the dark. Boasting superb lighting, this book light illuminates your favorite novel in a way that lets you delve deep into the story without strain or disturbance. 
 
@@ -49,18 +49,18 @@ This reading light also gives you the power to control the brightness without an
 The product weighs in at just 3.2 ounces and is compact, measuring 2.5 x 1.25 x 6 inches. Overall, the Dabney Lee LED Book and Reading Light combines function and style in a practical, attractive package that's sure to catch the eye of readers everywhere. 
 
 
-### [Brightech Battery Plus: Portable Rechargeable Reading Floor Lamp for Living, Bedroom, Office](https://serp.ly/amazon/Reading+Light?utm\_term=brightech-battery-plus-portable-rechargeable-reading-floor-lamp-for-living-bedroom-office)
+### [Brightech Battery Plus: Portable Rechargeable Reading Floor Lamp for Living, Bedroom, Office](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=brightech-battery-plus-portable-rechargeable-reading-floor-lamp-for-living-bedroom-office)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=brightech-battery-plus-portable-rechargeable-reading-floor-lamp-for-living-bedroom-office"><img alt="brightech-battery-plus-rechargeable-reading-floor-lamp-portable-bright-task-standing-light-for-livin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brightech-battery-plus-rechargeable-reading-floor-lamp-portable-bright-task-standing-light-for-livin-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=brightech-battery-plus-portable-rechargeable-reading-floor-lamp-for-living-bedroom-office"><img alt="brightech-battery-plus-rechargeable-reading-floor-lamp-portable-bright-task-standing-light-for-livin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brightech-battery-plus-rechargeable-reading-floor-lamp-portable-bright-task-standing-light-for-livin-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently tried out the Brightech Battery Plus - a rechargeable reading floor lamp that's perfect for both work and leisure. This lightweight and portable lamp features an adjustable brightness, which is amazingly convenient and energy-efficient. The LED task light provides a clear and bright white light, making it great for precision crafting. 
 
 However, I did find the lamp to be a bit on the bulky side, which made moving it around a bit challenging. Overall, the Brightech Battery Plus is a great addition to any office, living room, or bedroom, providing a reliable lighting solution for all your needs. 
 
 
-### [MOLUOLA Backlit Reading Wall Lights for Bedrooms](https://serp.ly/amazon/Reading+Light?utm\_term=moluola-backlit-reading-wall-lights-for-bedrooms)
+### [MOLUOLA Backlit Reading Wall Lights for Bedrooms](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=moluola-backlit-reading-wall-lights-for-bedrooms)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=moluola-backlit-reading-wall-lights-for-bedrooms"><img alt="moluola-lighting-led-reading-wall-lights-for-bedroom-backlight-night-wall-lamp-plug-in-cord-adjustab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moluola-lighting-led-reading-wall-lights-for-bedroom-backlight-night-wall-lamp-plug-in-cord-adjustab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=moluola-backlit-reading-wall-lights-for-bedrooms"><img alt="moluola-lighting-led-reading-wall-lights-for-bedroom-backlight-night-wall-lamp-plug-in-cord-adjustab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moluola-lighting-led-reading-wall-lights-for-bedroom-backlight-night-wall-lamp-plug-in-cord-adjustab-1/h=540,fit=pad,background=black"/></a></div>
 
 These Moluola Lighting LED Reading Wall Lights have been a game-changer in my bedroom. Not only do they provide a clean, modern design, but they've transformed my bedtime routine. The 3W spotlight is perfect for late-night reading, while the 6W backlight serves as a gentle night light. Plus, controlling both lights separately with two switches adds a level of versatility I didn't know I needed. 
 
@@ -69,9 +69,9 @@ The 9.25''W x 1.18''D x 7.48''H size fits perfectly on my wall, and the 70" plug
 However, I've noticed that the light might distract my partner as it creates a footprint lighting area on my reading page. But overall, these LED wall lamps have been a smart investment for my nighttime routines, providing a blend of energy-saving and eye-protective benefits. 
 
 
-### [The Really Compact Mint Travel Book Light](https://serp.ly/amazon/Reading+Light?utm\_term=the-really-compact-mint-travel-book-light)
+### [The Really Compact Mint Travel Book Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=the-really-compact-mint-travel-book-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=the-really-compact-mint-travel-book-light"><img alt="the-really-compact-travel-book-light-mint-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-really-compact-travel-book-light-mint-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=the-really-compact-mint-travel-book-light"><img alt="the-really-compact-travel-book-light-mint-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-really-compact-travel-book-light-mint-1/h=540,fit=pad,background=black"/></a></div>
 
 The Really Compact Travel Book Light" — that's what I've been carrying around for the past couple of weeks, and I must say, it's not just a 'light, ' it's a lifesaver for late-night reading sessions. This little gem clips right on to your book, giving you the perfect amount of glow, no matter where you are. 
 
@@ -84,9 +84,9 @@ The only downside? It does have a slightly flimsy clip, so handle it with care t
 Overall, if you're looking for a travel-friendly, easy-to-use book light, this one is worth the investment. Just be careful with the clip! 
 
 
-### [WITHit Clip On Reduced Glare Reading Light](https://serp.ly/amazon/Reading+Light?utm\_term=withit-clip-on-reduced-glare-reading-light)
+### [WITHit Clip On Reduced Glare Reading Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=withit-clip-on-reduced-glare-reading-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=withit-clip-on-reduced-glare-reading-light"><img alt="disc-reading-light-by-withit-led-book-light-with-chrome-neck-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/disc-reading-light-by-withit-led-book-light-with-chrome-neck-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=withit-clip-on-reduced-glare-reading-light"><img alt="disc-reading-light-by-withit-led-book-light-with-chrome-neck-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/disc-reading-light-by-withit-led-book-light-with-chrome-neck-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever since I started using the Walt's Wireless Wristband Microphone, I haven't looked back. I've tried several other options, but this little gadget has never failed me, and I can't imagine going back to life without it. 
 
@@ -99,9 +99,9 @@ One thing I must mention, though - the software. While it does its job, I've fou
 Overall, I'm thrilled with this little gadget. It's made my audio recording sessions so much easier, and I highly recommend it to anyone in need of a reliable microphone. While it's not without its flaws, the pros certainly outweigh the cons in my book. 
 
 
-### [Ultra-Bright Led Bedside Table Lamp for Comfortable Reading](https://serp.ly/amazon/Reading+Light?utm\_term=ultra-bright-led-bedside-table-lamp-for-comfortable-reading)
+### [Ultra-Bright Led Bedside Table Lamp for Comfortable Reading](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=ultra-bright-led-bedside-table-lamp-for-comfortable-reading)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=ultra-bright-led-bedside-table-lamp-for-comfortable-reading"><img alt="small-bedside-night-table-lamp-for-bedroom-minimalist-nightstand-lamp-with-round-fabric-linen-shade--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/small-bedside-night-table-lamp-for-bedroom-minimalist-nightstand-lamp-with-round-fabric-linen-shade--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=ultra-bright-led-bedside-table-lamp-for-comfortable-reading"><img alt="small-bedside-night-table-lamp-for-bedroom-minimalist-nightstand-lamp-with-round-fabric-linen-shade--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/small-bedside-night-table-lamp-for-bedroom-minimalist-nightstand-lamp-with-round-fabric-linen-shade--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently bought a small bedside table lamp for my bedroom and it has made such a positive impact on my home. The lamp provides a cozy ambiance and adds a modern touch to the room. The LED bulb included in the package is energy-saving and eye-friendly, which I really appreciate. 
 
@@ -112,9 +112,9 @@ However, the downside is that the lamp isn't dimmable and can be a bit bright fo
 Overall, this small bedside table lamp is a great addition to any room. It provides just the right amount of lighting for reading, working, and studying, while also adding a stylish touch to the space. And the fact that it's energy-saving and eye-friendly makes it a win-win for me. 
 
 
-### [Adjustable 5-LED USB Battery-Operated Reading Light](https://serp.ly/amazon/Reading+Light?utm\_term=adjustable-5-led-usb-battery-operated-reading-light)
+### [Adjustable 5-LED USB Battery-Operated Reading Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=adjustable-5-led-usb-battery-operated-reading-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=adjustable-5-led-usb-battery-operated-reading-light"><img alt="ritelite-lpl792xlb-wireless-5-led-touch-on-usb-battery-operated-computer-book-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ritelite-lpl792xlb-wireless-5-led-touch-on-usb-battery-operated-computer-book-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=adjustable-5-led-usb-battery-operated-reading-light"><img alt="ritelite-lpl792xlb-wireless-5-led-touch-on-usb-battery-operated-computer-book-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ritelite-lpl792xlb-wireless-5-led-touch-on-usb-battery-operated-computer-book-light-1/h=540,fit=pad,background=black"/></a></div>
 
 The Ritelite LED Book Light is a versatile and useful gadget for anyone who loves to read in bed, in a dimly lit room, or simply needs some extra light while typing on a laptop. The device features five bright LED lights that provide a super bright white light, making it perfect for late-night reading. You can either plug it into your computer's USB port or use it with the included battery-operated base, making it a convenient and energy-efficient option. 
 
@@ -127,18 +127,18 @@ In terms of power, the Ritelite LED Book Light operates on 3 AAA batteries, whic
 With its durable design, adjustable neck, and dual light output options, the Ritelite LED Book Light is an exceptional choice for avid readers, laptop users, or anyone looking for a reliable and functional book light. 
 
 
-### [Vekkia 14 LED Rechargeable Nighttime Reading Book Light](https://serp.ly/amazon/Reading+Light?utm\_term=vekkia-14-led-rechargeable-nighttime-reading-book-light)
+### [Vekkia 14 LED Rechargeable Nighttime Reading Book Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=vekkia-14-led-rechargeable-nighttime-reading-book-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=vekkia-14-led-rechargeable-nighttime-reading-book-light"><img alt="vekkia-14-led-rechargeable-book-light-for-reading-at-night-in-bed-warm-white-reading-light-with-clam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vekkia-14-led-rechargeable-book-light-for-reading-at-night-in-bed-warm-white-reading-light-with-clam-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=vekkia-14-led-rechargeable-nighttime-reading-book-light"><img alt="vekkia-14-led-rechargeable-book-light-for-reading-at-night-in-bed-warm-white-reading-light-with-clam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vekkia-14-led-rechargeable-book-light-for-reading-at-night-in-bed-warm-white-reading-light-with-clam-1/h=540,fit=pad,background=black"/></a></div>
 
 The Vekkia 14 LED Rechargeable Book-Light is a versatile and practical solution for those who enjoy reading late into the night. With a warm or white light option, this book light is perfect for dim settings without being too bright for others around you. Designed with a patented whale tail clamp, it can fold up to 180 degrees for optimal adjustability. 
 
 Users have praised the book light's various lighting settings, easy clip-on design, and long-lasting battery. The whale tail clip is sturdy enough to stay in place while reading, regardless of the book's width. The cordless design of this book light adds convenience, as there are no cords to get tangled when adjusting the light or moving. Overall, the Vekkia LED Rechargeable Book-Light is a favorite among reviewers, providing a reliable and comfortable reading experience, and even earning a spot as a perfect item for a music stand. 
 
 
-### [Portable Clip-On Reading Light for Comfortable Late-Night Reads](https://serp.ly/amazon/Reading+Light?utm\_term=portable-clip-on-reading-light-for-comfortable-late-night-reads)
+### [Portable Clip-On Reading Light for Comfortable Late-Night Reads](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=portable-clip-on-reading-light-for-comfortable-late-night-reads)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=portable-clip-on-reading-light-for-comfortable-late-night-reads"><img alt="allocacoc-flashlight-clip-clamp-reading-light-clip-on-desk-lamp-dimmable-led-nightlight-usb-charging-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allocacoc-flashlight-clip-clamp-reading-light-clip-on-desk-lamp-dimmable-led-nightlight-usb-charging-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=portable-clip-on-reading-light-for-comfortable-late-night-reads"><img alt="allocacoc-flashlight-clip-clamp-reading-light-clip-on-desk-lamp-dimmable-led-nightlight-usb-charging-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allocacoc-flashlight-clip-clamp-reading-light-clip-on-desk-lamp-dimmable-led-nightlight-usb-charging-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Allocacoc Flashlight Clamp for a while and it's become a must-have in my daily routine. The lamp is incredibly portable and versatile, perfect for both reading and working in dim-lit spaces. Its stylish industrial design makes it a great addition to any desk setup. 
 
@@ -147,9 +147,9 @@ The dimmable LED light ensures just the right amount of illumination without bei
 Overall, it's a fantastic reading light that's well worth the investment. 
 
 
-### [Flat Book Light for Nighttime Reading (Wireless, Clear LED)](https://serp.ly/amazon/Reading+Light?utm\_term=flat-book-light-for-nighttime-reading-wireless-clear-led)
+### [Flat Book Light for Nighttime Reading (Wireless, Clear LED)](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=flat-book-light-for-nighttime-reading-wireless-clear-led)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=flat-book-light-for-nighttime-reading-wireless-clear-led"><img alt="juesi-flat-book-light-for-reading-in-bed-at-night-clear-led-book-full-page-light-illuminator-panel-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/juesi-flat-book-light-for-reading-in-bed-at-night-clear-led-book-full-page-light-illuminator-panel-p-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=flat-book-light-for-nighttime-reading-wireless-clear-led"><img alt="juesi-flat-book-light-for-reading-in-bed-at-night-clear-led-book-full-page-light-illuminator-panel-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/juesi-flat-book-light-for-reading-in-bed-at-night-clear-led-book-full-page-light-illuminator-panel-p-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the Juesi Flat Book Light, a game-changer for late-night readers who love a cozy book in bed. This wireless light is an innovation in the world of book lights, shining from a clear panel plate that illuminates without causing a disturbance to those around you. The LED is designed to reduce eye strain, making it ideal for those long reading sessions, and its portable and lightweight feature make it easy to carry around. 
 
@@ -160,9 +160,9 @@ Another great feature of the Juesi Flat Book Light is its ability to work in a d
 With its elegant style and ease of use, the Juesi Flat Book Light comes as a single unit and can be powered by battery sources. If you're always looking for the perfect bed time companion to light up your reading, look no further because the Juesi Flat Book Light is here to brighten those long, late nights. 
 
 
-### [Hooga Book Light: Blue Light Blocking, Clip-On Rechargeable LED for Stress-Free Reading](https://serp.ly/amazon/Reading+Light?utm\_term=hooga-book-light-blue-light-blocking-clip-on-rechargeable-led-for-stress-free-reading)
+### [Hooga Book Light: Blue Light Blocking, Clip-On Rechargeable LED for Stress-Free Reading](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=hooga-book-light-blue-light-blocking-clip-on-rechargeable-led-for-stress-free-reading)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=hooga-book-light-blue-light-blocking-clip-on-rechargeable-led-for-stress-free-reading"><img alt="hooga-book-light-for-reading-in-bed-blue-light-blocking-clip-on-rechargeable-led-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hooga-book-light-for-reading-in-bed-blue-light-blocking-clip-on-rechargeable-led-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=hooga-book-light-blue-light-blocking-clip-on-rechargeable-led-for-stress-free-reading"><img alt="hooga-book-light-for-reading-in-bed-blue-light-blocking-clip-on-rechargeable-led-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hooga-book-light-for-reading-in-bed-blue-light-blocking-clip-on-rechargeable-led-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hooga Book Light is an excellent choice for those who want to read during bedtime without disrupting their sleep. Its blue light-blocking feature ensures that the 99.94% amber hue light helps in melatonin production and reduces eye strain. The lightweight and portable design makes it suitable for traveling, and the sturdy grip ensures that it stays secured in place. 
 
@@ -171,18 +171,18 @@ Its gooseneck design flexibly extends up to 7 inches, allowing a customizable li
 One drawback is that the product can be a bit tricky to set up on certain surfaces, depending on the user's preferences. Despite this minor flaw, the Hooga Book Light is an excellent buy for avid readers looking for a sleep-friendly and versatile reading solution. 
 
 
-### [Retro Rite Lite LPL790BM 4 LED Laptop Book Light](https://serp.ly/amazon/Reading+Light?utm\_term=retro-rite-lite-lpl790bm-4-led-laptop-book-light)
+### [Retro Rite Lite LPL790BM 4 LED Laptop Book Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=retro-rite-lite-lpl790bm-4-led-laptop-book-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=retro-rite-lite-lpl790bm-4-led-laptop-book-light"><img alt="rite-lite-lpl790bm-4-led-laptop-book-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rite-lite-lpl790bm-4-led-laptop-book-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=retro-rite-lite-lpl790bm-4-led-laptop-book-light"><img alt="rite-lite-lpl790bm-4-led-laptop-book-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rite-lite-lpl790bm-4-led-laptop-book-light-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rite Lite LPL790BM 4 LED Laptop Book Light is a fantastic addition to any workspace or reading area. This versatile device features a flexible gooseneck that allows you to easily direct the light to where you need it. 
 
 With options for both full brightness and dimming, you can easily adjust the light to suit your preferences. Best of all, it can be powered via USB or 3 AAA batteries (not included), providing a convenient and eco-friendly choice. Although it may not be suitable for wet or damp areas, the Rite Lite LPL790BM is an excellent, user-friendly choice for a laptop or book light. 
 
 
-### [Eye-Care Clip-On Reading Light with Adjustable Gooseneck](https://serp.ly/amazon/Reading+Light?utm\_term=eye-care-clip-on-reading-light-with-adjustable-gooseneck)
+### [Eye-Care Clip-On Reading Light with Adjustable Gooseneck](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=eye-care-clip-on-reading-light-with-adjustable-gooseneck)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=eye-care-clip-on-reading-light-with-adjustable-gooseneck"><img alt="w-lite-6w-led-usb-reading-light-clip-laptop-lamp-for-bookpianobed-eye-care-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/w-lite-6w-led-usb-reading-light-clip-laptop-lamp-for-bookpianobed-eye-care-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=eye-care-clip-on-reading-light-with-adjustable-gooseneck"><img alt="w-lite-6w-led-usb-reading-light-clip-laptop-lamp-for-bookpianobed-eye-care-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/w-lite-6w-led-usb-reading-light-clip-laptop-lamp-for-bookpianobed-eye-care-3/h=540,fit=pad,background=black"/></a></div>
 
 The W-lite 6W LED USB Reading Light is a versatile and practical solution for all your reading needs. With its adjustable gooseneck, you can easily place the light exactly where you want it - be it on a headboard, desk, side table, or bookshelf. The sturdy clip is padded to prevent any scratches and is compatible with various surfaces. 
 
@@ -193,9 +193,9 @@ The W-lite 6W LED USB Reading Light features a round shape that ensures powerful
 Overall, the W-lite 6W LED USB Reading Light is a reliable, versatile, and comfortable addition to any space, offering both mobility and eye-care benefits. 
 
 
-### [DEWENWILS Amber Warm Clip-On LED Reading Light](https://serp.ly/amazon/Reading+Light?utm\_term=dewenwils-amber-warm-clip-on-led-reading-light)
+### [DEWENWILS Amber Warm Clip-On LED Reading Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=dewenwils-amber-warm-clip-on-led-reading-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=dewenwils-amber-warm-clip-on-led-reading-light"><img alt="dewenwils-book-reading-light-amber-warm-clip-on-led-with-3-adjustable-brightness-for-eye-protection-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dewenwils-book-reading-light-amber-warm-clip-on-led-with-3-adjustable-brightness-for-eye-protection-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=dewenwils-amber-warm-clip-on-led-reading-light"><img alt="dewenwils-book-reading-light-amber-warm-clip-on-led-with-3-adjustable-brightness-for-eye-protection-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dewenwils-book-reading-light-amber-warm-clip-on-led-with-3-adjustable-brightness-for-eye-protection-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dewenwils Reading Light is a sleek and elegant addition to any bibliophile's collection. Designed with amber warm lighting for optimal eye protection, this clip-on LED light is perfect for late-night reading sessions without causing strain. The light features three adjustable brightness levels, allowing users to customize the lighting to their preference for a comfortable reading experience. 
 
@@ -204,9 +204,9 @@ One of the most convenient aspects of this reading light is its rechargeable fea
 Customers have shared their satisfaction with this product, praising its clip-on mechanism, swivel capabilities, and the ease of charging with a USB port. The device has received high ratings for its convenience, versatility, and ability to provide a comfortable reading environment. Overall, the Dewenwils Reading Light is a delightful addition to any reader's life, offering both comfort and style. 
 
 
-### [Airlonv Adjustable LED Desk Lamp with Eye-Caring Light and USB Adapter](https://serp.ly/amazon/Reading+Light?utm\_term=airlonv-adjustable-led-desk-lamp-with-eye-caring-light-and-usb-adapter)
+### [Airlonv Adjustable LED Desk Lamp with Eye-Caring Light and USB Adapter](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=airlonv-adjustable-led-desk-lamp-with-eye-caring-light-and-usb-adapter)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=airlonv-adjustable-led-desk-lamp-with-eye-caring-light-and-usb-adapter"><img alt="airlonv-led-desk-lamp-for-office-home-eye-caring-desk-light-with-stepless-dimming-adjustable-flexibl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/airlonv-led-desk-lamp-for-office-home-eye-caring-desk-light-with-stepless-dimming-adjustable-flexibl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=airlonv-adjustable-led-desk-lamp-with-eye-caring-light-and-usb-adapter"><img alt="airlonv-led-desk-lamp-for-office-home-eye-caring-desk-light-with-stepless-dimming-adjustable-flexibl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/airlonv-led-desk-lamp-for-office-home-eye-caring-desk-light-with-stepless-dimming-adjustable-flexibl-1/h=540,fit=pad,background=black"/></a></div>
 
 The Airlonv LED Desk Lamp is a versatile and eye-friendly addition to any office or home workspace. Its stepless dimming feature allows for seamless adjustment of both color temperature (2700K-6500K) and brightness (1%-100%), ensuring a comfortable lighting experience for various activities. 
 
@@ -215,18 +215,18 @@ With a 360-degree adjustable gooseneck, this desk lamp provides full control ove
 This energy-saving lamp emits uniform brightness and a wide lighting range, minimizing eye fatigue and safeguarding your eyesight during extended use. 
 
 
-### [Indoor/Outdoor Adjustable Reading Light](https://serp.ly/amazon/Reading+Light?utm\_term=indoor-outdoor-adjustable-reading-light)
+### [Indoor/Outdoor Adjustable Reading Light](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=indoor-outdoor-adjustable-reading-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=indoor-outdoor-adjustable-reading-light"><img alt="dewenwils-usb-rechargeable-book-reading-light-warm-white-brightness-adjustable-for-eye-protection-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dewenwils-usb-rechargeable-book-reading-light-warm-white-brightness-adjustable-for-eye-protection-le-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=indoor-outdoor-adjustable-reading-light"><img alt="dewenwils-usb-rechargeable-book-reading-light-warm-white-brightness-adjustable-for-eye-protection-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dewenwils-usb-rechargeable-book-reading-light-warm-white-brightness-adjustable-for-eye-protection-le-1/h=540,fit=pad,background=black"/></a></div>
 
 This USB rechargeable book reading light from Dewenwils offers users optimal eye comfort and energy efficiency with its warm white LED light and adjustable brightness levels. The slim, attractive design comes in a variety of colors, making it a great option for personal use or a thoughtful gift. 
 
 The device features a built-in rechargeable battery and a universal USB interface for convenient charging. With a 30,000-hour lifespan, this book light is sure to serve as your go-to reading companion for years to come. 
 
 
-### [ACNCTOP Eye-Caring Architect Task Lamp - 25 Adjustable LED Desk Lamp for Office or Home](https://serp.ly/amazon/Reading+Light?utm\_term=acnctop-eye-caring-architect-task-lamp-25-adjustable-led-desk-lamp-for-office-or-home)
+### [ACNCTOP Eye-Caring Architect Task Lamp - 25 Adjustable LED Desk Lamp for Office or Home](https://serp.ly/@outrun/amazon/Reading+Light?utm\_term=acnctop-eye-caring-architect-task-lamp-25-adjustable-led-desk-lamp-for-office-or-home)
 
-<div class="image"><a href="https://serp.ly/amazon/Reading+Light?utm_term=acnctop-eye-caring-architect-task-lamp-25-adjustable-led-desk-lamp-for-office-or-home"><img alt="acnctop-desk-lamp-for-office-home-eye-caring-architect-task-lamp-25-lighting-modes-adjustable-led-de-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/acnctop-desk-lamp-for-office-home-eye-caring-architect-task-lamp-25-lighting-modes-adjustable-led-de-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Reading+Light?utm_term=acnctop-eye-caring-architect-task-lamp-25-adjustable-led-desk-lamp-for-office-or-home"><img alt="acnctop-desk-lamp-for-office-home-eye-caring-architect-task-lamp-25-lighting-modes-adjustable-led-de-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/acnctop-desk-lamp-for-office-home-eye-caring-architect-task-lamp-25-lighting-modes-adjustable-led-de-1/h=540,fit=pad,background=black"/></a></div>
 
 The ACNCTOP LED Desk Lamp is a great addition to any home office or study space. With 25 lighting modes, you can easily switch between brightness levels and color temperatures to find the perfect setting for your needs. Its flexible gooseneck tube is easily adjustable, allowing you to position the light just right for your task. 
 
@@ -242,7 +242,7 @@ Choosing the right reading light is vital for reducing eye fatigue and providing
 
 When shopping for a reading light, consider the following features to make the best decision possible. These features help determine the suitability, usability, and functionality of the light for reading purposes. They include brightness, color temperature, adjustability, light direction, and portability. 
 
-<div><a href="https://serp.ly/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-2/h=540,fit=pad,background=black" alt="Reading-Light-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-2/h=540,fit=pad,background=black" alt="Reading-Light-2" height="540"></a></div>
 
 
 ### Brightness
@@ -254,7 +254,7 @@ The brightness of a reading light directly affects its visibility and readabilit
 
 Color temperature is the measure of white light's warmth or coolness on a scale of Kelvin. Warm lighting (around 2700K) tends to be more relaxed for the eyes, while cooler lighting (around 4000K) is easier to focus on when reading. It is recommended to choose a reading light with an adjustable color temperature feature, as it allows you to customize the light's warmth to your preference and the ambient lighting. 
 
-<div><a href="https://serp.ly/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-3/h=540,fit=pad,background=black" alt="Reading-Light-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-3/h=540,fit=pad,background=black" alt="Reading-Light-3" height="540"></a></div>
 
 
 ### Light Adjustability
@@ -264,7 +264,7 @@ Adjustability is another essential factor for reading lights. Look for a light t
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-4/h=540,fit=pad,background=black" alt="Reading-Light-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-4/h=540,fit=pad,background=black" alt="Reading-Light-4" height="540"></a></div>
 
 
 ### What are the best reading lights available in the market?
@@ -280,7 +280,7 @@ When shopping for a reading light, consider the following features: adjustable b
 
 It's also crucial to consider the size of the reading light, especially if you plan to use it bedside or in a smaller space. A compact yet powerful light will help save space and prevent disturbance to your sleep or that of others in the household. Lastly, ensure that the device is energy-efficient and has a long battery life to save you money in the long run. 
 
-<div><a href="https://serp.ly/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-5/h=540,fit=pad,background=black" alt="Reading-Light-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-5/h=540,fit=pad,background=black" alt="Reading-Light-5" height="540"></a></div>
 
 
 ### Are there any smart reading lights available?
@@ -296,7 +296,7 @@ Absolutely! While reading lights are specifically designed to provide optimal li
 
 For example, the IKEA Smart Lighting 2-Bulb LED Lighting Kit has a warm and cozy 2700K color temperature and is great for creating a reading-friendly atmosphere. However, if you require a more adaptable option, the Philips Hue Go can change the color temperature with ease, making it suitable for a range of tasks. Always consider the light's size, energy efficiency, and battery life when deciding whether it's appropriate for your specific needs. 
 
-<div><a href="https://serp.ly/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-6/h=540,fit=pad,background=black" alt="Reading-Light-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Reading+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Reading-Light-6/h=540,fit=pad,background=black" alt="Reading-Light-6" height="540"></a></div>
 
 
 ### How often should I replace the bulbs in my reading light?

@@ -14,9 +14,9 @@ Are you in search of the perfect concealment holster to keep your firearm secure
 ## Reviews
 
 
-### [Concealment Express Sig Sauer P365 Kydex Holster - Tuckable IWB Design](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-sig-sauer-p365-kydex-holster-tuckable-iwb-design)
+### [Concealment Express Sig Sauer P365 Kydex Holster - Tuckable IWB Design](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-sig-sauer-p365-kydex-holster-tuckable-iwb-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-sig-sauer-p365-kydex-holster-tuckable-iwb-design"><img alt="concealment-express-sig-sauer-p365-tuckable-iwb-kydex-holster-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-sig-sauer-p365-tuckable-iwb-kydex-holster-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-sig-sauer-p365-kydex-holster-tuckable-iwb-design"><img alt="concealment-express-sig-sauer-p365-tuckable-iwb-kydex-holster-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-sig-sauer-p365-tuckable-iwb-kydex-holster-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to the hassle of finding the right holster with this Concealment Express Kydex IWB Holster. This versatile and minimalistic design allows for an inside the waistband carry, making it the perfect choice for concealed carry every day. 
 
@@ -25,9 +25,9 @@ The tuckable feature ensures comfort and ease of use, as you can wear it with yo
 With a lifetime warranty and a quick refund policy, you can rest assured that your purchase is secure. 
 
 
-### [Concealment Express Adjustable IWB Kydex Holster for Beretta APX](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-adjustable-iwb-kydex-holster-for-beretta-apx)
+### [Concealment Express Adjustable IWB Kydex Holster for Beretta APX](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-adjustable-iwb-kydex-holster-for-beretta-apx)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-adjustable-iwb-kydex-holster-for-beretta-apx"><img alt="concealment-express-iwb-kydex-holster-fits-beretta-apx-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-beretta-apx-right-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-adjustable-iwb-kydex-holster-for-beretta-apx"><img alt="concealment-express-iwb-kydex-holster-fits-beretta-apx-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-beretta-apx-right-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to give the Concealment Express IWB Kydex Holster a try. This holster promises to offer a comfortable fit, easy concealability, and adjustable retention. 
 
@@ -40,9 +40,9 @@ However, there was one drawback to this holster - the belt clip seemed a bit bul
 In conclusion, I am overall pleased with the Concealment Express IWB Kydex Holster and its performance in maintaining a comfortable and secure fit for my Beretta APX. While there is a slight aesthetic concern related to the belt clip, the pros outweigh the cons, making this an excellent choice for daily carry. 
 
 
-### [Concealment Express IWB Kydex Plus Line Holster for Optic Ready Glock Pistols](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-glock-pistols)
+### [Concealment Express IWB Kydex Plus Line Holster for Optic Ready Glock Pistols](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-glock-pistols)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-glock-pistols"><img alt="rounded-by-concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-w-claw-monoblock-clip-glo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rounded-by-concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-w-claw-monoblock-clip-glo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-glock-pistols"><img alt="rounded-by-concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-w-claw-monoblock-clip-glo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rounded-by-concealment-express-iwb-kydex-plus-line-holster-for-optic-ready-w-claw-monoblock-clip-glo-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to use the Concealment Express Kydex Plus Line Holster. This holster is designed for inside the waistband (IWB) carry and is specifically crafted for Glock 19, 19X, 23, 32, and 45 Gen 1-5 pistols. I was impressed by its slim design and lightweight feel, making it a great option for everyday carry. 
 
@@ -53,18 +53,18 @@ However, there was a small hiccup with the holster I received. I noticed that it
 But overall, I'm a fan of this Kydex Plus Line Holster. It's comfortable, easy to use, and does a great job of hiding my pistol without being too constrictive. If you're looking for a reliable IWB option for your Glock, this might just be the one. 
 
 
-### [Concealment Express Glock 34 IWB Kydex Holster](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-glock-34-iwb-kydex-holster)
+### [Concealment Express Glock 34 IWB Kydex Holster](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-glock-34-iwb-kydex-holster)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-glock-34-iwb-kydex-holster"><img alt="concealment-express-iwb-kydex-holster-fits-glock-34-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-glock-34-right-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-glock-34-iwb-kydex-holster"><img alt="concealment-express-iwb-kydex-holster-fits-glock-34-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-glock-34-right-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's used a Concealment Express IWB Kydex Holster for my Glock 34, I can say that this holster really makes a difference. The user-adjustable cant from -5 to +20 degrees allows me to customize the fit and carry, while the posi-click retention provides a secure hold. The minimalist inside the waistband design is perfect for everyday concealed carry, and the 1.5" fiber reinforced stealth belt clip keeps things snug and secure. 
 
 However, one thing I noticed is that the claw kit can be a little tricky to set up. But once it's in place, it really helps push the handle of the gun back, making it more comfortable to wear. Overall, I'm really happy with this holster. It's lightweight, durable, and comfortable enough for everyday use. And with the lifetime warranty, I have peace of mind that it's made to last. It's a great choice for anyone looking for a reliable, comfortable, and discreet way to carry their Glock 34. 
 
 
-### [Comfortable OWB KYDEX Belt Loop Holster for S&W M&P 4.25" 9/40](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=comfortable-owb-kydex-belt-loop-holster-for-sw-mp-4-25-9-40)
+### [Comfortable OWB KYDEX Belt Loop Holster for S&W M&P 4.25" 9/40](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=comfortable-owb-kydex-belt-loop-holster-for-sw-mp-4-25-9-40)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=comfortable-owb-kydex-belt-loop-holster-for-sw-mp-4-25-9-40"><img alt="concealment-express-owb-kydex-belt-loop-holster-for-the-sw-mp-4-25-9-41" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-owb-kydex-belt-loop-holster-for-the-sw-mp-4-25-9-41/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=comfortable-owb-kydex-belt-loop-holster-for-sw-mp-4-25-9-40"><img alt="concealment-express-owb-kydex-belt-loop-holster-for-the-sw-mp-4-25-9-41" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-owb-kydex-belt-loop-holster-for-the-sw-mp-4-25-9-41/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Concealment Express OWB Kydex Belt Loop Holster for The S&W M&P 4.25" 9/40 and I was pleasantly surprised by its sleek and comfortable design. One of the great features of this holster is that it's compatible with slide-mounted optics, making it an ideal choice for those who prefer their firearm with mounted optics like MOS, RMR, or red dot sights. 
 
@@ -75,9 +75,9 @@ However, there were some areas where the holster could use improvement. While th
 Overall, I would definitely recommend the Concealment Express OWB Kydex Belt Loop Holster for those in search of a reliable, minimalistic, and comfortable outside the waistband holster. Just make sure to keep its limitations in mind for optimal concealment and comfort. 
 
 
-### [Concealment Express Tuckable Heckler Koch VP9SK IWB Holster - Ambidextrous & Adjustable](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-tuckable-heckler-koch-vp9sk-iwb-holster-ambidextrous-adjustable)
+### [Concealment Express Tuckable Heckler Koch VP9SK IWB Holster - Ambidextrous & Adjustable](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-tuckable-heckler-koch-vp9sk-iwb-holster-ambidextrous-adjustable)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-tuckable-heckler-koch-vp9sk-iwb-holster-ambidextrous-adjustable"><img alt="concealment-express-tuckable-iwb-kydex-holster-heckler-koch-vp9sk-ambidextrous-black-hkh-vp9sk-bk-tu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-heckler-koch-vp9sk-ambidextrous-black-hkh-vp9sk-bk-tu-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-tuckable-heckler-koch-vp9sk-iwb-holster-ambidextrous-adjustable"><img alt="concealment-express-tuckable-iwb-kydex-holster-heckler-koch-vp9sk-ambidextrous-black-hkh-vp9sk-bk-tu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-heckler-koch-vp9sk-ambidextrous-black-hkh-vp9sk-bk-tu-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Concealment Express Holster for my Heckler and Koch VP9SK, and it was a game-changer for my everyday concealed carry experience. The inside waistband (IWB) Kydex Holster is lightweight, durable, and perfect for all-day use. The ambidextrous design made it easy to switch between left and right hands, and the adjustable retention meant I could secure my pistol at any position on my belt line. 
 
@@ -86,9 +86,9 @@ One of the standout features was the ability to wear this holster with my shirt 
 While this holster has no major drawbacks, there could have been better material choices for a more comfortable fit next to my skin. Overall, the Concealment Express Holster provides a reliable and convenient solution for everyday concealed carry, and I highly recommend it to anyone looking for a versatile and minimalist IWB Holster. 
 
 
-### [Concealment Express: Holster for Glock Gen 1-5](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-holster-for-glock-gen-1-5)
+### [Concealment Express: Holster for Glock Gen 1-5](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-holster-for-glock-gen-1-5)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-holster-for-glock-gen-1-5"><img alt="concealment-express-glock-17-19-22-23-26-27-31-32-33-34-45-gen-1-5-iwb-kydex-holster-black-right-han-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-glock-17-19-22-23-26-27-31-32-33-34-45-gen-1-5-iwb-kydex-holster-black-right-han-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-holster-for-glock-gen-1-5"><img alt="concealment-express-glock-17-19-22-23-26-27-31-32-33-34-45-gen-1-5-iwb-kydex-holster-black-right-han-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-glock-17-19-22-23-26-27-31-32-33-34-45-gen-1-5-iwb-kydex-holster-black-right-han-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the Concealment Express Holster, your ultimate companion for everyday concealed carry of your Glock G17, G19, G19X, G22, G23, G26, G27, G31, G32, G33, G34, or G45. These minimalist inside the waistband KYDEX holsters are meticulously crafted over our proprietary, precision aluminum molds, ensuring a perfect fit while offering unmatched protection from moisture. 
 
@@ -97,18 +97,18 @@ The lightweight and durable construction of the holster make it the ideal choice
 Not only does the Concealment Express Holster provide excellent concealment, but it also comes with a lifetime warranty and fast shipping, ensuring your satisfaction with the product. Whether you're a seasoned gun owner or a newcomer to the world of concealed carry, this holster is the perfect addition to your arsenal. 
 
 
-### [Carbon Fiber Tuckable Holster for Glock 43 by Concealment Express](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=carbon-fiber-tuckable-holster-for-glock-43-by-concealment-express)
+### [Carbon Fiber Tuckable Holster for Glock 43 by Concealment Express](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=carbon-fiber-tuckable-holster-for-glock-43-by-concealment-express)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=carbon-fiber-tuckable-holster-for-glock-43-by-concealment-express"><img alt="concealment-express-tuckable-iwb-kydex-holster-carbon-fiber-glock-43-right-hand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-carbon-fiber-glock-43-right-hand-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=carbon-fiber-tuckable-holster-for-glock-43-by-concealment-express"><img alt="concealment-express-tuckable-iwb-kydex-holster-carbon-fiber-glock-43-right-hand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-carbon-fiber-glock-43-right-hand-1/h=540,fit=pad,background=black"/></a></div>
 
 Concealment Express is known for its slim and lightweight tuckable IWB Kydex Holster, a perfect choice for concealed carry. Made from high-quality materials, this holster fits seamlessly under clothing, making it comfortable to wear while ensuring security. 
 
 The various attachments available and adjustable clips allow for versatility in wearing styles. Reviews consistently praise the holster's comfort, ease of use, and concealment capabilities. 
 
 
-### [Concealment Express Holster for Smith & Wesson M&P Shield 9mm - Right Hand in Black](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-holster-for-smith-wesson-mp-shield-9mm-right-hand-in-black)
+### [Concealment Express Holster for Smith & Wesson M&P Shield 9mm - Right Hand in Black](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-holster-for-smith-wesson-mp-shield-9mm-right-hand-in-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-holster-for-smith-wesson-mp-shield-9mm-right-hand-in-black"><img alt="concealment-express-smith-wesson-mp-shield-9mm-ez-tuckable-iwb-kydex-holster-black-right-hand-w-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-smith-wesson-mp-shield-9mm-ez-tuckable-iwb-kydex-holster-black-right-hand-w-full-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-holster-for-smith-wesson-mp-shield-9mm-right-hand-in-black"><img alt="concealment-express-smith-wesson-mp-shield-9mm-ez-tuckable-iwb-kydex-holster-black-right-hand-w-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-smith-wesson-mp-shield-9mm-ez-tuckable-iwb-kydex-holster-black-right-hand-w-full-1/h=540,fit=pad,background=black"/></a></div>
 
 The Concealment Express holster has proven to be an exceptional choice for my daily concealed carry needs. The selectable hand position options for both palm-in and palm-out back carry make drawing incredibly easy and comfortable. 
 
@@ -117,9 +117,9 @@ The ambidextrous design also adds versatility, allowing me to carry and draw wit
 Additionally, the lifetime warranty offers peace of mind, knowing that I can rely on this holster for my concealed carry needs. Overall, it's a great product from a reputable company, and I would recommend it to anyone looking for a reliable and versatile inside-the-waistband holster. 
 
 
-### [Premium Kydex Tuckable IWB Holster for Smith & Wesson M&P Shield M2.0](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=premium-kydex-tuckable-iwb-holster-for-smith-wesson-mp-shield-m2-0)
+### [Premium Kydex Tuckable IWB Holster for Smith & Wesson M&P Shield M2.0](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=premium-kydex-tuckable-iwb-holster-for-smith-wesson-mp-shield-m2-0)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=premium-kydex-tuckable-iwb-holster-for-smith-wesson-mp-shield-m2-0"><img alt="concealment-express-tuckable-iwb-kydex-holster-smith-wesson-mp-shield-m2-0-9mm-40sw-w-integrated-cri-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-smith-wesson-mp-shield-m2-0-9mm-40sw-w-integrated-cri-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=premium-kydex-tuckable-iwb-holster-for-smith-wesson-mp-shield-m2-0"><img alt="concealment-express-tuckable-iwb-kydex-holster-smith-wesson-mp-shield-m2-0-9mm-40sw-w-integrated-cri-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-tuckable-iwb-kydex-holster-smith-wesson-mp-shield-m2-0-9mm-40sw-w-integrated-cri-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the Concealment Express Tuckable IWB Kydex Holster, and I must say, it's a game-changer. As someone who carries a Smith & Wesson M&P Shield M2.0 9MM/40SW with an integrated Crimson Trace Laser, it was a relief to find a holster that accommodates my specific weapon setup. The holster is crafted and formed using proprietary precision aluminum molds, which gives it a sleek and minimalist appearance. 
 
@@ -132,9 +132,9 @@ While the holster initially fit my weapon perfectly, I did encounter an issue wi
 Overall, the Concealment Express Tuckable IWB Kydex Holster for my Smith & Wesson M&P Shield M2.0 9MM/40SW with an integrated Crimson Trace Laser is a reliable and comfortable option for everyday concealed carry. Highly recommended! 
 
 
-### [Adjustable FNH 509 OWB KYDEX Paddle Holster for Concealed Carry](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=adjustable-fnh-509-owb-kydex-paddle-holster-for-concealed-carry)
+### [Adjustable FNH 509 OWB KYDEX Paddle Holster for Concealed Carry](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=adjustable-fnh-509-owb-kydex-paddle-holster-for-concealed-carry)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=adjustable-fnh-509-owb-kydex-paddle-holster-for-concealed-carry"><img alt="concealment-express-fnh-509-owb-kydex-paddle-holster-carbon-fiber-black-right-hand-user-adjustable-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-fnh-509-owb-kydex-paddle-holster-carbon-fiber-black-right-hand-user-adjustable-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=adjustable-fnh-509-owb-kydex-paddle-holster-for-concealed-carry"><img alt="concealment-express-fnh-509-owb-kydex-paddle-holster-carbon-fiber-black-right-hand-user-adjustable-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-fnh-509-owb-kydex-paddle-holster-carbon-fiber-black-right-hand-user-adjustable-6/h=540,fit=pad,background=black"/></a></div>
 
 Imagine trying out a Concealment Express FNH 509 holster - it's a game-changer for gun enthusiasts! The first thing that stands out is the perfect fit for the FNH 509. The Kydex paddle holster is a minimalist design that not only secures your weapon but also feels surprisingly lightweight. It's great for every day OWB carry while remaining extremely durable. 
 
@@ -145,9 +145,9 @@ But, what truly sets this holster apart are some exclusive features. The all-bla
 However, this holster does have its cons. It might not fit a FN 509 Tactical perfectly, so double-check beforehand. As for comfort, it does the trick even for long periods of wear. All said and done, this Concealment Express FNH 509 KYDEX paddle holster is worth its weight in gold for those in the know. 
 
 
-### [Concealment Express Bersa Thunder .380 Kydex Holster for Right Hand](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-bersa-thunder-380-kydex-holster-for-right-hand)
+### [Concealment Express Bersa Thunder .380 Kydex Holster for Right Hand](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-bersa-thunder-380-kydex-holster-for-right-hand)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-bersa-thunder-380-kydex-holster-for-right-hand"><img alt="concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-bersa-thunder-380-kydex-holster-for-right-hand"><img alt="concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Rounded IWB Kydex Holster Bersa Thunder. 380 CC for my right hand. It's a minimalist inside the waistband KYDEX holster perfect for everyday concealed carry. The holster features a User Adjustable Cant from -5 to +20 degrees and a durable Kydex finish. 
 
@@ -158,9 +158,9 @@ However, there was a minor negative aspect. While the holster is adjustable, I f
 Overall, I'm pleased with the Rounded IWB Kydex Holster. It's comfortable, lightweight, and durable, making it a perfect choice for everyday concealed carry. 
 
 
-### [Lux Surefire X300U Holster for Weapon Mounted Light](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=lux-surefire-x300u-holster-for-weapon-mounted-light)
+### [Lux Surefire X300U Holster for Weapon Mounted Light](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=lux-surefire-x300u-holster-for-weapon-mounted-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=lux-surefire-x300u-holster-for-weapon-mounted-light"><img alt="concealment-express-lux-surefire-x300u-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-lux-surefire-x300u-holster-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=lux-surefire-x300u-holster-for-weapon-mounted-light"><img alt="concealment-express-lux-surefire-x300u-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-lux-surefire-x300u-holster-1/h=540,fit=pad,background=black"/></a></div>
 
 The Concealment Express Lux Surefire X300U Holster is a well-crafted, light-specific option designed for use with various guns and weapon mounted lights. Made in the USA, this luxury holster boasts a fixed retention system and a stealth belt clip for solid attachment. 
 
@@ -169,18 +169,18 @@ The dedicated appendix IWB design provides full coverage for the weapon light, a
 Overall, this holster delivers a reliable performance and a comfortable fit for many users. 
 
 
-### [Bersa Thunder 380 CC Inside Waistband Holster](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=bersa-thunder-380-cc-inside-waistband-holster)
+### [Bersa Thunder 380 CC Inside Waistband Holster](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=bersa-thunder-380-cc-inside-waistband-holster)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=bersa-thunder-380-cc-inside-waistband-holster"><img alt="concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-carbon-fiber-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-carbon-fiber-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=bersa-thunder-380-cc-inside-waistband-holster"><img alt="concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-carbon-fiber-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-kydex-holster-fits-bersa-thunder-380-cc-right-carbon-fiber-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Sleek and minimalist, the custom-molded Kydex holster for your Bersa Thunder 380 CC offers unbeatable protection while remaining lightweight and durable. Crafted with user-adjustable cant from -5 to +20 degrees, this holster ensures a secure and comfortable fit. With a 1.5-inch fiber reinforced Stealth belt clip, it stays securely in place and is easy to conceal. 
 
 Despite being made in the USA, this holster is surprisingly affordable with a lifetime warranty to back it up. The perfect choice for everyday concealed carry, the Bersa Thunder 380 CC Kydex holster combines style and functionality in a package that's impossible to beat. 
 
 
-### [Concealment Express IWB/OWB Magazine Holster for 9MM/40SW Double Stack Firearms](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-owb-magazine-holster-for-9mm-40sw-double-stack-firearms)
+### [Concealment Express IWB/OWB Magazine Holster for 9MM/40SW Double Stack Firearms](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-owb-magazine-holster-for-9mm-40sw-double-stack-firearms)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-owb-magazine-holster-for-9mm-40sw-double-stack-firearms"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-owb-magazine-holster-for-9mm-40sw-double-stack-firearms"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-double-stack-mrd-1/h=540,fit=pad,background=black"/></a></div>
 
 The Concealment Express Ambidextrous Magazine Holster is a versatile and practical accessory for gun enthusiasts. The holster can be used for Inside-the-Waistband (IWB) and Outside-the-Waistband (OWB) carry, accommodating both left and right-handed users. The magnetic retention device (MRD) makes it easy to secure your spare magazine while adjusting the pressure on the flat side of the mag. 
 
@@ -193,18 +193,18 @@ However, some users have reported mild discomfort when sitting for extended peri
 In summary, the Concealment Express Magazine Holster is a highly adjustable and versatile accessory that caters to the needs of handgun owners. Its compatibility with various calibers and configurations, along with its slim design and adjustable retention, make it a popular choice among gun enthusiasts. While some users have encountered minor issues, the holster's advantages far outweigh its drawbacks. 
 
 
-### [Concealment Express Lux Streamlight TLR-1 Holster for Weapon Mounted Light](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-lux-streamlight-tlr-1-holster-for-weapon-mounted-light)
+### [Concealment Express Lux Streamlight TLR-1 Holster for Weapon Mounted Light](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-lux-streamlight-tlr-1-holster-for-weapon-mounted-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-lux-streamlight-tlr-1-holster-for-weapon-mounted-light"><img alt="concealment-express-lux-streamlight-tlr-1-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-lux-streamlight-tlr-1-holster-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-lux-streamlight-tlr-1-holster-for-weapon-mounted-light"><img alt="concealment-express-lux-streamlight-tlr-1-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-lux-streamlight-tlr-1-holster-1/h=540,fit=pad,background=black"/></a></div>
 
 The Concealment Express Lux Streamlight TLR-1 Holster is a versatile and high-quality option for those in search of a holster to accommodate their weapon-mounted light. Crafted with precision aluminum molds, this holster is designed for light-specific use and fits most guns. Its smooth draw and ability to re-holster make it an excellent choice for everyday carry. 
 
 The Lux also includes features such as an integrated wedge and belt ledge for improved concealment, comfort, and security. The product's lifetime warranty and made-in-the-USA origin add to its appeal as a reliable and durable option. 
 
 
-### [Concealment Express: IWB Holster Belt Clip, Secure Fit for Your Gun](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-holster-belt-clip-secure-fit-for-your-gun)
+### [Concealment Express: IWB Holster Belt Clip, Secure Fit for Your Gun](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-holster-belt-clip-secure-fit-for-your-gun)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-holster-belt-clip-secure-fit-for-your-gun"><img alt="concealment-express-standard-1-5-belt-clip-for-iwb-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-standard-1-5-belt-clip-for-iwb-holster-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-holster-belt-clip-secure-fit-for-your-gun"><img alt="concealment-express-standard-1-5-belt-clip-for-iwb-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-standard-1-5-belt-clip-for-iwb-holster-1/h=540,fit=pad,background=black"/></a></div>
 
 Concealment Express Holster Belt Clip
 
@@ -217,9 +217,9 @@ However, using this belt clip has its downsides too. Despite its versatility, th
 Overall, the Concealment Express Holster Belt Clip is a reliable and functional piece of equipment. With a few tweaks and improvements, it could be even better. But for now, it works well, and it's a great choice for anyone looking for a high-quality, versatile belt clip for their holster. 
 
 
-### [Concealment Express Ambidextrous Kydex Magazine Holster](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-ambidextrous-kydex-magazine-holster)
+### [Concealment Express Ambidextrous Kydex Magazine Holster](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-ambidextrous-kydex-magazine-holster)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-ambidextrous-kydex-magazine-holster"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-ambidextrous-kydex-magazine-holster"><img alt="concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-iwb-owb-kydex-single-magazine-holster-black-9mm-40sw-single-stack-mrd-1/h=540,fit=pad,background=black"/></a></div>
 
 The Concealment Express Magazine Retention Device (MRD) Magazine Holster is an ideal option for those looking to carry spare magazines conveniently. Its ambidextrous design means it is suitable for both left-handed and right-handed users, making it a versatile choice. The Kydex material ensures durability and sturdy construction, which can stand up against frequent use. 
 
@@ -230,9 +230,9 @@ Like any product, the Concealment Express MRD Magazine Holster boasts its pros a
 Despite these minor concerns, the Concealment Express Magazine Holster is an attractive option for those seeking a reliable and customizable solution for their magazine carrier needs. Its high rating and large number of positive reviews reflect the value that many customers have found in this product. While it may not be perfect for every individual, its versatility and durability make it a suitable choice for most users. 
 
 
-### [Concealment Express IWB/Tuckable Holster Claw Kit](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-tuckable-holster-claw-kit)
+### [Concealment Express IWB/Tuckable Holster Claw Kit](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-iwb-tuckable-holster-claw-kit)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-tuckable-holster-claw-kit"><img alt="concealment-express-holster-claw-kit-iwb-tuckable-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-holster-claw-kit-iwb-tuckable-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-iwb-tuckable-holster-claw-kit"><img alt="concealment-express-holster-claw-kit-iwb-tuckable-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-holster-claw-kit-iwb-tuckable-1/h=540,fit=pad,background=black"/></a></div>
 
 Just when I thought I couldn't find concealed carry solutions that fit my needs perfectly, the Concealment Express Holster Claw Kit came to the rescue. The custom fit and design, combined with the hardware options, made it so easy to adjust and adapt. I've been using it for a couple of weeks now, and it's definitely made a difference in the way my holster fits. 
 
@@ -243,9 +243,9 @@ Not everything is perfect, though. The holster claw itself felt a little oversiz
 Overall, though, I would definitely recommend this claw kit to anyone looking for a more comfortable and discreet solution for their concealed carry holster. It just goes to show that the right tools make all the difference. 
 
 
-### [Concealment Express - S&W M&P M2.0 Tuckable Kydex Holster in Carbon Fiber Black, Ambidextrous](https://serp.ly/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-sw-mp-m2-0-tuckable-kydex-holster-in-carbon-fiber-black-ambidextrous)
+### [Concealment Express - S&W M&P M2.0 Tuckable Kydex Holster in Carbon Fiber Black, Ambidextrous](https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm\_term=concealment-express-sw-mp-m2-0-tuckable-kydex-holster-in-carbon-fiber-black-ambidextrous)
 
-<div class="image"><a href="https://serp.ly/amazon/Concealment+Express+Holsters?utm_term=concealment-express-sw-mp-m2-0-tuckable-kydex-holster-in-carbon-fiber-black-ambidextrous"><img alt="concealment-express-smith-wesson-mp-m2-0-tuckable-iwb-kydex-holster-carbon-fiber-black-ambidextrous--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-smith-wesson-mp-m2-0-tuckable-iwb-kydex-holster-carbon-fiber-black-ambidextrous--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters?utm_term=concealment-express-sw-mp-m2-0-tuckable-kydex-holster-in-carbon-fiber-black-ambidextrous"><img alt="concealment-express-smith-wesson-mp-m2-0-tuckable-iwb-kydex-holster-carbon-fiber-black-ambidextrous--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/concealment-express-smith-wesson-mp-m2-0-tuckable-iwb-kydex-holster-carbon-fiber-black-ambidextrous--1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the ultimate concealed carry solution from Concealment Express - the Smith & Wesson M&P M2.0 Tuckable IWB Kydex Holster, meticulously crafted from carbon fiber for an exceptional blend of minimalism and resilience. Ideal for everyday carry, this holster showcases an ambidextrous design that enables effortless switching between left and right-hand carry. 
 
@@ -267,7 +267,7 @@ Concealment Express Holsters are a popular choice for gun owners seeking durable
 
 Concealment Express Holsters are made from high-quality materials, ensuring durability and flexibility. Some of the materials used include nylon, kydex, and leather. Nylon holsters are lightweight and affordable, while kydex holsters offer rigidity and retention. Leather holsters provide a classic look and a great balance between durability and flexibility. 
 
-<div><a href="https://serp.ly/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-2/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-2/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-2" height="540"></a></div>
 
 
 ### Fit and Comfort
@@ -279,7 +279,7 @@ Fit and comfort are crucial factors to consider when purchasing a Concealment Ex
 
 A good holster should securely hold your firearm in place while still allowing for easy access during an emergency. Concealment Express Holsters offer various retention systems, such as positive click retention or adjustable tension devices. Explore these options to find the right balance between security and ease of use. 
 
-<div><a href="https://serp.ly/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-3/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-3/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-3" height="540"></a></div>
 
 
 ### Versatility and Customization
@@ -289,7 +289,7 @@ Concealment Express Holsters provide multiple carrying options, including inside
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-4/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-4/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-4" height="540"></a></div>
 
 
 ### What types of holsters are available from Concealment Express?
@@ -305,7 +305,7 @@ Concealment Express provides a 30-day return policy for their holsters, enabling
 
 Customers who wish to return a Concealment Express holster should contact the company's customer service team to initiate the process. Upon approval, the customer will receive a return shipping label and instructions for how to send the holster back to the company. The return shipment is the responsibility of the customer, and shipping fees are non-refundable. Once the holster is received and inspected by Concealment Express, the company will issue a full refund or a replacement holster, depending on the reason for the return. 
 
-<div><a href="https://serp.ly/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-5/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-5/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-5" height="540"></a></div>
 
 
 ### How do I choose the right holster size for my firearm?
@@ -321,7 +321,7 @@ Concealment Express holsters are made using high-quality materials such as leath
 
 These materials are chosen for their ability to provide a secure and comfortable fit for your firearm, while still maintaining a low profile for concealed carry. Additionally, each material offers its own set of benefits, such as quicker draw times, reduced wear on the firearm's finish, and long-lasting durability. Customers have the option to choose the material that best suits their needs and personal preferences when selecting a Concealment Express holster. 
 
-<div><a href="https://serp.ly/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-6/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Concealment+Express+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Concealment-Express-Holsters-6/h=540,fit=pad,background=black" alt="Concealment-Express-Holsters-6" height="540"></a></div>
 
 
 ### What is the price range for Concealment Express holsters?

@@ -14,9 +14,9 @@ Welcome to our Cardstock Printing roundup! In this article, we've compiled an ex
 ## Reviews
 
 
-### [Gloss Digital Cardstock Paper for Color Laser Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=gloss-digital-cardstock-paper-for-color-laser-printing)
+### [Gloss Digital Cardstock Paper for Color Laser Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=gloss-digital-cardstock-paper-for-color-laser-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=gloss-digital-cardstock-paper-for-color-laser-printing"><img alt="double-sided-gloss-digital-c2s-cardstock-paper-perfect-for-color-laser-printing-design-proposals-fly-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/double-sided-gloss-digital-c2s-cardstock-paper-perfect-for-color-laser-printing-design-proposals-fly-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=gloss-digital-cardstock-paper-for-color-laser-printing"><img alt="double-sided-gloss-digital-c2s-cardstock-paper-perfect-for-color-laser-printing-design-proposals-fly-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/double-sided-gloss-digital-c2s-cardstock-paper-perfect-for-color-laser-printing-design-proposals-fly-1/h=540,fit=pad,background=black"/></a></div>
 
 This Double-Sided Gloss Digital Cardstock is perfect for all your printing needs, whether it's for professional-looking color laser printing or creating eye-catching designs for flyers, brochures, and posters. A versatile option that works well in various formats, you can easily print on it using high-speed offset application or copiers, making it a great cost-effective solution for everyday projects. 
 
@@ -25,18 +25,18 @@ Made from 100lb cover (270gsm) cardstock, this paper has a double-sided glossy f
 Not only suitable for small projects, it's a fantastic choice for larger ones too, making it an excellent choice for business and personal needs. And the cherry on top, it's MADE RIGHT HERE in the USA! 
 
 
-### [Silver Diamond Print Inkjet Glitter Cardstock for Unique Designs](https://serp.ly/amazon/Cardstock+Printing?utm\_term=silver-diamond-print-inkjet-glitter-cardstock-for-unique-designs)
+### [Silver Diamond Print Inkjet Glitter Cardstock for Unique Designs](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=silver-diamond-print-inkjet-glitter-cardstock-for-unique-designs)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=silver-diamond-print-inkjet-glitter-cardstock-for-unique-designs"><img alt="silver-diamond-print-inkjet-glitter-cardstock-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/silver-diamond-print-inkjet-glitter-cardstock-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=silver-diamond-print-inkjet-glitter-cardstock-for-unique-designs"><img alt="silver-diamond-print-inkjet-glitter-cardstock-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/silver-diamond-print-inkjet-glitter-cardstock-1/h=540,fit=pad,background=black"/></a></div>
 
 Elevate your projects to a whole new level of glitz with our Silver Diamond Print Inkjet Glitter Cardstock. This top-notch glitter paper is a fantastic choice for those special events, invitations, greeting cards, and scrapbooking endeavors. Each sparkle has been meticulously crafted to produce a bright glow that is perfect for festive occasions, holidays, or gatherings of any kind. 
 
 With our glitter cardstock, you can achieve pristine and precise cuts, regardless of whether you're working with a handheld or a machine blade. Enhance the visual allure and grandeur of your projects by incorporating Silver Diamond's premium quality glitter cardstock paper.
 
 
-### [White Professional Blank Cardstock for Printer Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=white-professional-blank-cardstock-for-printer-printing)
+### [White Professional Blank Cardstock for Printer Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=white-professional-blank-cardstock-for-printer-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=white-professional-blank-cardstock-for-printer-printing"><img alt="joyberg-white-cardstock-85-x-11-230gsm-cover-cardstock-paper-85-lb-heavy-card-stock-for-printer-card-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joyberg-white-cardstock-85-x-11-230gsm-cover-cardstock-paper-85-lb-heavy-card-stock-for-printer-card-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=white-professional-blank-cardstock-for-printer-printing"><img alt="joyberg-white-cardstock-85-x-11-230gsm-cover-cardstock-paper-85-lb-heavy-card-stock-for-printer-card-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joyberg-white-cardstock-85-x-11-230gsm-cover-cardstock-paper-85-lb-heavy-card-stock-for-printer-card-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to thin and weak cardstock with the Joyberg White Cardstock. It's an 85 lb heavy card stock that's perfect for printing high-quality items like invitations, scrapbooking, or even crafts. 
 
@@ -45,9 +45,9 @@ With 30 sheets in the package, you'll have enough to cover various projects with
 While it's suitable for inkjet printers and even laser printers, be cautious with photocopiers as they may not handle it smoothly. Overall, this white cardstock delivers on its promises of high-quality print results. 
 
 
-### [Matte 8.5 x 11 Cardstock Paper for Invitations and Scrapbooking](https://serp.ly/amazon/Cardstock+Printing?utm\_term=matte-8-5-x-11-cardstock-paper-for-invitations-and-scrapbooking)
+### [Matte 8.5 x 11 Cardstock Paper for Invitations and Scrapbooking](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=matte-8-5-x-11-cardstock-paper-for-invitations-and-scrapbooking)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=matte-8-5-x-11-cardstock-paper-for-invitations-and-scrapbooking"><img alt="100-sheets-cardstock-paper-8-5-x-11-black-thick-paper-80lb-card-stock-printer-paper-for-invitations--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-sheets-cardstock-paper-8-5-x-11-black-thick-paper-80lb-card-stock-printer-paper-for-invitations--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=matte-8-5-x-11-cardstock-paper-for-invitations-and-scrapbooking"><img alt="100-sheets-cardstock-paper-8-5-x-11-black-thick-paper-80lb-card-stock-printer-paper-for-invitations--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-sheets-cardstock-paper-8-5-x-11-black-thick-paper-80lb-card-stock-printer-paper-for-invitations--1/h=540,fit=pad,background=black"/></a></div>
 
 As a crafter and card enthusiast, I've been on the lookout for quality cardstock paper that could be used for a variety of projects. Finally, I stumbled upon Bubbley's 100 sheets Card Stock Printer Paper in black matte finish. 
 
@@ -60,18 +60,18 @@ Despite the issue, the overall experience was positive. I was satisfied with the
 I would definitely recommend this product to anyone looking for a premium cardstock paper for their invitations, scrapbooking, or DIY creations. 
 
 
-### [Linen Textured Cardstock for High-Quality Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=linen-textured-cardstock-for-high-quality-printing)
+### [Linen Textured Cardstock for High-Quality Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=linen-textured-cardstock-for-high-quality-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=linen-textured-cardstock-for-high-quality-printing"><img alt="superfine-printing-white-linen-textured-8-1-2-x-11-inches-card-stock-80lb-25-papers-per-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superfine-printing-white-linen-textured-8-1-2-x-11-inches-card-stock-80lb-25-papers-per-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=linen-textured-cardstock-for-high-quality-printing"><img alt="superfine-printing-white-linen-textured-8-1-2-x-11-inches-card-stock-80lb-25-papers-per-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superfine-printing-white-linen-textured-8-1-2-x-11-inches-card-stock-80lb-25-papers-per-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine crafting your own unique Christmas cards with the Superfine Printing White Linen Cardstock. As a busy mom, I needed something that was easy to use and looked professional. This Linen white cardstock really stood out to me! It's thick enough to give a premium feel and the linen finish on both sides creates a beautiful texture. 
 
 Using it on my inkjet printer was a breeze. The cardstock printed wonderfully, without any paper jam issues. It's a great choice for creating postcards or invitations too! However, I did notice that it takes a little more effort to cut than regular paper. The Linen white cardstock measures 8 1/2 x 11 inches and comes in a pack of 25 sheets. It's been my go-to choice for all my DIY printing projects. 
 
 
-### [Premium 10x10 Square Cardstock for Crafts and Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-10x10-square-cardstock-for-crafts-and-printing)
+### [Premium 10x10 Square Cardstock for Crafts and Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-10x10-square-cardstock-for-crafts-and-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-10x10-square-cardstock-for-crafts-and-printing"><img alt="premium-10x10-square-cardstock-for-crafts-and-printing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/premium-10x10-square-cardstock-for-crafts-and-printing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-10x10-square-cardstock-for-crafts-and-printing"><img alt="premium-10x10-square-cardstock-for-crafts-and-printing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/premium-10x10-square-cardstock-for-crafts-and-printing-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I stumbled upon this Premium 10x10 Square Cardstock that's been making waves in the world of crafting and printing. It's a versatile gem, made in the USA and boasting an impressive 10-inch by 10-inch size. The main draw, however, is its durability and compatibility with various printers. 
 
@@ -80,9 +80,9 @@ When I received it, I was excited to explore its potential for craft projects, a
 While this cardstock is a top-tier choice, it does come at a premium price. However, considering the longevity and quality of the final product, it might be worthwhile. In summary, this 10x10 Square Cardstock is a great choice for those who value precision, craftsmanship, and longevity in their prints and projects. 
 
 
-### [High-Quality Printable Multipurpose Cardstock for Bright, Smooth Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=high-quality-printable-multipurpose-cardstock-for-bright-smooth-printing)
+### [High-Quality Printable Multipurpose Cardstock for Bright, Smooth Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=high-quality-printable-multipurpose-cardstock-for-bright-smooth-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=high-quality-printable-multipurpose-cardstock-for-bright-smooth-printing"><img alt="springhill-printable-multipurpose-card-stock-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springhill-printable-multipurpose-card-stock-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=high-quality-printable-multipurpose-cardstock-for-bright-smooth-printing"><img alt="springhill-printable-multipurpose-card-stock-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/springhill-printable-multipurpose-card-stock-1/h=540,fit=pad,background=black"/></a></div>
 
 Springhill Printable Multipurpose Card Stock is a versatile and high-quality option for all your printing needs. With an impressive 92 brightness rating, this cardstock offers vibrant colors that truly pop, making it perfect for creating eye-catching designs. 
 
@@ -91,9 +91,9 @@ Available in letter size, it measures 8 1/2 inches by 11 inches, providing ample
 Additionally, it comes with the eco-friendly FSC certification, making it a responsible choice for the environmentally conscious user. Overall, Springhill Printable Multipurpose Card Stock offers an exceptional blend of durability, brightness, and versatility, making it a top choice for a wide range of applications. 
 
 
-### [Premium Photo Greeting Cards with Scalloped Corners](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-photo-greeting-cards-with-scalloped-corners)
+### [Premium Photo Greeting Cards with Scalloped Corners](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-photo-greeting-cards-with-scalloped-corners)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-photo-greeting-cards-with-scalloped-corners"><img alt="personalized-full-photo-5x7-cards-premium-cardstock-120lb-with-scalloped-corners-card-stationery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/personalized-full-photo-5x7-cards-premium-cardstock-120lb-with-scalloped-corners-card-stationery-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-photo-greeting-cards-with-scalloped-corners"><img alt="personalized-full-photo-5x7-cards-premium-cardstock-120lb-with-scalloped-corners-card-stationery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/personalized-full-photo-5x7-cards-premium-cardstock-120lb-with-scalloped-corners-card-stationery-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently used these personalized full photo 5x7 cards for a friend's birthday, and I must say, I was impressed with the quality. The scalloped corners added a touch of elegance, and they were easy to personalize with my own photos and text. 
 
@@ -102,9 +102,9 @@ The premium cardstock, with a weight of 120lb, felt sturdy and gave the cards a 
 Overall, I would highly recommend these cards for those looking for a stylish and high-quality option to showcase their personal photos. 
 
 
-### [Premium Colored Cardstock for Invitation & Card Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-colored-cardstock-for-invitation-card-printing)
+### [Premium Colored Cardstock for Invitation & Card Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-colored-cardstock-for-invitation-card-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-colored-cardstock-for-invitation-card-printing"><img alt="custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-colored-cardstock-for-invitation-card-printing"><img alt="custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the CUSTZ 80 Sheets Thick Cardstock and found it to be an ideal choice for my DIY crafts. With a range of beautiful colors, this premium paper stood out for its smooth and heavy texture, making it perfect for creating eye-catching wedding invitations, menus, and DIY cards. I was particularly impressed with its acid-free and environmentally friendly qualities, which left me feeling good about my crafting choices. 
 
@@ -113,9 +113,9 @@ One of the highlights of this cardstock was its superior strength, allowing me t
 Overall, the CUSTZ 80 Sheets Thick Cardstock is a great choice for anyone looking to create professional-looking and long-lasting DIY crafts. With its wide range of colors, acid-free and environmentally friendly nature, and superior strength for various crafting techniques, I would definitely recommend giving it a try for your next project. 
 
 
-### [Carta Bella High-Quality Cardstock for 12"x12" Print Projects](https://serp.ly/amazon/Cardstock+Printing?utm\_term=carta-bella-high-quality-cardstock-for-12x12-print-projects)
+### [Carta Bella High-Quality Cardstock for 12"x12" Print Projects](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=carta-bella-high-quality-cardstock-for-12x12-print-projects)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=carta-bella-high-quality-cardstock-for-12x12-print-projects"><img alt="carta-bella-printed-80lb-cover-cardstock-12x12-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/carta-bella-printed-80lb-cover-cardstock-12x12-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=carta-bella-high-quality-cardstock-for-12x12-print-projects"><img alt="carta-bella-printed-80lb-cover-cardstock-12x12-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/carta-bella-printed-80lb-cover-cardstock-12x12-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Carta Bella Printed 80lb Cover Cardstock and boy, was it a game-changer! This durable 12x12 double-sided sheet can handle any printing task with ease, thanks to its impressive 80lb weight. The pristine white color really shines through, making it perfect for high-quality printing. 
 
@@ -126,9 +126,9 @@ While Carta Bella's Printed 80lb Cover Cardstock is incredible, it's not without
 Let's just say that once you start printing with this cardstock, you'll wonder how you ever managed without it. It certainly exceeded my expectations and I believe it'll do the same for you! 
 
 
-### [CUSTZ 80 Sheets Heavy Cream Cardstock for Invitations and DIY Crafts](https://serp.ly/amazon/Cardstock+Printing?utm\_term=custz-80-sheets-heavy-cream-cardstock-for-invitations-and-diy-crafts)
+### [CUSTZ 80 Sheets Heavy Cream Cardstock for Invitations and DIY Crafts](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=custz-80-sheets-heavy-cream-cardstock-for-invitations-and-diy-crafts)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=custz-80-sheets-heavy-cream-cardstock-for-invitations-and-diy-crafts"><img alt="custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=custz-80-sheets-heavy-cream-cardstock-for-invitations-and-diy-crafts"><img alt="custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/custz-80-sheets-thick-cardstock-colored-premium-smooth-heavy-8-5x11-80lb-210gsm-printer-paper-for-in-1/h=540,fit=pad,background=black"/></a></div>
 
 This premium cardstock is nothing short of a creative powerhouse. With its 80 thick sheets per pack, it's perfect for double-sided design. Its acid-free and eco-friendly composition adds an extra layer of guilt-free creativity. From creating bold, vibrant invitations to intricate school crafts, this cardstock shines in multiple scenarios, making it a versatile tool for any artist or crafter. 
 
@@ -137,18 +137,18 @@ Its superior strength ensures it handles well during die-cutting, scoring, and f
 Unfortunately, it does not have an ideal rating or reviews yet, so we can't comment on its performance in real-world usage. Nevertheless, based on its specific features and the potential applications it promises, it could be a worthy investment for those looking for a multipurpose, quality printer paper. 
 
 
-### [Premium White Legal Size Cardstock for Document Printing (100 Sheets)](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-white-legal-size-cardstock-for-document-printing-100-sheets)
+### [Premium White Legal Size Cardstock for Document Printing (100 Sheets)](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-white-legal-size-cardstock-for-document-printing-100-sheets)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-white-legal-size-cardstock-for-document-printing-100-sheets"><img alt="8-1-2-x-14-white-legal-size-card-stock-paper-premium-smooth-65lb-cover-cardstock-perfect-for-documen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/8-1-2-x-14-white-legal-size-card-stock-paper-premium-smooth-65lb-cover-cardstock-perfect-for-documen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-white-legal-size-cardstock-for-document-printing-100-sheets"><img alt="8-1-2-x-14-white-legal-size-card-stock-paper-premium-smooth-65lb-cover-cardstock-perfect-for-documen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/8-1-2-x-14-white-legal-size-card-stock-paper-premium-smooth-65lb-cover-cardstock-perfect-for-documen-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently used this 8.5 x 14 inch white legal size card stock paper for a project and was quite impressed. The premium smooth 65lb cover felt just right in my hands - perfect for documents, programs, and menus. The super white finish with a 96 brightness rating made my text and images stand out beautifully. 
 
 I also liked that it was acid and lignin free, ensuring its longevity and vibrancy. Printing with it was a breeze, and it worked well with laser, inkjet, and offset printers. Plus, being made and packaged in the USA added an extra touch of pride to the product. 
 
 
-### [Joyberg Premium White Printer Paper - 90 lb Heavy Cardstock](https://serp.ly/amazon/Cardstock+Printing?utm\_term=joyberg-premium-white-printer-paper-90-lb-heavy-cardstock)
+### [Joyberg Premium White Printer Paper - 90 lb Heavy Cardstock](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=joyberg-premium-white-printer-paper-90-lb-heavy-cardstock)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=joyberg-premium-white-printer-paper-90-lb-heavy-cardstock"><img alt="joyberg-white-cardstock-8x10-cardstock-paper-250gsm-thick-cardstock-smooth-card-paper90-lb-heavy-car-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joyberg-white-cardstock-8x10-cardstock-paper-250gsm-thick-cardstock-smooth-card-paper90-lb-heavy-car-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=joyberg-premium-white-printer-paper-90-lb-heavy-cardstock"><img alt="joyberg-white-cardstock-8x10-cardstock-paper-250gsm-thick-cardstock-smooth-card-paper90-lb-heavy-car-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joyberg-white-cardstock-8x10-cardstock-paper-250gsm-thick-cardstock-smooth-card-paper90-lb-heavy-car-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the Joyberg White Cardstock, and let me tell you, it's been a game-changer in my world of paper products. With its 8" x 10" size, it's perfect for creating invitations, notices, and announcement cards that catch people's attention. I've used it for various fine announcements, as well as incorporating it into my artistic projects. 
 
@@ -159,9 +159,9 @@ However, I must admit that I've encountered one issue with the Joyberg White Car
 All in all, I highly recommend the Joyberg White Cardstock for anyone looking for a versatile and high-quality paper product. Its smooth surface, sturdy thickness, and wide array of uses make it a must-have in any stationery enthusiast's collection. 
 
 
-### [Pen + Gear Premium 8.5 x 11 Inch White Cardstock for Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=pen-gear-premium-8-5-x-11-inch-white-cardstock-for-printing)
+### [Pen + Gear Premium 8.5 x 11 Inch White Cardstock for Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=pen-gear-premium-8-5-x-11-inch-white-cardstock-for-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=pen-gear-premium-8-5-x-11-inch-white-cardstock-for-printing"><img alt="pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=pen-gear-premium-8-5-x-11-inch-white-cardstock-for-printing"><img alt="pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
 As a stationery enthusiast, I've always been on the lookout for high-quality paper for all my DIY projects. Pen+Gear White Card Stock caught my eye due to its bright white shade and promising print results. I have to say, the packaging is nice and it was a breeze to set up. 
 
@@ -174,9 +174,9 @@ Furthermore, I appreciate its sustainability features, as it's sourced from envi
 Overall, Pen+Gear White Card Stock is a high-quality choice for anyone in need of versatile and long-lasting paper stock for their projects. Highly recommended! 
 
 
-### [Sustainable Greetings 5x7 Cardstock Postcard Pack for Invitations](https://serp.ly/amazon/Cardstock+Printing?utm\_term=sustainable-greetings-5x7-cardstock-postcard-pack-for-invitations)
+### [Sustainable Greetings 5x7 Cardstock Postcard Pack for Invitations](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=sustainable-greetings-5x7-cardstock-postcard-pack-for-invitations)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=sustainable-greetings-5x7-cardstock-postcard-pack-for-invitations"><img alt="sustainable-greetings-200-pack-5x7-cardstock-postcards-for-invitations-110-lb-cover-card-300gsm-blan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sustainable-greetings-200-pack-5x7-cardstock-postcards-for-invitations-110-lb-cover-card-300gsm-blan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=sustainable-greetings-5x7-cardstock-postcard-pack-for-invitations"><img alt="sustainable-greetings-200-pack-5x7-cardstock-postcards-for-invitations-110-lb-cover-card-300gsm-blan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sustainable-greetings-200-pack-5x7-cardstock-postcards-for-invitations-110-lb-cover-card-300gsm-blan-1/h=540,fit=pad,background=black"/></a></div>
 
 As a dedicated crafter, I stumbled upon Sustainable Greetings' 200 Pack 5x7 Cardstock Postcards for Invitations. The thick, heavyweight paper impressed me right away, perfect for adding a touch of elegance to my handmade invitations, photo albums, and travel journals. The matte finish made the paper even more alluring, and I couldn't resist using them for my latest DIY project. 
 
@@ -185,9 +185,9 @@ However, I did need to consult my printer manual before diving in to ensure comp
 Overall, these cards proved to be a great investment for my paper crafting passion, and I'd highly recommend them to fellow crafters looking for high-quality, sustainable materials to bring their creations to life. 
 
 
-### [Utron Cardstock Printing Paper for Create Custom Projects](https://serp.ly/amazon/Cardstock+Printing?utm\_term=utron-cardstock-printing-paper-for-create-custom-projects)
+### [Utron Cardstock Printing Paper for Create Custom Projects](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=utron-cardstock-printing-paper-for-create-custom-projects)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=utron-cardstock-printing-paper-for-create-custom-projects"><img alt="utron-56-pack-5x7-cardstock-paper-white-blank-cardstock-250gsm-thick-paper-blank-heavy-weight-90-lb--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/utron-56-pack-5x7-cardstock-paper-white-blank-cardstock-250gsm-thick-paper-blank-heavy-weight-90-lb--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=utron-cardstock-printing-paper-for-create-custom-projects"><img alt="utron-56-pack-5x7-cardstock-paper-white-blank-cardstock-250gsm-thick-paper-blank-heavy-weight-90-lb--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/utron-56-pack-5x7-cardstock-paper-white-blank-cardstock-250gsm-thick-paper-blank-heavy-weight-90-lb--1/h=540,fit=pad,background=black"/></a></div>
 
 When I needed a durable and smooth paper for creating a personalized invitation for my friend's birthday, I turned to the Utron 56 Pack 5x7 Cardstock Paper. This paper has a 250gsm thickness, making it perfect for drawing or writing on with ease and creating a professional-looking result. 
 
@@ -198,9 +198,9 @@ What I also appreciated was the package's generous 56 pieces of white blank pape
 While I loved the smoothness and durability of this Cardstock Paper, I found the glossiness a bit too much for some of my creative projects. A slightly less glossy finish would have made it a perfect option for all kinds of artistic endeavors. Overall, the Utron 56 Pack 5x7 Cardstock Paper was a great choice for me and would be a suitable pick for anyone looking for a versatile printing paper. 
 
 
-### [Premium White Cardstock for Quality Printing - 8.5"x11" Heavyweight 80 lb Cover Stock](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-white-cardstock-for-quality-printing-8-5x11-heavyweight-80-lb-cover-stock)
+### [Premium White Cardstock for Quality Printing - 8.5"x11" Heavyweight 80 lb Cover Stock](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-white-cardstock-for-quality-printing-8-5x11-heavyweight-80-lb-cover-stock)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-white-cardstock-for-quality-printing-8-5x11-heavyweight-80-lb-cover-stock"><img alt="hamilco-white-cardstock-thick-paper-8-1-2-x-11-blank-heavy-weight-80-lb-cover-card-stock-for-brochur-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hamilco-white-cardstock-thick-paper-8-1-2-x-11-blank-heavy-weight-80-lb-cover-card-stock-for-brochur-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-white-cardstock-for-quality-printing-8-5x11-heavyweight-80-lb-cover-stock"><img alt="hamilco-white-cardstock-thick-paper-8-1-2-x-11-blank-heavy-weight-80-lb-cover-card-stock-for-brochur-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hamilco-white-cardstock-thick-paper-8-1-2-x-11-blank-heavy-weight-80-lb-cover-card-stock-for-brochur-1/h=540,fit=pad,background=black"/></a></div>
 
 When I needed to create greeting cards, I decided to try the Hamilco White Cardstock Papers. I was impressed by the smooth, thick, and plush surface, which made all my pictures, quotes, and inspirational lines stand out. 
 
@@ -209,9 +209,9 @@ The cardstock was perfect for both personal and professional use, and the price 
 Overall, I had a positive experience, and I would definitely recommend the Hamilco White Cardstock Papers for those looking to create stunning creations. 
 
 
-### [Premium 80lb 6x6 Square Cardstock for Art, Scrapbooking, and Printing](https://serp.ly/amazon/Cardstock+Printing?utm\_term=premium-80lb-6x6-square-cardstock-for-art-scrapbooking-and-printing)
+### [Premium 80lb 6x6 Square Cardstock for Art, Scrapbooking, and Printing](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=premium-80lb-6x6-square-cardstock-for-art-scrapbooking-and-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=premium-80lb-6x6-square-cardstock-for-art-scrapbooking-and-printing"><img alt="s-superfine-printing-6-x-6-square-cardstock-80lb-cover-white-thick-card-stock-paper-smooth-finish-fo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/s-superfine-printing-6-x-6-square-cardstock-80lb-cover-white-thick-card-stock-paper-smooth-finish-fo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=premium-80lb-6x6-square-cardstock-for-art-scrapbooking-and-printing"><img alt="s-superfine-printing-6-x-6-square-cardstock-80lb-cover-white-thick-card-stock-paper-smooth-finish-fo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/s-superfine-printing-6-x-6-square-cardstock-80lb-cover-white-thick-card-stock-paper-smooth-finish-fo-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who loves to dabble in arts and crafts, I recently had the chance to use S Superfine Printing's 6x6 Square Cardstock. I must say, this cardstock is a game-changer for my projects. 
 
@@ -224,9 +224,9 @@ The acid-free and lignin-free nature of this cardstock is also a major plus. It 
 Overall, I highly recommend S Superfine Printing's cardstock for anyone looking to take their arts and crafts to the next level. It's versatile, sturdy, and has a smooth, vibrant finish that makes your designs really come alive. 
 
 
-### [White Linen Party Invitations Cardstock](https://serp.ly/amazon/Cardstock+Printing?utm\_term=white-linen-party-invitations-cardstock)
+### [White Linen Party Invitations Cardstock](https://serp.ly/@outrun/amazon/Cardstock+Printing?utm\_term=white-linen-party-invitations-cardstock)
 
-<div class="image"><a href="https://serp.ly/amazon/Cardstock+Printing?utm_term=white-linen-party-invitations-cardstock"><img alt="white-linen-textured-specialty-cardstock-blank-thick-8-1-2-x-11-inches-heavyweight-card-stock-for-pr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-linen-textured-specialty-cardstock-blank-thick-8-1-2-x-11-inches-heavyweight-card-stock-for-pr-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Cardstock+Printing?utm_term=white-linen-party-invitations-cardstock"><img alt="white-linen-textured-specialty-cardstock-blank-thick-8-1-2-x-11-inches-heavyweight-card-stock-for-pr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-linen-textured-specialty-cardstock-blank-thick-8-1-2-x-11-inches-heavyweight-card-stock-for-pr-1/h=540,fit=pad,background=black"/></a></div>
 
 This textured cardstock will bring a touch of elegance to your projects. Made with durability in mind, the 80lb text paper features a rich, natural linen feel. 
 

@@ -14,9 +14,9 @@ Are you in the market for a new desk that's not only stylish but also eco-friend
 ## Reviews
 
 
-### [Quick and Efficient Bush Furniture Office-in-an-Hour Computer Desk](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=quick-and-efficient-bush-furniture-office-in-an-hour-computer-desk)
+### [Quick and Efficient Bush Furniture Office-in-an-Hour Computer Desk](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=quick-and-efficient-bush-furniture-office-in-an-hour-computer-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=quick-and-efficient-bush-furniture-office-in-an-hour-computer-desk"><img alt="bush-furniture-office-in-an-hour-straight-workstation-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-office-in-an-hour-straight-workstation-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=quick-and-efficient-bush-furniture-office-in-an-hour-computer-desk"><img alt="bush-furniture-office-in-an-hour-straight-workstation-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-office-in-an-hour-straight-workstation-1/h=540,fit=pad,background=black"/></a></div>
 
 Elevate your workspace to a professional level in no time with the Bush Furniture Office-in-an-Hour Straight Workstation. This adaptable, speedily-constructed desk boasts a robust thermally-fused laminate surface that boasts both scratch- and stain-resistance. Its metal-framed cushioned panels incorporate a striking style with two-tone fabric, while the short and tall panels address both collaboration and privacy necessities.
 
@@ -25,18 +25,18 @@ Easily handle your cables with the practical desktop grommet, and maintain a sle
 Appreciate the convenience of assembly without sacrificing durability and style. With this Bush Furniture workstation, you can establish an organized and efficient workspace in under an hour, adhering to ANSI/BIFMA standards for safety and performance.
 
 
-### [Bush Furniture Coliseum Designer Desk with Bookcases](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-coliseum-designer-desk-with-bookcases)
+### [Bush Furniture Coliseum Designer Desk with Bookcases](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-coliseum-designer-desk-with-bookcases)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-coliseum-designer-desk-with-bookcases"><img alt="bush-furniture-coliseum-designer-desk-with-set-of-two-bookcases-with-doors-60w-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-coliseum-designer-desk-with-set-of-two-bookcases-with-doors-60w-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-coliseum-designer-desk-with-bookcases"><img alt="bush-furniture-coliseum-designer-desk-with-set-of-two-bookcases-with-doors-60w-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-coliseum-designer-desk-with-set-of-two-bookcases-with-doors-60w-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Furniture Coliseum desk is a stylish and practical addition to any workspace. Crafted in driftwood gray with black graphite accents, it's built to provide stability and support up to 200 lbs of equipment. The durable bookshelves also ensure safety, withstanding 50 lbs without tipping and keeping items organized and in place. The bookcases offer both fixed and adjustable shelves, granting you the flexibility to store your items accordingly. 
 
 Featuring sleek doors that conceal office essentials such as books and supplies, these bookshelves help maintain an organized look. The unique plinth base, merged with steel crossed-back support, creates a distinct blend of traditional character and industrial style. This Bush Furniture desk is perfect for those who appreciate modern aesthetics and functionality in their workspace. 
 
 
-### [Bush Furniture Somerset Cherry Desk](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-somerset-cherry-desk)
+### [Bush Furniture Somerset Cherry Desk](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-somerset-cherry-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-somerset-cherry-desk"><img alt="bush-furniture-somerset-desk-hansen-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-desk-hansen-cherry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-somerset-cherry-desk"><img alt="bush-furniture-somerset-desk-hansen-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-desk-hansen-cherry-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out the Bush Furniture Somerset Desk, and I must say, it was quite an experience. The first thing that caught my eye was the stylish and practical design of the desk, which seemed to strike a perfect balance between functionality and aesthetic appeal. With the extended surface providing ample workspace for my computer and paperwork, I couldn't be happier with the spaciousness it provided. 
 
@@ -49,18 +49,18 @@ One thing I noticed, however, was that the tapered leg accents, while adding a c
 In conclusion, the Bush Furniture Somerset Desk was a great addition to my home office, offering a blend of practicality and style. With its ample storage space, convenient wire management, and easy assembly, it proved to be a valuable investment for my workspace. However, I would recommend being cautious with the tapered leg accents to avoid any potential scratches or damages. Overall, I give this desk a solid 4 out of 5 stars. 
 
 
-### [Bush Furniture Key West Small Corner Desk in Washed Gray](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-key-west-small-corner-desk-in-washed-gray)
+### [Bush Furniture Key West Small Corner Desk in Washed Gray](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-key-west-small-corner-desk-in-washed-gray)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-key-west-small-corner-desk-in-washed-gray"><img alt="bush-furniture-key-west-small-corner-desk-washed-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-small-corner-desk-washed-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-key-west-small-corner-desk-in-washed-gray"><img alt="bush-furniture-key-west-small-corner-desk-washed-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-small-corner-desk-washed-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Key West Small Corner Desk, available in a soothing Washed Gray, is an excellent addition to any compact home. Boasting a weight capacity of 200 pounds, it's sturdy enough to accommodate your daily essentials, from your computer and books to your desk lamp and papers. One of its notable features is the built-in wire management grommet, ensuring your workspace stays neat and clutter-free. 
 
 This desk also offers the convenience of optional storage upgrades, including a 1 Door Cabinet, 2 Shelf Bookcase, and a Lateral File Cabinet with Shelf (all coordinating items sold separately). Complementing your style, this small corner desk adds a touch of charm to your living space, ideal for coastal, cottage, or modern farmhouse styles while providing maximum stability, thanks to its thoughtfully designed hardware. 
 
 
-### [Bush Business Furniture Studio C L-Shaped Desk for Contemporary Workspaces](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-business-furniture-studio-c-l-shaped-desk-for-contemporary-workspaces)
+### [Bush Business Furniture Studio C L-Shaped Desk for Contemporary Workspaces](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-business-furniture-studio-c-l-shaped-desk-for-contemporary-workspaces)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-business-furniture-studio-c-l-shaped-desk-for-contemporary-workspaces"><img alt="bush-business-furniture-studio-c-l-shaped-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-studio-c-l-shaped-desk-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-business-furniture-studio-c-l-shaped-desk-for-contemporary-workspaces"><img alt="bush-business-furniture-studio-c-l-shaped-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-studio-c-l-shaped-desk-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Bush Business Furniture L-shaped desk - a stylish and functional addition to any workspace. This desk boasts a comfortable design that effortlessly enhances the aesthetic of your office, while its durable construction ensures it withstands day-to-day wear and tear. With a wide range of finishes available, you can easily find one that complements your current decor. 
 
@@ -69,9 +69,9 @@ One of the standout features of this desk is its cable management system, which 
 While users generally praise the desk's appearance and functionality, some have noted a need for locks on the file cabinet's wheels and advise being cautious when assembling the desk. Overall, the Bush Business Furniture L-shaped desk is an attractive and practical choice for any office, backed by a solid reputation and glowing reviews from satisfied customers. 
 
 
-### [Spacious Bush Furniture Somerset Office Desk with Drawers](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=spacious-bush-furniture-somerset-office-desk-with-drawers)
+### [Spacious Bush Furniture Somerset Office Desk with Drawers](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=spacious-bush-furniture-somerset-office-desk-with-drawers)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=spacious-bush-furniture-somerset-office-desk-with-drawers"><img alt="somerset-54w-office-desk-with-drawers-by-bush-furniture-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/somerset-54w-office-desk-with-drawers-by-bush-furniture-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=spacious-bush-furniture-somerset-office-desk-with-drawers"><img alt="somerset-54w-office-desk-with-drawers-by-bush-furniture-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/somerset-54w-office-desk-with-drawers-by-bush-furniture-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to revamp my home office with a new desk, and I stumbled upon the Somerset Office Desk by Bush Furniture. Its spacious work surface and built-in storage were exactly what I needed to declutter and stay organized. 
 
@@ -82,9 +82,9 @@ The box drawer glides smoothly on full-extension ball-bearing slides, making it 
 The fully finished back side of the desk looks great no matter where I place it in the room, and its transitional styling fits seamlessly with my existing decor. Plus, knowing this desk is tested to meet SOHO quality standards for safety and performance gives me peace of mind. Overall, the Bush Furniture Somerset Office Desk has been a fantastic addition to my home office. 
 
 
-### [Bush Furniture Desk: Somerset Office Mocha-Cherry Style](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-desk-somerset-office-mocha-cherry-style)
+### [Bush Furniture Desk: Somerset Office Mocha-Cherry Style](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-desk-somerset-office-mocha-cherry-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-desk-somerset-office-mocha-cherry-style"><img alt="bush-furniture-somerset-office-desk-60w-mocha-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-office-desk-60w-mocha-cherry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-desk-somerset-office-mocha-cherry-style"><img alt="bush-furniture-somerset-office-desk-60w-mocha-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-office-desk-60w-mocha-cherry-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Bush Furniture Somerset Office Desk in Mocha Cherry for a few weeks now, and I absolutely love it. The transitional styling with tapered leg accents is the perfect addition to my home office, making it a practical and stylish choice for me. 
 
@@ -97,9 +97,9 @@ But you know what the best part is? The quality furniture is tested to meet ANSI
 The only minor issue I faced during my experience was that the assembly instructions weren't the clearest, especially for a novice. However, this issue was resolved by hiring a professional to put everything together. Overall, despite that little hiccup, I wholeheartedly recommend this desk for anyone in need of an organized and efficient workspace. 
 
 
-### [Bush Furniture Industrial Gray Driftwood Desk - Perfect for Home Office](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-industrial-gray-driftwood-desk-perfect-for-home-office)
+### [Bush Furniture Industrial Gray Driftwood Desk - Perfect for Home Office](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-industrial-gray-driftwood-desk-perfect-for-home-office)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-industrial-gray-driftwood-desk-perfect-for-home-office"><img alt="bush-furniture-city-park-industrial-writing-desk-60w-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-city-park-industrial-writing-desk-60w-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-industrial-gray-driftwood-desk-perfect-for-home-office"><img alt="bush-furniture-city-park-industrial-writing-desk-60w-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-city-park-industrial-writing-desk-60w-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to create a dedicated workspace in my home. I stumbled upon the Bush Furniture City Park Industrial Writing Desk and was instantly drawn to its stylish design. The 60W desk surface offered ample room to spread out with my computer, paperwork, and more, providing the perfect space for my daily work. 
 
@@ -110,9 +110,9 @@ The rustic finish of the desk, accented by the decorative harlequin pattern, add
 Overall, this desk was a fantastic addition to my home office. With its modern industrial design, practical features, and durable construction, the Bush Furniture City Park Industrial Writing Desk has become my go-to workspace for productivity and style. 
 
 
-### [Bush Furniture Maple Desk: Convertible Sit to Stand L Shaped Office Space](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-maple-desk-convertible-sit-to-stand-l-shaped-office-space)
+### [Bush Furniture Maple Desk: Convertible Sit to Stand L Shaped Office Space](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-maple-desk-convertible-sit-to-stand-l-shaped-office-space)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-maple-desk-convertible-sit-to-stand-l-shaped-office-space"><img alt="bush-furniture-somerset-3-position-sit-to-stand-l-shaped-desk-72w-maple-cross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-3-position-sit-to-stand-l-shaped-desk-72w-maple-cross-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-maple-desk-convertible-sit-to-stand-l-shaped-office-space"><img alt="bush-furniture-somerset-3-position-sit-to-stand-l-shaped-desk-72w-maple-cross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-3-position-sit-to-stand-l-shaped-desk-72w-maple-cross-1/h=540,fit=pad,background=black"/></a></div>
 
 Uplevel your workstation experience with the Bush Furniture Somerset L Shaped Desk. This desk boasts a 42W Sit to Stand Return that can attach to two sides of the 72W office desk with a file drawer, allowing for greater versatility and convenience. Additionally, the lift-n-lock desktop offers three standing height positions, enabling you to tailor your workstation to your needs. The desktop includes a wire management grommet, keeping your cords and cables out of sight and mind. 
 
@@ -123,9 +123,9 @@ Designed with your safety in mind, the fixed surfaces of the desk have been test
 With dimensions of 72.019 W x 65.099 D x 29.149 H, this desk is not only functional but also visually appealing. The L Shaped Desk from Bush Furniture is an excellent addition to any workspace, offering a combination of style, functionality, and ergonomics that are sure to enhance your work-from-home experience. 
 
 
-### [Classic Maple Cross Desk by Bush Furniture](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=classic-maple-cross-desk-by-bush-furniture)
+### [Classic Maple Cross Desk by Bush Furniture](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=classic-maple-cross-desk-by-bush-furniture)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=classic-maple-cross-desk-by-bush-furniture"><img alt="bush-furniture-somerset-desk-maple-cross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-desk-maple-cross-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=classic-maple-cross-desk-by-bush-furniture"><img alt="bush-furniture-somerset-desk-maple-cross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-desk-maple-cross-1/h=540,fit=pad,background=black"/></a></div>
 
 Bring a touch of elegance and functionality to your office with the Bush Furniture Somerset Desk in the stunning Maple-Cross finish. This desk boasts an enchanting design that adds a touch of class and sophistication to any workspace, while the intricate woodwork is sure to impress. 
 
@@ -136,18 +136,18 @@ While the desk's appearance and quality are top-notch, there's always room for i
 In conclusion, the Bush Furniture Somerset Desk is a reliable and visually appealing addition to any office. With its elegant finish, functional design, and easy assembly, it's no wonder customers give it a high rating. Despite minor drawbacks, this desk has proven to be a valuable purchase for those seeking a stylish yet practical workstation. 
 
 
-### [Studio A Gaming Desk by Bush Business Furniture: Stylish and Durable](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=studio-a-gaming-desk-by-bush-business-furniture-stylish-and-durable)
+### [Studio A Gaming Desk by Bush Business Furniture: Stylish and Durable](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=studio-a-gaming-desk-by-bush-business-furniture-stylish-and-durable)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=studio-a-gaming-desk-by-bush-business-furniture-stylish-and-durable"><img alt="bush-business-furniture-sdd160wh-z-studio-a-60-inch-gaming-desk-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-sdd160wh-z-studio-a-60-inch-gaming-desk-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=studio-a-gaming-desk-by-bush-business-furniture-stylish-and-durable"><img alt="bush-business-furniture-sdd160wh-z-studio-a-60-inch-gaming-desk-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-sdd160wh-z-studio-a-60-inch-gaming-desk-white-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Business Furniture Studio A Gaming Desk offers a sleek and durable platform for your gaming setup. With a 60-inch desktop surface, it can comfortably support your components and equipment, while its impressive weight capacity of 200 pounds ensures stability and durability. This desk is thoughtfully designed with two built-in wire management grommets to help keep your cords and cables neatly organized. 
 
 Featuring fully finished back and side panels, the Studio A Gaming Desk boasts an elegant appearance that can be used in any direction. Its open configuration provides ample legroom and the option to add under-desk storage for added convenience. This desk's commercial-quality construction and contemporary style make it a reliable and attractive choice for any gaming enthusiast. 
 
 
-### [Bush Furniture Homestead L Shaped Desk](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-homestead-l-shaped-desk)
+### [Bush Furniture Homestead L Shaped Desk](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-homestead-l-shaped-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-homestead-l-shaped-desk"><img alt="bush-furniture-homestead-60w-farmhouse-l-shaped-desk-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-homestead-60w-farmhouse-l-shaped-desk-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-homestead-l-shaped-desk"><img alt="bush-furniture-homestead-60w-farmhouse-l-shaped-desk-driftwood-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-homestead-60w-farmhouse-l-shaped-desk-driftwood-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Bush Furniture Homestead Farmhouse 60-inch L-Shaped Desk, a truly versatile and well-built solution for your home office needs. With a modern farmhouse style that showcases beautiful natural grain patterns, this desk offers a rustic yet refined aesthetic, making it the perfect addition to any room. 
 
@@ -160,9 +160,9 @@ For a seamless and cohesive look, the Bush Furniture Homestead Farmhouse 60-inch
 In summary, the Bush Furniture Homestead Farmhouse 60-inch L-Shaped Desk impresses with its durable construction, stylish design, and practical features. This versatile and well-crafted desk is sure to become the heart of your home office and provide a comfortable and functional workspace for years to come. 
 
 
-### [Charcoal Maple Echo 72W Computer Desk from Bush Business Furniture](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=charcoal-maple-echo-72w-computer-desk-from-bush-business-furniture)
+### [Charcoal Maple Echo 72W Computer Desk from Bush Business Furniture](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=charcoal-maple-echo-72w-computer-desk-from-bush-business-furniture)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=charcoal-maple-echo-72w-computer-desk-from-bush-business-furniture"><img alt="bush-business-furniture-echo-72w-computer-desk-in-charcoal-maple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-echo-72w-computer-desk-in-charcoal-maple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=charcoal-maple-echo-72w-computer-desk-from-bush-business-furniture"><img alt="bush-business-furniture-echo-72w-computer-desk-in-charcoal-maple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-business-furniture-echo-72w-computer-desk-in-charcoal-maple-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Business Furniture Echo 72W Computer Desk in Charcoal Maple offers a commercial-grade workstation with contemporary charm. Crafted from durable materials, this office desk is well-equipped to handle a variety of tasks with a weight capacity of 200 pounds. The thermally fused laminate surface provides excellent protection against cosmetic damages such as scratches and stains, ensuring the desk's elegant appearance remains intact for years. 
 
@@ -173,9 +173,9 @@ A quick glance at the product reviews reveals users expressing their satisfactio
 In conclusion, the Bush Business Furniture Echo 72W Computer Desk in Charcoal Maple presents a blend of commercial-grade performance and modern design. While it is praised for its ease of use and reliability, one should be cautious of potential delivery issues and the desk's durability. Overall, it provides a functional and stylish addition to any office space. 
 
 
-### [Bush Furniture Harvest Cherry Managers Desk](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-harvest-cherry-managers-desk)
+### [Bush Furniture Harvest Cherry Managers Desk](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-harvest-cherry-managers-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-harvest-cherry-managers-desk"><img alt="bush-furniture-bennington-managers-desk-harvest-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-bennington-managers-desk-harvest-cherry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-harvest-cherry-managers-desk"><img alt="bush-furniture-bennington-managers-desk-harvest-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-bennington-managers-desk-harvest-cherry-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Furniture Bennington Managers Desk features a high-quality cherry finish, offering a professional and elegant look for any office setting. This desk boasts ample storage space, with six drawers in total, providing enough room for files, stationery, and other office essentials. Its lockable drawers on the left pedestal offer added security and privacy for sensitive documents. The desk also includes a pencil drawer, perfect for quick access to everyday office supplies. 
 
@@ -184,9 +184,9 @@ Craftsmanship and design are evident in the desk's construction, with accent mol
 Bush Furniture's desk offers both functionality and style, making it an ideal addition to any office setting. Despite a few assembly difficulties and minor flaws, overall, its well-crafted design and ample storage options make it a worthy investment for professionals in need of a reliable and stylish desk. 
 
 
-### [Bush Furniture Key West Collection Home Office Desk with Laptop Storage](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-key-west-collection-home-office-desk-with-laptop-storage)
+### [Bush Furniture Key West Collection Home Office Desk with Laptop Storage](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-key-west-collection-home-office-desk-with-laptop-storage)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-key-west-collection-home-office-desk-with-laptop-storage"><img alt="bush-furniture-key-west-collection-laptop-storage-desk-credenza-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-collection-laptop-storage-desk-credenza-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-key-west-collection-home-office-desk-with-laptop-storage"><img alt="bush-furniture-key-west-collection-laptop-storage-desk-credenza-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-collection-laptop-storage-desk-credenza-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Furniture Key West Collection Laptop Storage Desk Credenza is a versatile and functional piece of furniture designed to elegantly store your laptop and office essentials. The 4.3-star rated product boasts a stylish x pattern accent on its door panels that adds a cottage-style touch to any room. With easy wire management and full-extension ball bearing slides on the keyboard drawer, this desk is convenient for users who need quick access to their laptop and other belongings. 
 
@@ -195,9 +195,9 @@ A highlight of this desk is its lower storage compartment, which features an adj
 Assembling this desk may be a bit of a challenge for some users, but with the help of included instructions and support from Bush Furniture's customer service team, the process can be made easier. Overall, the Bush Furniture Key West Collection Laptop Storage Desk Credenza is a high-quality addition to any home office or study space, providing both style and practicality for a reasonable price. 
 
 
-### [Relaxed Island Escape: Bush Furniture Key West 48W Writing Desk](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=relaxed-island-escape-bush-furniture-key-west-48w-writing-desk)
+### [Relaxed Island Escape: Bush Furniture Key West 48W Writing Desk](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=relaxed-island-escape-bush-furniture-key-west-48w-writing-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=relaxed-island-escape-bush-furniture-key-west-48w-writing-desk"><img alt="bush-furniture-key-west-48w-writing-desk-dark-gray-hickory-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-48w-writing-desk-dark-gray-hickory-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=relaxed-island-escape-bush-furniture-key-west-48w-writing-desk"><img alt="bush-furniture-key-west-48w-writing-desk-dark-gray-hickory-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-48w-writing-desk-dark-gray-hickory-1/h=540,fit=pad,background=black"/></a></div>
 
 This Bush Furniture Writing Desk offers a versatile and compact workspace, designed to suit small office environments while providing ample space for everyday tasks. With a durability that belies its petite frame, the desk is constructed from a multi-layered surface capable of bearing a weight of up to 200 pounds, ensuring that your work essentials are securely in place. 
 
@@ -210,9 +210,9 @@ The desk comes in a wide variety of finish options, allowing you to suitably ble
 Despite its petite stature, this desk has been tested rigorously, adhering to the highest ANSI/SOHO standards, for both safety and performance, providing peace of mind with regard to your workspace's dependability. Overall, whether as a standalone desk or accessorized with coordinating office organizers, the Bush Furniture Key West 48W Writing Desk offers practicality, style, and enduring performance. 
 
 
-### [Compact Transitional Writer's Desk by Bush Furniture](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=compact-transitional-writers-desk-by-bush-furniture)
+### [Compact Transitional Writer's Desk by Bush Furniture](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=compact-transitional-writers-desk-by-bush-furniture)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=compact-transitional-writers-desk-by-bush-furniture"><img alt="bush-furniture-cabot-40w-writing-desk-in-harvest-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-cabot-40w-writing-desk-in-harvest-cherry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=compact-transitional-writers-desk-by-bush-furniture"><img alt="bush-furniture-cabot-40w-writing-desk-in-harvest-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-cabot-40w-writing-desk-in-harvest-cherry-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Bush Furniture Cabot writing desk for a few months now, and let me say, it's been a lifesaver for my small home office. Compact at 40 inches wide, it fits perfectly in my limited space, and the desktop has plenty of room to spread out with my books and writing supplies. Bonus points for the box drawer that keeps my pens and notepads neatly organized. 
 
@@ -223,18 +223,18 @@ However, I did notice that the open compartment is a bit too shallow, making it 
 Overall, the Bush Furniture Cabot 40" Writing Desk is a great choice for anyone in need of a compact, stylish workspace. Just make sure to consider the open compartment's depth constraints when choosing what to store in it. 
 
 
-### [Bush Furniture Somerset Fresh Walnut Desk Hutch](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-somerset-fresh-walnut-desk-hutch)
+### [Bush Furniture Somerset Fresh Walnut Desk Hutch](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=bush-furniture-somerset-fresh-walnut-desk-hutch)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-somerset-fresh-walnut-desk-hutch"><img alt="bush-furniture-somerset-60w-desk-hutch-fresh-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-60w-desk-hutch-fresh-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=bush-furniture-somerset-fresh-walnut-desk-hutch"><img alt="bush-furniture-somerset-60w-desk-hutch-fresh-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-somerset-60w-desk-hutch-fresh-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Furniture Somerset 60W Desk Hutch, available in Fresh Walnut, effortlessly enhances your home office with its elegant design and practical features. With its transitional styling that includes contemporary metal hardware, this Hutch blends seamlessly into any space. The large open compartment offers plenty of storage for books, binders, or decorations, while the frosted glass doors conceal clutter and add a touch of sophistication. The adjustable shelf allows for flexible storage and display of various items. 
 
 Although assembly can be a bit challenging, you have the option to choose between several attractive finish options to match your existing home office decor. This 60-inch Desk Hutch is tested to meet ANSI/SOHO quality standards for safety and performance, ensuring a secure and reliable addition to your workspace. So, if you're looking for a functional and beautiful Desk Hutch to complete your home office, the Bush Furniture Somerset 60W Desk Hutch is an excellent choice. 
 
 
-### [L Shaped Casual Black Vintage Desk with Storage from Bush Furniture](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=l-shaped-casual-black-vintage-desk-with-storage-from-bush-furniture)
+### [L Shaped Casual Black Vintage Desk with Storage from Bush Furniture](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=l-shaped-casual-black-vintage-desk-with-storage-from-bush-furniture)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=l-shaped-casual-black-vintage-desk-with-storage-from-bush-furniture"><img alt="bush-furniture-vintage-black-salinas-l-shaped-desk-with-storage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-vintage-black-salinas-l-shaped-desk-with-storage-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=l-shaped-casual-black-vintage-desk-with-storage-from-bush-furniture"><img alt="bush-furniture-vintage-black-salinas-l-shaped-desk-with-storage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-vintage-black-salinas-l-shaped-desk-with-storage-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to transform your home office space with the Bush Furniture Vintage Black Salinas L Shaped Desk with Storage. This stylish desk, crafted with a sleek and distressed touch, is perfect for creating a cozy and efficient work environment. With elegant metal drop pull hardware and a spacious L-shaped design, you'll enjoy ample workspace without compromising on style. The desk also features a box drawer for storing small items and a hidden storage cabinet with an adjustable shelf for bulky supplies. 
 
@@ -243,9 +243,9 @@ Assembling this desk is a breeze, thanks to the clear instructions and included 
 Available in Vintage Black and Antique White, this desk is a versatile addition to any home office. Complete your set with coordinating pieces from the Salinas collection and get ready to enjoy a comfortable, functional, and beautiful workspace. 
 
 
-### [L-Shaped Desk: Stylish, Durable Workspace from Bush Furniture](https://serp.ly/amazon/Bush+Furniture+Desk?utm\_term=l-shaped-desk-stylish-durable-workspace-from-bush-furniture)
+### [L-Shaped Desk: Stylish, Durable Workspace from Bush Furniture](https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm\_term=l-shaped-desk-stylish-durable-workspace-from-bush-furniture)
 
-<div class="image"><a href="https://serp.ly/amazon/Bush+Furniture+Desk?utm_term=l-shaped-desk-stylish-durable-workspace-from-bush-furniture"><img alt="bush-furniture-key-west-60-in-l-shaped-desk-size-large-washed-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-60-in-l-shaped-desk-size-large-washed-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk?utm_term=l-shaped-desk-stylish-durable-workspace-from-bush-furniture"><img alt="bush-furniture-key-west-60-in-l-shaped-desk-size-large-washed-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bush-furniture-key-west-60-in-l-shaped-desk-size-large-washed-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bush Furniture Key West 60 in. L-Shaped Desk, with its large size and washed gray finish, provides an attractive and functional workspace solution for those looking to add a touch of charm to their home office. The desk features a sturdy design with X pattern accents on the side panels, making it a visually appealing option for any space. 
 
@@ -265,7 +265,7 @@ Welcome to the Buyer's Guide section for Bush Furniture Desks. In this section, 
 
 The following features are crucial when choosing a Bush Furniture Desk. Consider them carefully before making your purchase to ensure you get the desired functionality and style for your space. 1. Size and Dimensions: Measure the available space in your room and determine the ideal desk size. Bush Furniture offers various desk sizes to accommodate different spaces. 
 
-<div><a href="https://serp.ly/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-2/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-2/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-2" height="540"></a></div>
 
 
 ### Design and Style
@@ -277,7 +277,7 @@ Bush Furniture is known for its high-quality and stylish furniture pieces. When 
 
 The material and construction of a Bush Furniture Desk play a significant role in its durability and overall quality. Bush Furniture uses high-quality materials such as solid wood, veneers, and MDF, ensuring that their desks are sturdy and long-lasting. Additionally, their skilled craftsmen pay attention to detail, ensuring a polished and professional finish for each piece. 
 
-<div><a href="https://serp.ly/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-3/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-3/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-3" height="540"></a></div>
 
 
 ### Additional Features and Accessories
@@ -287,7 +287,7 @@ Bush Furniture Desks often come with additional features and accessories to enha
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-4/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-4/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-4" height="540"></a></div>
 
 
 ### What types of desks does Bush Furniture offer?
@@ -303,7 +303,7 @@ The dimensions of the Bush Furniture Desks vary depending on the model and size 
 
 Bush Furniture also offers a wide range of customization options, allowing you to choose the perfect size for your space. You can choose the depth, width, and height of the desk, as well as additional features like built-in drawers or a glass top. Their knowledgeable customer service team is happy to help you design the perfect desk for your needs. 
 
-<div><a href="https://serp.ly/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-5/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-5/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-5" height="540"></a></div>
 
 
 ### What materials are used to make the Bush Furniture Desks?
@@ -319,7 +319,7 @@ Yes, the Bush Furniture Desks are designed to be easy to assemble. Each desk is 
 
 If you're not comfortable with assembling furniture yourself, Bush Furniture offers a professional assembly service. For an additional fee, their expert team will deliver and assemble your desk for you, ensuring that it's put together correctly and safely. To learn more about this service or to place an order, simply contact their customer service team for assistance. 
 
-<div><a href="https://serp.ly/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-6/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Bush+Furniture+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Bush-Furniture-Desk-6/h=540,fit=pad,background=black" alt="Bush-Furniture-Desk-6" height="540"></a></div>
 
 
 ### What is the warranty on Bush Furniture Desks?

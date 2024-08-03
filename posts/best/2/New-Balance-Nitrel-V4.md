@@ -14,18 +14,18 @@ Get ready to explore the latest addition to New Balance's Nitrel line with our e
 ## Reviews
 
 
-### [Pink New Balance Nitrel V4 Running Shoes for Women Size 8.5 B](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=pink-new-balance-nitrel-v4-running-shoes-for-women-size-8-5-b)
+### [Pink New Balance Nitrel V4 Running Shoes for Women Size 8.5 B](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=pink-new-balance-nitrel-v4-running-shoes-for-women-size-8-5-b)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=pink-new-balance-nitrel-v4-running-shoes-for-women-size-8-5-b"><img alt="new-balance-womens-nitrel-v4-wtntrcp4-pink-running-shoes-sneakers-size-8-5-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-nitrel-v4-wtntrcp4-pink-running-shoes-sneakers-size-8-5-b-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=pink-new-balance-nitrel-v4-running-shoes-for-women-size-8-5-b"><img alt="new-balance-womens-nitrel-v4-wtntrcp4-pink-running-shoes-sneakers-size-8-5-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-nitrel-v4-wtntrcp4-pink-running-shoes-sneakers-size-8-5-b-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of comfort and style with the New Balance Women's Nitrel V4 Running Shoes Sneakers. These vibrant pink shoes boast a synthetic upper, providing a breathable and supportive fit for your active lifestyle. 
 
 With a low-top, lace-up closure, these sneakers offer effortless comfort and a snug fit, making them the ideal choice for running, jogging or everyday casual wear. Don't miss out on the opportunity to elevate your sporty look with this versatile and attractive option. 
 
 
-### [New Balance Nitrel V4 Trail Running Shoes - Men's Sz 9 (Blue/Black/Orange)](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-trail-running-shoes-mens-sz-9-blue-black-orange)
+### [New Balance Nitrel V4 Trail Running Shoes - Men's Sz 9 (Blue/Black/Orange)](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-trail-running-shoes-mens-sz-9-blue-black-orange)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-trail-running-shoes-mens-sz-9-blue-black-orange"><img alt="new-balance-dynasoft-nitrel-v4-trail-running-shoes-men-sz-9-blue-black-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-dynasoft-nitrel-v4-trail-running-shoes-men-sz-9-blue-black-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-trail-running-shoes-mens-sz-9-blue-black-orange"><img alt="new-balance-dynasoft-nitrel-v4-trail-running-shoes-men-sz-9-blue-black-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-dynasoft-nitrel-v4-trail-running-shoes-men-sz-9-blue-black-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the New Balance Nitrel V4 trail running shoes and have been thoroughly impressed with their durability and overall performance. One key aspect that stands out to me is the Dynafoam sole, which provides an incredible amount of cushioning and support on the trail, making it feel as though I'm walking on clouds. 
 
@@ -34,9 +34,9 @@ While they are not perfect, there's one aspect of the design that left me wantin
 Overall, I'd highly recommend giving these shoes a try if you're searching for a durable and comfortable pair of trail runners. The vibrant color options and comfortable fit make them a standout choice in the world of trail running shoes. 
 
 
-### [New Balance Fresh Foam More V4: Softer and More Comfortable Men's Shoes in Aluminum Grey/Neon Dragonfly](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fresh-foam-more-v4-softer-and-more-comfortable-mens-shoes-in-aluminum-grey-neon-dragonfly)
+### [New Balance Fresh Foam More V4: Softer and More Comfortable Men's Shoes in Aluminum Grey/Neon Dragonfly](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fresh-foam-more-v4-softer-and-more-comfortable-mens-shoes-in-aluminum-grey-neon-dragonfly)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fresh-foam-more-v4-softer-and-more-comfortable-mens-shoes-in-aluminum-grey-neon-dragonfly"><img alt="new-balance-fresh-foam-x-more-v4-mens-shoes-aluminum-grey-neon-dragonfly-10-5-ee-wide-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-fresh-foam-x-more-v4-mens-shoes-aluminum-grey-neon-dragonfly-10-5-ee-wide-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fresh-foam-more-v4-softer-and-more-comfortable-mens-shoes-in-aluminum-grey-neon-dragonfly"><img alt="new-balance-fresh-foam-x-more-v4-mens-shoes-aluminum-grey-neon-dragonfly-10-5-ee-wide-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-fresh-foam-x-more-v4-mens-shoes-aluminum-grey-neon-dragonfly-10-5-ee-wide-1/h=540,fit=pad,background=black"/></a></div>
 
 The New Balance Fresh Foam More V4 stands out for its unparalleled level of cushioning, making it a top pick for those seeking comfort and support. Constructed with a wide platform underneath the foot, this shoe balances comfort, support, and protection while providing smooth heel/toe strike transitions. The engineered mesh upper delivers breathability and support, making it suitable for a range of activities, from running to walking. 
 
@@ -47,9 +47,9 @@ Despite its numerous positive aspects, the New Balance Fresh Foam More V4 has it
 Overall, the New Balance More V4 is a premium shoe for those who value comfort and cushioning. Its cushioning makes it stand out among competing shoes, and its wide platform adds excellent support and protection. However, it may not the best choice for those who require durability. 
 
 
-### [New Balance FuelCell Summit V4 Green/Orange (Size 10.5)](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fuelcell-summit-v4-green-orange-size-10-5)
+### [New Balance FuelCell Summit V4 Green/Orange (Size 10.5)](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fuelcell-summit-v4-green-orange-size-10-5)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fuelcell-summit-v4-green-orange-size-10-5"><img alt="new-balance-mens-fuelcell-summit-unknown-v4-green-orange-size-10-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-mens-fuelcell-summit-unknown-v4-green-orange-size-10-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fuelcell-summit-v4-green-orange-size-10-5"><img alt="new-balance-mens-fuelcell-summit-unknown-v4-green-orange-size-10-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-mens-fuelcell-summit-unknown-v4-green-orange-size-10-5-1/h=540,fit=pad,background=black"/></a></div>
 
 I was thrilled to try out the New Balance Men's FuelCell Summit Unknown V4, a trail running shoe designed for off-road adventures. Upon opening the box, I was immediately drawn to the vibrant green and orange color scheme, which added a pop of excitement to my everyday attire. 
 
@@ -62,9 +62,9 @@ However, there were a couple of drawbacks to the experience. For one, the shoe r
 Overall, the New Balance Men's FuelCell Summit Unknown V4 proved to be a reliable and comfortable choice for off-road running. Its vibrant color scheme, supportive upper construction, and effective protection against terrain elements make it a standout in the trail running shoe market. Despite its minor drawbacks, I would highly recommend these shoes to anyone seeking a high-quality, dependable shoe for their off-road adventures. 
 
 
-### [Fast & Light: New Balance Nitrel V4 Running Shoe](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=fast-light-new-balance-nitrel-v4-running-shoe)
+### [Fast & Light: New Balance Nitrel V4 Running Shoe](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=fast-light-new-balance-nitrel-v4-running-shoe)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=fast-light-new-balance-nitrel-v4-running-shoe"><img alt="new-balance-fuelcell-rebel-v4-11-white-bleached-lime-glo-hot-mango-mens-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-fuelcell-rebel-v4-11-white-bleached-lime-glo-hot-mango-mens-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=fast-light-new-balance-nitrel-v4-running-shoe"><img alt="new-balance-fuelcell-rebel-v4-11-white-bleached-lime-glo-hot-mango-mens-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-fuelcell-rebel-v4-11-white-bleached-lime-glo-hot-mango-mens-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the New Balance FuelCell Rebel v4, and let me tell you, it's been a game-changer during my morning runs. The FuelCell foam technology is a true gem that propels you forward with every stride, giving you that extra boost to power through even the toughest distances. The sleek sublimated graphics not only look stunning, but they also add a touch of personality to these performance-driven kicks. 
 
@@ -75,9 +75,9 @@ However, let's face it, there's always a silver lining. As much as the FuelCell 
 Overall, the New Balance FuelCell Rebel v4 has been a trusty companion on my runs, offering the perfect combination of style and performance. I can't wait to see what this shoe has in store for my future running adventures. 
 
 
-### [New Balance Women's Dynasoft Nitrel V4 Running Shoes](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-womens-dynasoft-nitrel-v4-running-shoes)
+### [New Balance Women's Dynasoft Nitrel V4 Running Shoes](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-womens-dynasoft-nitrel-v4-running-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-womens-dynasoft-nitrel-v4-running-shoes"><img alt="new-balance-womens-dynasoft-nitrel-v4-blue-yellow-pink-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-dynasoft-nitrel-v4-blue-yellow-pink-size-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-womens-dynasoft-nitrel-v4-running-shoes"><img alt="new-balance-womens-dynasoft-nitrel-v4-blue-yellow-pink-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-dynasoft-nitrel-v4-blue-yellow-pink-size-5-1/h=540,fit=pad,background=black"/></a></div>
 
 As a frequent runner, I was intrigued by the New Balance Women's Dynasoft Nitrel V4. The vibrant blue, yellow, and pink color combination made them stand out in my closet. When I started using them, the first thing that caught my attention was the soft and breathable engineered mesh upper. This feature worked wonders for my feet, especially during my early morning runs. 
 
@@ -90,9 +90,9 @@ Another issue I faced was with the lacing system. It was quite deliberate, but i
 Overall, despite the fitting and lacing issues, the New Balance Women's Dynasoft Nitrel V4 proved to be a comfortable and reliable option for my runs. The vibrant colors, excellent traction, and responsive cushioning made it a worthy addition to my running gear. With proper sizing in mind, I'd recommend these shoes to other runners looking for a blend of style and performance. 
 
 
-### [New Balance Nitrel V4: Breathable Trail Running Shoes for Men](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-breathable-trail-running-shoes-for-men)
+### [New Balance Nitrel V4: Breathable Trail Running Shoes for Men](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-breathable-trail-running-shoes-for-men)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-breathable-trail-running-shoes-for-men"><img alt="new-balance-nitrel-v4-mens-running-grey-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-nitrel-v4-mens-running-grey-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-breathable-trail-running-shoes-for-men"><img alt="new-balance-nitrel-v4-mens-running-grey-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-nitrel-v4-mens-running-grey-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the New Balance Nitrel V4 Men's Running shoes in grey, size 11. The first thing that struck me was the lightweight yet durable upper, made from breathable engineered mesh and synthetic materials. The tie closure made for a snug fit, and the padded footbed with a cushioning EVA insert provided ample support. 
 
@@ -101,9 +101,9 @@ The REVlite midsole was a highlight of the shoe, offering just the right amount 
 Overall, the New Balance Nitrel V4 Men's Running shoes offered a comfortable fit and an attractive design, but their performance on different surfaces could be improved. 
 
 
-### [New Balance Nitrel V4 Women's Trail Running Shoes - Grey/Blue (Size 5)](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-womens-trail-running-shoes-grey-blue-size-5)
+### [New Balance Nitrel V4 Women's Trail Running Shoes - Grey/Blue (Size 5)](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-womens-trail-running-shoes-grey-blue-size-5)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-womens-trail-running-shoes-grey-blue-size-5"><img alt="new-balance-womens-dynasoft-nitrel-v4-running-shoes-grey-blue-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-dynasoft-nitrel-v4-running-shoes-grey-blue-size-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-womens-trail-running-shoes-grey-blue-size-5"><img alt="new-balance-womens-dynasoft-nitrel-v4-running-shoes-grey-blue-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-dynasoft-nitrel-v4-running-shoes-grey-blue-size-5-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the New Balance Women's Dynasoft Nitrel V4 Running Shoes, the perfect blend of style and sophistication, specifically designed for women. With their grey and blue color scheme, these shoes not only look fabulous but also provide excellent versatility whether you're running on the trail or getting some errands done around town. Known for its performance-driven designs, the NB Women's Dynasoft Nitrel V4 Running Shoes offer you a comfortable and breathable experience. The engineered mesh upper ensures that your feet stay cool and well-ventilated, all while maintaining its durability. 
 
@@ -116,9 +116,9 @@ While some might find it a little tricky to adjust the laces due to the slick ma
 So, whether you're a trail runner or simply looking for a versatile running shoe to support your daily activities, the New Balance Women's Dynasoft Nitrel V4 Running Shoes definitely deserve a place in your shoe rack. Give them a try and experience the perfect blend of style, comfort, and performance for yourself! 
 
 
-### [New Balance FuelCell SuperComp Elite v4: Race Day Shoe](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fuelcell-supercomp-elite-v4-race-day-shoe)
+### [New Balance FuelCell SuperComp Elite v4: Race Day Shoe](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-fuelcell-supercomp-elite-v4-race-day-shoe)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fuelcell-supercomp-elite-v4-race-day-shoe"><img alt="new-balance-mens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-7-5-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-mens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-7-5-d-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-fuelcell-supercomp-elite-v4-race-day-shoe"><img alt="new-balance-mens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-7-5-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-mens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-7-5-d-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the New Balance Men's FuelCell SuperComp Elite v4 running shoes, and boy, they definitely delivered on their promise! Not only did they feel incredibly comfortable right out of the box, but they also felt incredibly lightweight, allowing me to move swiftly and effortlessly. The FuelCell midsole technology made with PEBA truly makes a difference, providing that extra energy return that you can really feel in every stride. 
 
@@ -129,9 +129,9 @@ However, there was one minor drawback – the outsole didn't seem to be as durab
 Overall, I'd say the New Balance Men's FuelCell SuperComp Elite v4 running shoes are a solid choice for those looking for a combination of comfort, performance, and that added boost of energy return. They might not be perfect, but they do the job well and make a great addition to any runner's wardrobe. 
 
 
-### [New Balance Nitrel V4 Women's Running Shoes](https://serp.ly/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-womens-running-shoes)
+### [New Balance Nitrel V4 Women's Running Shoes](https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm\_term=new-balance-nitrel-v4-womens-running-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-womens-running-shoes"><img alt="new-balance-womens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-10-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-10-b-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/New+Balance+Nitrel+V4?utm_term=new-balance-nitrel-v4-womens-running-shoes"><img alt="new-balance-womens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-10-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-womens-fuelcell-supercomp-elite-v4-white-bleached-lime-glo-10-b-1/h=540,fit=pad,background=black"/></a></div>
 
 As a runner, I've been searching for the perfect pair of shoes to enhance my performance, and I finally found them in the New Balance Women's FuelCell SuperComp Elite V4. The color scheme may seem bold at first, but once I slipped them on, I was immediately impressed by their comfort and lightweight feel. 
 

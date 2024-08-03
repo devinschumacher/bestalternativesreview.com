@@ -14,9 +14,9 @@ Welcome to our comprehensive roundup of the best printmaking inks on the market.
 ## Reviews
 
 
-### [Deleter Manga Ink - Single White Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=deleter-manga-ink-single-white-printmaking-ink)
+### [Deleter Manga Ink - Single White Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=deleter-manga-ink-single-white-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=deleter-manga-ink-single-white-printmaking-ink"><img alt="deleter-manga-ink-white-1-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/deleter-manga-ink-white-1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=deleter-manga-ink-single-white-printmaking-ink"><img alt="deleter-manga-ink-white-1-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/deleter-manga-ink-white-1-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer, I've been using the Deleter Manga Ink - White 1 for quite some time now, and I must say, it's been a game-changer in my artworks. Despite being a bit water-based, it works great to white-out those pesky details and creates smooth lines that make my illustrations pop. The thin, smooth consistency allows me to layer it without fear of it clumping, and it dries with a nice matte finish. 
 
@@ -25,9 +25,9 @@ If you make a mistake, don't worry - you can wipe it off before it sets! It's ea
 The only thing I'd like to point out is the need to shake the bottle well before use, as some settling happens. But overall, it's an excellent addition to my art supplies, and I'm sure many others will feel the same way! 
 
 
-### [Speedball Essential Fabric Screen Printing Ink Set - Premium Quality Colors and Performance](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-essential-fabric-screen-printing-ink-set-premium-quality-colors-and-performance)
+### [Speedball Essential Fabric Screen Printing Ink Set - Premium Quality Colors and Performance](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-essential-fabric-screen-printing-ink-set-premium-quality-colors-and-performance)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-essential-fabric-screen-printing-ink-set-premium-quality-colors-and-performance"><img alt="speedball-basic-colors-fabric-screen-printing-ink-set-4-michaels-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-basic-colors-fabric-screen-printing-ink-set-4-michaels-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-essential-fabric-screen-printing-ink-set-premium-quality-colors-and-performance"><img alt="speedball-basic-colors-fabric-screen-printing-ink-set-4-michaels-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-basic-colors-fabric-screen-printing-ink-set-4-michaels-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Speedball Basic Colors Fabric Screen Printing Ink Set from Michaels, and I was blown away by the quality and versatility of these inks. The package contains a set of four 4oz jars in black, red, blue, and yellow hues. I was particularly impressed with the coverage and ease of application - the inks dried quickly and evenly, providing a smooth and vibrant finish. 
 
@@ -38,9 +38,9 @@ As someone who enjoys experimenting with different techniques and mediums, I app
 However, one minor downside I noticed was that the inks can be slightly challenging to clean up - especially from skin or clothing. But overall, I'm thrilled with my purchase of the Speedball Basic Colors Fabric Screen Printing Ink Set and would highly recommend it to other artists and crafters looking for high-quality, versatile inks. 
 
 
-### [Akua Intaglio Ink: High-Quality Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=akua-intaglio-ink-high-quality-printmaking-ink)
+### [Akua Intaglio Ink: High-Quality Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=akua-intaglio-ink-high-quality-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=akua-intaglio-ink-high-quality-printmaking-ink"><img alt="akua-intaglio-ink-8-oz-carbon-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-8-oz-carbon-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=akua-intaglio-ink-high-quality-printmaking-ink"><img alt="akua-intaglio-ink-8-oz-carbon-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-8-oz-carbon-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Akua Intaglio Ink is a printmaker's delight, offering a variety of applications from intaglio to relief printmaking, monotype, and collagraphs. Formulated without driers, these soy-based inks allow for extended working time and easy cleanup, particularly with soap and water. 
 
@@ -49,9 +49,9 @@ In my personal experience, I found the colors to be rich and true to their pigme
 That being said, the ink's overall quality, versatility, and absence of chemicals make it a standout product for printmakers looking to elevate their work without needing harsh solvents or complicated prep methods. 
 
 
-### [Speedball Fabric Screenprint Ink Starter Set](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-fabric-screenprint-ink-starter-set)
+### [Speedball Fabric Screenprint Ink Starter Set](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-fabric-screenprint-ink-starter-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-fabric-screenprint-ink-starter-set"><img alt="speedball-4504-fabric-screenprint-starter-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-4504-fabric-screenprint-starter-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-fabric-screenprint-ink-starter-set"><img alt="speedball-4504-fabric-screenprint-starter-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-4504-fabric-screenprint-starter-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Speedball 4504 Fabric Screenprint Starter Set, a must-have tool for your printmaking adventures. This versatile set boasts a wide range of vibrant colors that work seamlessly on various fabrics, such as cotton, polyester blends, linen, and rayon. The ink refill is non-flammable, solvent-free, and non-toxic, making it an eco-friendly and safe choice for all skill levels. 
 
@@ -62,9 +62,9 @@ The Speedball 4504 Fabric Screenprint Starter Set offers an excellent value for 
 In summary, the Speedball 4504 Fabric Screenprint Starter Set is a comprehensive and user-friendly solution for all your printmaking needs. With its vibrant colors, versatile applications, and eco-friendly properties, this set is an exceptional addition to any art enthusiast's collection. 
 
 
-### [Speedball Oil-Based Relief Printing Ink - Vibrant, Waterproof Colors for Woodcut, Linocut Art](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-oil-based-relief-printing-ink-vibrant-waterproof-colors-for-woodcut-linocut-art)
+### [Speedball Oil-Based Relief Printing Ink - Vibrant, Waterproof Colors for Woodcut, Linocut Art](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-oil-based-relief-printing-ink-vibrant-waterproof-colors-for-woodcut-linocut-art)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-oil-based-relief-printing-ink-vibrant-waterproof-colors-for-woodcut-linocut-art"><img alt="speedball-oil-base-block-printing-ink-blue-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-oil-base-block-printing-ink-blue-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-oil-based-relief-printing-ink-vibrant-waterproof-colors-for-woodcut-linocut-art"><img alt="speedball-oil-base-block-printing-ink-blue-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-oil-base-block-printing-ink-blue-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As an artist, I've tried various types of printing ink over the years, but none stood out as much as the Speedball Oil Base Block Printing Ink in blue. The 8 oz ink tube is perfect for creating bold, vibrant prints on conventional surfaces. The inks have a smooth, rich consistency that makes it effortless to mix the hues just right, resulting in the full spectrum of rainbow colors. I particularly appreciate the fact that the Speedball inks are certified AP non-toxic, which gives me peace of mind when working with them in the classroom. 
 
@@ -73,9 +73,9 @@ The highlight of this product is its waterproof and archival quality, which make
 Although there are some minor drawbacks such as the possibility of the ink drying out on top, this issue can be easily addressed by poking a hole in the dried layer with a screwdriver – not a major problem. And, while I wish the ink came in bigger tubes, I can't deny the value of its rich and versatile qualities. With this oil-based relief ink, I've been able to create amazing woodcut, linocut, and engraving works of art, which has significantly boosted my confidence as an artist. If you're looking for a high-quality, long-lasting ink that will add depth and richness to your printmaking endeavors, look no further than the Speedball Oil Base Block Printing Ink in blue. 
 
 
-### [Essdee Fabric Printing Inks: Water-Based, Washable, and Perfect for Lino Printing](https://serp.ly/amazon/Printmaking+Inks?utm\_term=essdee-fabric-printing-inks-water-based-washable-and-perfect-for-lino-printing)
+### [Essdee Fabric Printing Inks: Water-Based, Washable, and Perfect for Lino Printing](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=essdee-fabric-printing-inks-water-based-washable-and-perfect-for-lino-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=essdee-fabric-printing-inks-water-based-washable-and-perfect-for-lino-printing"><img alt="essdee-fabric-block-printing-inks-black-150-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/essdee-fabric-block-printing-inks-black-150-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=essdee-fabric-printing-inks-water-based-washable-and-perfect-for-lino-printing"><img alt="essdee-fabric-block-printing-inks-black-150-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/essdee-fabric-block-printing-inks-black-150-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Essdee Fabric Printing Inks are the perfect tool for those who want to try Lino printing on fabric with ease and success. The highly viscous inks are water-based, which makes it easy to clean up with soap and water. 
 
@@ -84,9 +84,9 @@ Once carving your design using Lino printing tools, you can apply the inky block
 Though the inks are best suited for 100% cotton fabric, you can experiment with other textures for varied results. Plus, the printed fabrics are washable up to 40°C. Overall, Essdee Fabric Printing Inks offer a fun and creative experience for fabric enthusiasts. 
 
 
-### [Jacquard Versatex Screen Printing Ink: High-Quality White 16oz](https://serp.ly/amazon/Printmaking+Inks?utm\_term=jacquard-versatex-screen-printing-ink-high-quality-white-16oz)
+### [Jacquard Versatex Screen Printing Ink: High-Quality White 16oz](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=jacquard-versatex-screen-printing-ink-high-quality-white-16oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=jacquard-versatex-screen-printing-ink-high-quality-white-16oz"><img alt="jacquard-versatex-screen-printing-ink-white-16oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-versatex-screen-printing-ink-white-16oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=jacquard-versatex-screen-printing-ink-high-quality-white-16oz"><img alt="jacquard-versatex-screen-printing-ink-white-16oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-versatex-screen-printing-ink-white-16oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The versatile Jacquard Versatex Screen Printing Ink is a top-quality option for those seeking a reliable and long-lasting printing solution. With its thick, creamy consistency, this ink is perfect for creating intricate designs on fabric, paper, and other materials. It comes in a range of vibrant colors, ensuring that you have the flexibility to create stunning prints with minimal effort. 
 
@@ -99,9 +99,9 @@ Although it may require some practice to master the application of the ink, many
 In summary, the Jacquard Versatex Screen Printing Ink is a dependable and versatile printing option that is perfect for both professional and amateur users. Its intermixability with water, ability to print over light tones, and water-fastness make it an ideal choice for those looking to create stunning prints on fabric, paper, and other materials. 
 
 
-### [Permaset Aqua Gold Lustre Fabric Printing Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=permaset-aqua-gold-lustre-fabric-printing-ink)
+### [Permaset Aqua Gold Lustre Fabric Printing Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=permaset-aqua-gold-lustre-fabric-printing-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=permaset-aqua-gold-lustre-fabric-printing-ink"><img alt="permaset-aqua-1-litre-fabric-printing-ink-gold-lustre-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/permaset-aqua-1-litre-fabric-printing-ink-gold-lustre-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=permaset-aqua-gold-lustre-fabric-printing-ink"><img alt="permaset-aqua-1-litre-fabric-printing-ink-gold-lustre-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/permaset-aqua-1-litre-fabric-printing-ink-gold-lustre-1/h=540,fit=pad,background=black"/></a></div>
 
 As a long-time lover of fabric printing, I recently tried out Permaset Aqua's 1-liter Fabric Printing Ink in Gold Lustre. This was not my first foray into Permaset, and it certainly won't be my last. 
 
@@ -116,9 +116,9 @@ The only concern I had was regarding its compatibility with darker fabrics, as s
 While it might sit a little heftier in the wallet compared to some other brands, the longevity, quality, and versatility of the ink truly make it a worthwhile investment. With its reputation for durability and vibrancy, Permaset Aqua Gold Lustre has become a staple in my fabric printing adventures - an experience I'd wholeheartedly recommend to anyone. 
 
 
-### [Water Soluble Printmaking Ink for Classroom Use](https://serp.ly/amazon/Printmaking+Inks?utm\_term=water-soluble-printmaking-ink-for-classroom-use)
+### [Water Soluble Printmaking Ink for Classroom Use](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=water-soluble-printmaking-ink-for-classroom-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=water-soluble-printmaking-ink-for-classroom-use"><img alt="speedball-water-soluble-block-printing-ink-5-oz-platinum-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-5-oz-platinum-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=water-soluble-printmaking-ink-for-classroom-use"><img alt="speedball-water-soluble-block-printing-ink-5-oz-platinum-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-5-oz-platinum-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Oh, how I've grown to love this Speedball Water Soluble Block Printing Ink. The moment I cracked it open and dipped my printmaking block into the platinum white, I knew it was a winner! The ink is tacky and rich in hue, ensuring a smooth and even coverage on all types of printing surfaces. It was a dream to mix with other colors, creating some truly magical tints that dried surprisingly quick, even fast enough for classroom use. Using it on wooden, linoleum, or soft block surfaces felt like a breeze. 
 
@@ -127,18 +127,18 @@ However, it wasn't all smooth sailing, I did encounter some cons. I noticed that
 Despite these minor drawbacks, this platinum white has become my go-to for printmaking. It's a bit like a faithful companion on an artistic journey. And the best part? It washes off easily with just soap and water, making cleanup a breeze. It's safe to use in the classroom, and lightfastness is impressive, except for the fluorescents which have poor lightfastness. But hey, that's what makes a print unique, right? 
 
 
-### [Premium Carbon Black Ink for Relief Printmaking](https://serp.ly/amazon/Printmaking+Inks?utm\_term=premium-carbon-black-ink-for-relief-printmaking)
+### [Premium Carbon Black Ink for Relief Printmaking](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=premium-carbon-black-ink-for-relief-printmaking)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=premium-carbon-black-ink-for-relief-printmaking"><img alt="akua-intaglio-ink-2-oz-carbon-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-carbon-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=premium-carbon-black-ink-for-relief-printmaking"><img alt="akua-intaglio-ink-2-oz-carbon-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-carbon-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Akua Intaglio Carbon Black Ink is a versatile, soy-based product that offers a range of applications beyond standard intaglio printmaking. With its thick consistency and minimal water content, it's perfect for relief printmaking, monotype, and other creative techniques. 
 
 Designed with lightfast pigments, this ink ensures your prints will maintain their vibrancy over time. While some users reported issues with the ink's cleanliness and dryness, overall, this carbon black ink is a top-quality choice for those working with intaglio printing. 
 
 
-### [Ecotex Water Based Discharge Ink Kit for Vibrant Screen Printing](https://serp.ly/amazon/Printmaking+Inks?utm\_term=ecotex-water-based-discharge-ink-kit-for-vibrant-screen-printing)
+### [Ecotex Water Based Discharge Ink Kit for Vibrant Screen Printing](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=ecotex-water-based-discharge-ink-kit-for-vibrant-screen-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=ecotex-water-based-discharge-ink-kit-for-vibrant-screen-printing"><img alt="ecotex-14-color-water-based-discharge-ink-kit-for-screen-printing-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ecotex-14-color-water-based-discharge-ink-kit-for-screen-printing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=ecotex-water-based-discharge-ink-kit-for-vibrant-screen-printing"><img alt="ecotex-14-color-water-based-discharge-ink-kit-for-screen-printing-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ecotex-14-color-water-based-discharge-ink-kit-for-screen-printing-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently started experimenting with the Ecotex Water-based Ink Kit for Screen Printing, and I must say, it has made a significant difference in my printing projects. As a beginner in the world of screen printing, the kit has been incredibly easy to use, right out of the container. The vivid colors are a major highlight, and it's fantastic to see how they blend together seamlessly, resulting in all the colors from the Pantone book. 
 
@@ -151,9 +151,9 @@ Despite this issue, I've been genuinely pleased with my experience using the Eco
 In conclusion, while the Ecotex Water-based Ink Kit for Screen Printing has had a few minor hiccups, overall, it has been a fantastic addition to my screen printing toolkit. The company's customer service, coupled with the vibrant colors and high image detail capabilities, make this ink kit worth considering for anyone in the printmaking world. 
 
 
-### [Speedball Basic 4 Ink Printmaking Set](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-basic-4-ink-printmaking-set)
+### [Speedball Basic 4 Ink Printmaking Set](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-basic-4-ink-printmaking-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-basic-4-ink-printmaking-set"><img alt="speedball-basic-block-printing-4-ink-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-basic-block-printing-4-ink-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-basic-4-ink-printmaking-set"><img alt="speedball-basic-block-printing-4-ink-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-basic-block-printing-4-ink-set-1/h=540,fit=pad,background=black"/></a></div>
 
 You know that feeling when you've put in the hard work of carving your own unique stamp, and now it's time to make your mark? That's exactly where the Speedball Block Printing Ink comes in. With its bold, opaque colors and non-toxic formula, these inks help bring your handmade stamp designs to life. 
 
@@ -164,9 +164,9 @@ However, one thing I noticed is that the inks can dry quickly, making it challen
 Overall, the Speedball Basic Block Printing Ink set is an excellent choice for anyone looking to elevate their handmade stamps and add a touch of personal flair to their printed materials. Just remember, patience is key when it comes to working with these inks! 
 
 
-### [IOD Decor Ink Mixing White for Multi-Surface Printmaking](https://serp.ly/amazon/Printmaking+Inks?utm\_term=iod-decor-ink-mixing-white-for-multi-surface-printmaking)
+### [IOD Decor Ink Mixing White for Multi-Surface Printmaking](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=iod-decor-ink-mixing-white-for-multi-surface-printmaking)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=iod-decor-ink-mixing-white-for-multi-surface-printmaking"><img alt="iod-decor-ink-mixing-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/iod-decor-ink-mixing-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=iod-decor-ink-mixing-white-for-multi-surface-printmaking"><img alt="iod-decor-ink-mixing-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/iod-decor-ink-mixing-white-1/h=540,fit=pad,background=black"/></a></div>
 
 This Iron Orchid Designs Decor Ink is perfect for those looking for a versatile and long-lasting ink. With its stone, china blue, black, tumeric, tottotto, oceans deep, white mixing, and grass colors, it's great for stamping on various surfaces. 
 
@@ -175,9 +175,9 @@ Users love how it can be used for various purposes like stamping, inking, and dy
 The 2 oz bottle is a handy size for many projects. 
 
 
-### [Raw Umber Intaglio Ink for Printmaking](https://serp.ly/amazon/Printmaking+Inks?utm\_term=raw-umber-intaglio-ink-for-printmaking)
+### [Raw Umber Intaglio Ink for Printmaking](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=raw-umber-intaglio-ink-for-printmaking)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=raw-umber-intaglio-ink-for-printmaking"><img alt="akua-intaglio-ink-2-oz-raw-umber-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-raw-umber-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=raw-umber-intaglio-ink-for-printmaking"><img alt="akua-intaglio-ink-2-oz-raw-umber-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-raw-umber-1/h=540,fit=pad,background=black"/></a></div>
 
 Akua Intaglio Ink 2 oz Raw Umber has been a game-changer in my printmaking process. Its soy-based formula is not only environmentally friendly but also incredibly easy to clean up using soap and water. I've left the ink jar out for months, and it still refuses to dry out. The AP Certification adds an extra layer of peace of mind when it comes to using these inks. 
 
@@ -188,18 +188,18 @@ Akua Intaglio Ink is designed for intaglio printmaking, but I've also found succ
 Overall, the Akua Intaglio Ink 2 oz Raw Umber has been a reliable and versatile addition to my printmaking toolkit. 
 
 
-### [Permaset Aqua Fabric Ink Dark Brown - The Ideal Printmaking Ink Solution](https://serp.ly/amazon/Printmaking+Inks?utm\_term=permaset-aqua-fabric-ink-dark-brown-the-ideal-printmaking-ink-solution)
+### [Permaset Aqua Fabric Ink Dark Brown - The Ideal Printmaking Ink Solution](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=permaset-aqua-fabric-ink-dark-brown-the-ideal-printmaking-ink-solution)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=permaset-aqua-fabric-ink-dark-brown-the-ideal-printmaking-ink-solution"><img alt="permaset-aqua-fabric-ink-dark-brown-liter-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/permaset-aqua-fabric-ink-dark-brown-liter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=permaset-aqua-fabric-ink-dark-brown-the-ideal-printmaking-ink-solution"><img alt="permaset-aqua-fabric-ink-dark-brown-liter-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/permaset-aqua-fabric-ink-dark-brown-liter-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Permaset Aqua Fabric Ink, a eco-friendly ink with excellent long-term durability, perfect for those looking for superior performance and soft handling. With its 100% solvent-free and water-based dyes, this ink offers a rich and vibrant color palette, ensuring your prints are of the highest quality. 
 
 Ideal for printmakers and artists, this ink is an excellent choice for those wanting a sustainable and efficient solution to their fabric printing needs. 
 
 
-### [Essdee Fabric Block Printing Inks | Water-Based, Highly Viscous, Washable Set of 5, 150 ml Printmaking Inks | Made in England](https://serp.ly/amazon/Printmaking+Inks?utm\_term=essdee-fabric-block-printing-inks-water-based-highly-viscous-washable-set-of-5-150-ml-printmaking-inks-made-in-england)
+### [Essdee Fabric Block Printing Inks | Water-Based, Highly Viscous, Washable Set of 5, 150 ml Printmaking Inks | Made in England](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=essdee-fabric-block-printing-inks-water-based-highly-viscous-washable-set-of-5-150-ml-printmaking-inks-made-in-england)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=essdee-fabric-block-printing-inks-water-based-highly-viscous-washable-set-of-5-150-ml-printmaking-inks-made-in-england"><img alt="essdee-fabric-block-printing-inks-set-of-5-150-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/essdee-fabric-block-printing-inks-set-of-5-150-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=essdee-fabric-block-printing-inks-water-based-highly-viscous-washable-set-of-5-150-ml-printmaking-inks-made-in-england"><img alt="essdee-fabric-block-printing-inks-set-of-5-150-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/essdee-fabric-block-printing-inks-set-of-5-150-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the chance to try Essdee Fabric Block Printing Inks and it was an unforgettable experience. This set of 5 highly viscous inks allowed me to create bold and vibrant prints on fabric that were both soft and long-lasting. The water-based ink was a breeze to work with; you can easily clean up using just soap and water before it sets. 
 
@@ -210,27 +210,27 @@ However, if you're going to experiment with these inks, make sure to stick to re
 Despite a few potential naysayers due to variations in results on textured fabrics, I highly recommend Essdee Fabric Block Printing Inks for anyone who wishes to explore the realm of printmaking. It's not just a fun and creative way to bond with fabric, but also a way to make something unique and personalized. 
 
 
-### [Akua Intaglio Printmaking Inks: 8-Color Sampler Pack with 59 ml Jars](https://serp.ly/amazon/Printmaking+Inks?utm\_term=akua-intaglio-printmaking-inks-8-color-sampler-pack-with-59-ml-jars)
+### [Akua Intaglio Printmaking Inks: 8-Color Sampler Pack with 59 ml Jars](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=akua-intaglio-printmaking-inks-8-color-sampler-pack-with-59-ml-jars)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=akua-intaglio-printmaking-inks-8-color-sampler-pack-with-59-ml-jars"><img alt="akua-intaglio-inks-8-color-sampler-pack-59-ml-jars-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-inks-8-color-sampler-pack-59-ml-jars-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=akua-intaglio-printmaking-inks-8-color-sampler-pack-with-59-ml-jars"><img alt="akua-intaglio-inks-8-color-sampler-pack-59-ml-jars-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-inks-8-color-sampler-pack-59-ml-jars-1/h=540,fit=pad,background=black"/></a></div>
 
 Akua Intaglio is a perfect set of soy-based permanent inks that is an incredible choice for environmentally-conscious artists. Formatted for intaglio, they can also be applied with a brayer for relief, monotype, and collagraph printmaking techniques. The set comes with a variety of 8 colors including essential favorites such as Hansa Yellow, Yellow Ochre, Crimson Red, Red Oxide, Carbon Black, Titanium White, Phthalo Green, and Phthalo Blue. The 59 ml jars offer an ideal amount of ink for experimentation and practice. 
 
 Despite being labeled an eco-friendly solution, some customers have experienced issues with the inks' quality and the condition of the jars and labels upon arrival. However, the benefits of using Akua Intaglio inks often outweigh these concerns, especially when it comes to printmaking. The non-toxic, environmentally safe inks allow for a cleaner work experience and result in visually stunning printed goods. Plus, there's the undeniable satisfaction of creating beautiful art without any detrimental impact on the world around us. 
 
 
-### [Blick Water-Soluble Block Printing Ink - Vibrant Orange 8 oz Jar](https://serp.ly/amazon/Printmaking+Inks?utm\_term=blick-water-soluble-block-printing-ink-vibrant-orange-8-oz-jar)
+### [Blick Water-Soluble Block Printing Ink - Vibrant Orange 8 oz Jar](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=blick-water-soluble-block-printing-ink-vibrant-orange-8-oz-jar)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=blick-water-soluble-block-printing-ink-vibrant-orange-8-oz-jar"><img alt="blick-water-soluble-block-printing-ink-orange-8-oz-jar-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/blick-water-soluble-block-printing-ink-orange-8-oz-jar-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=blick-water-soluble-block-printing-ink-vibrant-orange-8-oz-jar"><img alt="blick-water-soluble-block-printing-ink-orange-8-oz-jar-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/blick-water-soluble-block-printing-ink-orange-8-oz-jar-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blick Water-Soluble Block Printing Ink is a versatile and easy-to-use printmaking ink that offers consistent good coverage without over-inking. The pigments are carefully ground and milled to ensure smooth application and easy clean-up using water. Currently, 12 non-toxic colors are available in various tube and jar sizes to cater to different printing requirements. 
 
 Users generally found the ink to be of good quality, with vibrant colors, water soluble properties, and easy cleanup. However, some criticisms pointed out the poor package integrity and short shelf life, as well as the inconsistent intensity of certain colors when compared to traditional oil-based inks. Overall, for those new to the world of printmaking, the Blick Water-Soluble Block Printing Ink is a good affordable option, but may require a bit of adjustment when transitioning from oil-based inks. 
 
 
-### [Professional-Grade Water-Soluble Block Printing Ink for Versatile Usage](https://serp.ly/amazon/Printmaking+Inks?utm\_term=professional-grade-water-soluble-block-printing-ink-for-versatile-usage)
+### [Professional-Grade Water-Soluble Block Printing Ink for Versatile Usage](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=professional-grade-water-soluble-block-printing-ink-for-versatile-usage)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=professional-grade-water-soluble-block-printing-ink-for-versatile-usage"><img alt="speedball-water-soluble-block-printing-ink-black-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-black-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=professional-grade-water-soluble-block-printing-ink-for-versatile-usage"><img alt="speedball-water-soluble-block-printing-ink-black-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-black-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Speedball Water-Soluble Block Printing Ink for a while now and it's been quite a journey. Being a lover of all things creative, my days are spent experimenting with different colors and textures. At first, the ink seemed like a dream come true - rich, bold colors, smooth application, and most importantly, water-soluble, which means easy clean-up. But sometimes, all that glitters isn't gold. 
 
@@ -243,9 +243,9 @@ Additionally, the gold color is somewhat of a disappointment. Compared to other 
 Despite these minor drawbacks, the Speedball Water-Soluble Block Printing Ink is definitely a worthy addition to any art kit. It provides a rich cover and vivid colors, making it a versatile tool for various projects. The ease of clean-up is a massive plus, and I'd definitely recommend this product to artists who are always on the lookout for new, interesting colors to experiment with. 
 
 
-### [High-Quality Soy-Based Intaglio Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=high-quality-soy-based-intaglio-printmaking-ink)
+### [High-Quality Soy-Based Intaglio Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=high-quality-soy-based-intaglio-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=high-quality-soy-based-intaglio-printmaking-ink"><img alt="akua-intaglio-iivb2-printmaking-ink-2oz-vandyke-brown-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-iivb2-printmaking-ink-2oz-vandyke-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=high-quality-soy-based-intaglio-printmaking-ink"><img alt="akua-intaglio-iivb2-printmaking-ink-2oz-vandyke-brown-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-iivb2-printmaking-ink-2oz-vandyke-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of using Akua Intaglio IIVB2 Printmaking Ink, and let me tell you, it's been quite an experience. This soy-based ink boasts an impressive range of uses, from relief printmaking to monotype and beyond. The fact that it can print from a variety of materials - plastic, wood, linoleum or metal plate - is truly remarkable. 
 
@@ -254,18 +254,18 @@ With its high-quality lightfast pigments and thick consistency, it's no wonder t
 Overall, the Akua Intaglio IIVB2 Printmaking Ink has proven to be a reliable and versatile tool in my printmaking arsenal. Though it required some adaptation, its high-quality color and extensive range of applications make it a worthwhile investment for any artist. 
 
 
-### [Caligo Safe Wash Relief Ink - Opaque White (75 ml) - Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=caligo-safe-wash-relief-ink-opaque-white-75-ml-printmaking-ink)
+### [Caligo Safe Wash Relief Ink - Opaque White (75 ml) - Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=caligo-safe-wash-relief-ink-opaque-white-75-ml-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=caligo-safe-wash-relief-ink-opaque-white-75-ml-printmaking-ink"><img alt="caligo-safe-wash-relief-ink-opaque-white-75-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/caligo-safe-wash-relief-ink-opaque-white-75-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=caligo-safe-wash-relief-ink-opaque-white-75-ml-printmaking-ink"><img alt="caligo-safe-wash-relief-ink-opaque-white-75-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/caligo-safe-wash-relief-ink-opaque-white-75-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 This innovative ink is a game-changer for those looking for a non-toxic, environmentally-friendly printmaking solution. The Caligo Safe Wash Relief Ink offers a soft, smooth texture, and provides exceptional coverage and vibrant color. Its oil-based formula ensures that it's easy to mix and applies evenly onto your chosen surface. 
 
 The ink can be easily cleaned up with soap and water, eliminating the need for harsh chemicals. Suitable for various printmaking techniques, such as linocut, woodcut, and letterpress, this ink is an excellent choice for artists looking for a safe alternative to traditional inks. 
 
 
-### [Octopus Blue Lynx Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=octopus-blue-lynx-printmaking-ink)
+### [Octopus Blue Lynx Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=octopus-blue-lynx-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=octopus-blue-lynx-printmaking-ink"><img alt="octopus-write-and-draw-ink-50ml-blue-lynx-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/octopus-write-and-draw-ink-50ml-blue-lynx-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=octopus-blue-lynx-printmaking-ink"><img alt="octopus-write-and-draw-ink-50ml-blue-lynx-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/octopus-write-and-draw-ink-50ml-blue-lynx-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to the world of Octopus Write and Draw Ink 50ml - Blue Lynx! This unique, smudge-proof, and waterproof ink is perfect for daily use with fountain pens, as well as a favorite among artists, illustrators, and calligraphers. With 38 vibrant shades to choose from, each boasting intense color power thanks to its high, balanced pigmentation, you'll never run out of creative inspiration. 
 
@@ -274,18 +274,18 @@ The 50mL glass bottles are conveniently sized for easy use, and they're made rig
 Enjoy the rich, bold colors it provides and the confidence that comes with its high lightfastness and fountain pen safety. Trust us, you won't regret giving Octopus Write and Draw Ink 50ml - Blue Lynx a try! 
 
 
-### [Speedball Polished Pastels Fabric Printing Ink Set](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-polished-pastels-fabric-printing-ink-set)
+### [Speedball Polished Pastels Fabric Printing Ink Set](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-polished-pastels-fabric-printing-ink-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-polished-pastels-fabric-printing-ink-set"><img alt="speedball-fabric-screen-printing-ink-set-polished-pastels-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-fabric-screen-printing-ink-set-polished-pastels-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-polished-pastels-fabric-printing-ink-set"><img alt="speedball-fabric-screen-printing-ink-set-polished-pastels-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-fabric-screen-printing-ink-set-polished-pastels-1/h=540,fit=pad,background=black"/></a></div>
 
 Speedball's Fabric Screen Printing Ink offers artists a vibrant color palette, enhanced coverage, and smoother workability compared to other options on the market. Designed for use on fabric, paper, or cardboard, the inks provide a soft-hand finish once properly heat set, making them safe for studio or classroom use. 
 
 Comprising four 4oz jars of ink, the set includes prim peacock, luscious lilac, blushing bride, and pretty in pearl. With non-flammable properties and an absence of unpleasant odors, these inks are the perfect creative addition for a range of projects. 
 
 
-### [Speedball Block Printing Ink - 5 oz. White](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-block-printing-ink-5-oz-white)
+### [Speedball Block Printing Ink - 5 oz. White](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-block-printing-ink-5-oz-white)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-block-printing-ink-5-oz-white"><img alt="speedball-block-printing-fabric-ink-5-oz-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-5-oz-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-block-printing-ink-5-oz-white"><img alt="speedball-block-printing-fabric-ink-5-oz-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-5-oz-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Speedball Block Printing Ink is a versatile, oil-based ink that offers bold, opaque color perfect for various fabrics. Suitable for cotton, polyester blends, linen, rayon, and synthetic fibers, it can also be used on paper and cardboard. 
 
@@ -294,9 +294,9 @@ With its easy cleanup using soap and water, this ink is ideal for printmakers wh
 Available in a range of colors, this ink can be purchased in either 75cc (2.5 oz. ) or 150cc (5 oz. ) tubes. 
 
 
-### [Speedball Block Printing Ink Starter Set for Artists and Students](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-block-printing-ink-starter-set-for-artists-and-students)
+### [Speedball Block Printing Ink Starter Set for Artists and Students](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-block-printing-ink-starter-set-for-artists-and-students)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-block-printing-ink-starter-set-for-artists-and-students"><img alt="speedball-block-printing-ink-starter-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-ink-starter-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-block-printing-ink-starter-set-for-artists-and-students"><img alt="speedball-block-printing-ink-starter-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-ink-starter-set-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Speedball Water-Soluble Block Printing Ink set, and I must say it was quite an experience. First off, the colors in this set are incredibly vibrant, making it perfect for creating bold prints that catch the eye. The ink is easy to spread, ensuring even coverage on the substrates, and it dries to a rich, satiny finish. 
 
@@ -307,9 +307,9 @@ However, one possible downside is that the ink tends to dry out quickly, especia
 Overall, the Speedball Water-Soluble Block Printing Ink Starter Set is a versatile and high-performing set of inks for block and relief printing. It might have a few minor drawbacks, but if you can get past those, you'll be sure to enjoy the bold, vibrant prints it helps you create. 
 
 
-### [Jacquard Versatex Printing Ink Set #1 for Vibrant Prints](https://serp.ly/amazon/Printmaking+Inks?utm\_term=jacquard-versatex-printing-ink-set-1-for-vibrant-prints)
+### [Jacquard Versatex Printing Ink Set #1 for Vibrant Prints](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=jacquard-versatex-printing-ink-set-1-for-vibrant-prints)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=jacquard-versatex-printing-ink-set-1-for-vibrant-prints"><img alt="jacquard-versatex-printing-ink-set-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jacquard-versatex-printing-ink-set-1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=jacquard-versatex-printing-ink-set-1-for-vibrant-prints"><img alt="jacquard-versatex-printing-ink-set-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jacquard-versatex-printing-ink-set-1-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jacquard Versatex Printing Ink Set #1 has been a reliable companion in my screen printing projects. I've used it on various surfaces from paper to fabric and even on leather. The set includes eight 2.25 fluid ounces jars of inks in different assorted colors, which is perfect for my creative endeavors. 
 
@@ -324,9 +324,9 @@ In terms of cleaning, the inks don't wash out easily, regardless of the techniqu
 To sum it up, the Jacquard Versatex Printing Ink Set #1 offers a wide range of colors and techniques that are easy to mix and store. Although the inks may clog at times, their non-toxic nature and ease of use make them worth considering for screen printers of all skill levels. 
 
 
-### [Speedball Turquoise Fabric Printing Ink for Vibrant Art Creations](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-turquoise-fabric-printing-ink-for-vibrant-art-creations)
+### [Speedball Turquoise Fabric Printing Ink for Vibrant Art Creations](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-turquoise-fabric-printing-ink-for-vibrant-art-creations)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-turquoise-fabric-printing-ink-for-vibrant-art-creations"><img alt="speedball-block-printing-fabric-ink-2-5-oz-turquoise-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-2-5-oz-turquoise-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-turquoise-fabric-printing-ink-for-vibrant-art-creations"><img alt="speedball-block-printing-fabric-ink-2-5-oz-turquoise-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-2-5-oz-turquoise-1/h=540,fit=pad,background=black"/></a></div>
 
 During the past few months, I've been experimenting with different printing inks to find the perfect one for my creative projects. While I've tried quite a few brands, Speedball Fabric Block Printing Ink quickly stood out as one of the best options. 
 
@@ -339,9 +339,9 @@ However, as with any product, there have been some drawbacks to using this ink. 
 Despite these minor drawbacks, I still believe that Speedball Fabric Block Printing Ink is an exceptional product for anyone looking to elevate their printmaking skills. Its ease of use, along with the wide range of bold colors available, make it a must-have tool for both beginners and experienced artists alike. 
 
 
-### [Jacquard Screen Printing Ink Set - 16oz](https://serp.ly/amazon/Printmaking+Inks?utm\_term=jacquard-screen-printing-ink-set-16oz)
+### [Jacquard Screen Printing Ink Set - 16oz](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=jacquard-screen-printing-ink-set-16oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=jacquard-screen-printing-ink-set-16oz"><img alt="jacquard-screen-printing-inks-16oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-screen-printing-inks-16oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=jacquard-screen-printing-ink-set-16oz"><img alt="jacquard-screen-printing-inks-16oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-screen-printing-inks-16oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jacquard Screen Printing Inks, available in a 16oz container, offer a high-quality solution for screen printing enthusiasts. These water-based inks have a unique formulation that allows for a longer open time in the screen, enabling users to work with more colors without the ink drying. This results in a higher resolution print with minimal clogging issues. 
 
@@ -352,9 +352,9 @@ Additionally, they do not wrinkle paper when printing artwork. The water-based f
 Reviews from users seem to have mixed opinions, with both praises and concerns shared about the ink's consistency and performance. 
 
 
-### [Speedball Printmaking Ink for Block Printing](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-printmaking-ink-for-block-printing)
+### [Speedball Printmaking Ink for Block Printing](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-printmaking-ink-for-block-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-printmaking-ink-for-block-printing"><img alt="speedball-block-printing-fabric-ink-2-5-oz-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-printmaking-ink-for-block-printing"><img alt="speedball-block-printing-fabric-ink-2-5-oz-white-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-white-1/h=540,fit=pad,background=black"/></a></div>
 
 As an avid printmaker, I was excited to try out the Speedball Fabric Block Printing Ink. I've been experimenting around with different inks, and so far, I'm still favoring this one. One of the highlights for me has been the fact that it doesn't require heat setting. I've been able to create beautiful prints on various fabrics, including cotton, polyester, linen, and rayon, even on paper and cardboard. 
 
@@ -365,9 +365,9 @@ However, there have been a couple of drawbacks I've experienced. The color can b
 Overall, the Speedball Fabric Block Printing Ink has been a valuable addition to my printmaking toolkit. Its versatility and bold colors make it a go-to choice for my projects, and I'm excited to continue experimenting with it in the future. 
 
 
-### [Speedball Printmasters Ink Set for Professional Printmaking](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-printmasters-ink-set-for-professional-printmaking)
+### [Speedball Printmasters Ink Set for Professional Printmaking](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-printmasters-ink-set-for-professional-printmaking)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-printmasters-ink-set-for-professional-printmaking"><img alt="speedball-printmasters-professional-relief-ink-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-printmasters-professional-relief-ink-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-printmasters-ink-set-for-professional-printmaking"><img alt="speedball-printmasters-professional-relief-ink-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-printmasters-professional-relief-ink-set-1/h=540,fit=pad,background=black"/></a></div>
 
 The Speedball Printmasters Professional Relief Ink Set boasts an impressive 4.2 rating with 43 reviews. These inks are water-miscible, oil-based, making them ideal for professional printmaking. Their high-quality pigments, developed for professionals, ensure rich, crisp prints with the archival qualities they demand. With exceptional working properties, these inks are formulated to meet the expectations of expert artists. 
 
@@ -376,9 +376,9 @@ One key aspect of these inks is their consistent roll-out, beautiful transfer, a
 Pros: The inks are rich, offer excellent color coverage, and have a consistent roll-out, ensuring easy and accurate printing. They're also easy to clean up with soap and water. Cons: Some users have reported a strong smell and difficulty in working with certain shades, leading to challenges in achieving the desired print quality. Despite these minor issues, the Speedball Printmasters Professional Relief Ink Set is a versatile and high-quality set of inks perfect for professional artists looking to elevate their printmaking experience. 
 
 
-### [Versatile Printmaking Ink for Precise Block Printing](https://serp.ly/amazon/Printmaking+Inks?utm\_term=versatile-printmaking-ink-for-precise-block-printing)
+### [Versatile Printmaking Ink for Precise Block Printing](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=versatile-printmaking-ink-for-precise-block-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=versatile-printmaking-ink-for-precise-block-printing"><img alt="speedball-block-printing-water-soluble-ink-brown-2-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-water-soluble-ink-brown-2-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=versatile-printmaking-ink-for-precise-block-printing"><img alt="speedball-block-printing-water-soluble-ink-brown-2-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-water-soluble-ink-brown-2-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Speedball Water-Soluble Block Printing Ink in a wide range of colors, and I must say that I'm impressed with the results. The inks are a mix of bright and vibrant shades, making them perfect for block and relief printing. One feature that stood out for me was their quick-drying nature, as they dried to a rich, satiny finish within moments. 
 
@@ -389,9 +389,9 @@ In terms of clean-up, the Speedball Water-Soluble Block Printing Ink is a dream 
 Overall, I'd say that the Speedball Water-Soluble Block Printing Ink is a top-notch choice for those looking to create bold, vibrant prints quickly and easily. While it may not be the best option for longer projects or larger pieces, its convenience and clean-up ease make it a standout choice for many artists and students. 
 
 
-### [Charbonnel Water-Washable Raw Sepia Printing Ink: versatile for etching and washable](https://serp.ly/amazon/Printmaking+Inks?utm\_term=charbonnel-water-washable-raw-sepia-printing-ink-versatile-for-etching-and-washable)
+### [Charbonnel Water-Washable Raw Sepia Printing Ink: versatile for etching and washable](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=charbonnel-water-washable-raw-sepia-printing-ink-versatile-for-etching-and-washable)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=charbonnel-water-washable-raw-sepia-printing-ink-versatile-for-etching-and-washable"><img alt="charbonnel-water-washable-printing-ink-raw-sepia-60-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/charbonnel-water-washable-printing-ink-raw-sepia-60-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=charbonnel-water-washable-raw-sepia-printing-ink-versatile-for-etching-and-washable"><img alt="charbonnel-water-washable-printing-ink-raw-sepia-60-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/charbonnel-water-washable-printing-ink-raw-sepia-60-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 During my recent printmaking project, I turned to Charbonnel Water Washable Printing Ink in Raw Sepia. As a fan of vibrant colors and water-soluble inks, this ink quickly became my go-to choice for its rich color and ease of cleaning. 
 
@@ -404,9 +404,9 @@ Despite its many pros, this ink also has some downsides. For one, it can take so
 Overall, I would highly recommend Charbonnel Water Washable Printing Ink for those seeking a versatile, vibrant, and easy-to-clean ink for their printmaking creations. Just be mindful of the drying process and careful handling to achieve the best results. 
 
 
-### [Speedball Art Akua Printmaking Starter Set](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-art-akua-printmaking-starter-set)
+### [Speedball Art Akua Printmaking Starter Set](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-art-akua-printmaking-starter-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-art-akua-printmaking-starter-set"><img alt="speedball-art-products-8209-akua-starter-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-art-products-8209-akua-starter-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-art-akua-printmaking-starter-set"><img alt="speedball-art-products-8209-akua-starter-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-art-products-8209-akua-starter-set-1/h=540,fit=pad,background=black"/></a></div>
 
 This Akua Starter Set offers beginners a chance to explore printmaking with a comprehensive collection of essential tools. The seven Akua Professional Printmaking Inks provide vibrant colors that do not dry on the printer's plate, offering ample time to manipulate the image. These inks are suitable for various techniques, including monoprints and reductions, delivering stunning results every time. The starter set also includes two modifiers, the transparent base, and blending medium, allowing for further customization of the ink's transparency and viscosity. 
 
@@ -415,9 +415,9 @@ One of the standout features of this set is the soap and water clean-up, making 
 Although some users have expressed concerns regarding the leakiness of the set, the majority of those who have purchased this Akua Starter Set have been highly satisfied with its performance, ease of use, and exceptional color quality. The starter set is perfect for beginners and even experienced printmakers looking for a convenient and versatile set of tools to add to their arsenal. 
 
 
-### [Speedball Fabric Bold Ink for Fabric and Paper Printing (2.5 oz)](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-fabric-bold-ink-for-fabric-and-paper-printing-2-5-oz)
+### [Speedball Fabric Bold Ink for Fabric and Paper Printing (2.5 oz)](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-fabric-bold-ink-for-fabric-and-paper-printing-2-5-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-fabric-bold-ink-for-fabric-and-paper-printing-2-5-oz"><img alt="speedball-block-printing-fabric-ink-2-5-oz-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-fabric-bold-ink-for-fabric-and-paper-printing-2-5-oz"><img alt="speedball-block-printing-fabric-ink-2-5-oz-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-black-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first got my hands on the Speedball Fabric Block Printing Ink, I was eager to try it out. I wanted to see if it would truly make a difference in my printing process. I found that the ink did indeed pop when used on paper and cardboard, and it was quite vibrant on fabric as well. 
 
@@ -428,9 +428,9 @@ However, I did notice that the ink could be tackier compared to other inks, maki
 Overall, I found the Speedball Fabric Block Printing Ink to be a great choice for those interested in printing on fabric or paper. Its washability and vibrant colors made it a popular choice among those who use it. While it may not be perfect for all applications, it certainly holds its own against other professional-grade inks on the market. 
 
 
-### [Professional Screen Printing Ink: Permanent, Versatile, and Easy to Clean](https://serp.ly/amazon/Printmaking+Inks?utm\_term=professional-screen-printing-ink-permanent-versatile-and-easy-to-clean)
+### [Professional Screen Printing Ink: Permanent, Versatile, and Easy to Clean](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=professional-screen-printing-ink-permanent-versatile-and-easy-to-clean)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=professional-screen-printing-ink-permanent-versatile-and-easy-to-clean"><img alt="jacquard-professional-screen-printing-ink-4-oz-navy-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-professional-screen-printing-ink-4-oz-navy-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=professional-screen-printing-ink-permanent-versatile-and-easy-to-clean"><img alt="jacquard-professional-screen-printing-ink-4-oz-navy-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-professional-screen-printing-ink-4-oz-navy-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jacquard Professional Screen Printing Ink, available in a 4 oz. Navy color, is a sought-after product for artists and designers looking to create vibrant, long-lasting prints. 
 
@@ -439,9 +439,9 @@ This water-based ink boasts a wide range of colors, including opaque options, an
 Overall, this ink is a popular choice for those looking to create stunning prints on various surfaces. 
 
 
-### [Marabu Printmaking Set of 5 Inks](https://serp.ly/amazon/Printmaking+Inks?utm\_term=marabu-printmaking-set-of-5-inks)
+### [Marabu Printmaking Set of 5 Inks](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=marabu-printmaking-set-of-5-inks)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=marabu-printmaking-set-of-5-inks"><img alt="marabu-screen-block-printing-ink-set-of-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/marabu-screen-block-printing-ink-set-of-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=marabu-printmaking-set-of-5-inks"><img alt="marabu-screen-block-printing-ink-set-of-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/marabu-screen-block-printing-ink-set-of-5-1/h=540,fit=pad,background=black"/></a></div>
 
 The Marabu Screen & Block Printing Ink Set is a great choice for any printing project. With five tubes of 100ml ink each, you'll have everything you need to bring your vision to life. Whether you're looking for a primary yellow, primary magenta, primary cyan, buff titanium light, or carbon black, Marabu has you covered. 
 
@@ -450,9 +450,9 @@ The water-based ink is saliva resistant and washable, making it perfect for prin
 Whether you're a beginner or a professional, Marabu is the perfect ink for all your printing needs. 
 
 
-### [Ultramarine Blue Akua Intaglio Printmaking Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=ultramarine-blue-akua-intaglio-printmaking-ink)
+### [Ultramarine Blue Akua Intaglio Printmaking Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=ultramarine-blue-akua-intaglio-printmaking-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=ultramarine-blue-akua-intaglio-printmaking-ink"><img alt="akua-intaglio-ink-2-oz-ultramarine-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-ultramarine-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=ultramarine-blue-akua-intaglio-printmaking-ink"><img alt="akua-intaglio-ink-2-oz-ultramarine-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/akua-intaglio-ink-2-oz-ultramarine-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 Akua Intaglio Ink is a renowned soy-based formulation perfect for various printmaking techniques including intaglio, relief, monotype, and collagraphs. It can be used on a variety of plates such as plastic, wood, linoleum or metal. The ink's exceptional features include having a thick consistency with minimal water content, being AP certified and non-toxic, which makes it easier to work with and allows for a lengthier working time. The clean-up process is also simple, using just soap and water. 
 
@@ -461,9 +461,9 @@ However, there's a caveat when it comes to the price, as it isn't the cheapest o
 Overall, Akua Intaglio Ink is a versatile and dependable choice for printmakers looking for a high-quality, non-toxic ink that offers excellent color saturation and has a unique, translucent quality. 
 
 
-### [Water-Soluble Block Printing Ink for Artisans](https://serp.ly/amazon/Printmaking+Inks?utm\_term=water-soluble-block-printing-ink-for-artisans)
+### [Water-Soluble Block Printing Ink for Artisans](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=water-soluble-block-printing-ink-for-artisans)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=water-soluble-block-printing-ink-for-artisans"><img alt="speedball-water-soluble-block-printing-ink-5-oz-violet-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-5-oz-violet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=water-soluble-block-printing-ink-for-artisans"><img alt="speedball-water-soluble-block-printing-ink-5-oz-violet-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-water-soluble-block-printing-ink-5-oz-violet-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Speedball's Water-Soluble Block Printing Ink, a versatile and easy-to-use ink that is perfect for avid printers and beginners alike. With its unique consistency, this ink is specially crafted to deliver bold and vibrant colors on a wide range of surfaces, including linoleum, wood, and flexible printing plates. Its fast drying time makes it an ideal choice for those who prefer to work quickly, while its water-soluble nature ensures minimal cleanup, perfect for busy artists. 
 
@@ -474,9 +474,9 @@ However, it's essential to note that the ink is classified as non-permanent, whi
 In summary, the Speedball Water-Soluble Block Printing Ink is a top-quality product that provides great value to both hobbyists and professionals. Its ease of cleanup, versatile color options, and fast-drying nature make it the perfect choice for a wide range of printmaking projects. Just remember to take precautions when handling the ink and avoid prolonged contact with water to ensure the best possible results. 
 
 
-### [Violet Speedball Block Printing Fabric Ink](https://serp.ly/amazon/Printmaking+Inks?utm\_term=violet-speedball-block-printing-fabric-ink)
+### [Violet Speedball Block Printing Fabric Ink](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=violet-speedball-block-printing-fabric-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=violet-speedball-block-printing-fabric-ink"><img alt="speedball-block-printing-fabric-ink-2-5-oz-violet-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-violet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=violet-speedball-block-printing-fabric-ink"><img alt="speedball-block-printing-fabric-ink-2-5-oz-violet-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-block-printing-fabric-ink-2-5-oz-violet-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the vibrant beauty of block printing on fabric with Speedball Fabric Block Printing Ink. This versatile ink offers excellent color results on both natural and synthetic fabrics, ensuring your creations pop in your designs. 
 
@@ -485,9 +485,9 @@ The permanent oil-based ink provides bold, opaque shades that are perfect for va
 Suitable for crafting, home sewing, or even professional fabric design, this ink will help you achieve stunning results every time. 
 
 
-### [Speedball Metallic Block Printing Ink Set for Vibrant Artwork](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-metallic-block-printing-ink-set-for-vibrant-artwork)
+### [Speedball Metallic Block Printing Ink Set for Vibrant Artwork](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-metallic-block-printing-ink-set-for-vibrant-artwork)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-metallic-block-printing-ink-set-for-vibrant-artwork"><img alt="speedball-metallic-block-printing-ink-set-4-colors-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-metallic-block-printing-ink-set-4-colors-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-metallic-block-printing-ink-set-for-vibrant-artwork"><img alt="speedball-metallic-block-printing-ink-set-4-colors-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-metallic-block-printing-ink-set-4-colors-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Speedball Metallic Block Printing Ink Set for my art project, and I must say, I was pleasantly surprised. As an artist, I enjoyed working with these 4 metallic, water-soluble tubes of ink. The set includes silver, gold, pewter, and copper varieties, which allowed me to achieve a stunning array of vibrant and satiny finishes. 
 
@@ -496,9 +496,9 @@ The inks are iridescent, lightfast, and water-soluble with a non-toxic formula, 
 One of the best parts was that I didn't have to worry about a messy cleanup - the ink easily washed off my hands using just soap and water. The Speedball Block Printing Ink Set is an ideal choice for anyone looking to enhance their printmaking experience, regardless of skill level. 
 
 
-### [High Opacity Acrylic Screen Printing Ink: Vibrant Colors with Easy Clean-Up](https://serp.ly/amazon/Printmaking+Inks?utm\_term=high-opacity-acrylic-screen-printing-ink-vibrant-colors-with-easy-clean-up)
+### [High Opacity Acrylic Screen Printing Ink: Vibrant Colors with Easy Clean-Up](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=high-opacity-acrylic-screen-printing-ink-vibrant-colors-with-easy-clean-up)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=high-opacity-acrylic-screen-printing-ink-vibrant-colors-with-easy-clean-up"><img alt="speedball-8-oz-acrylic-screen-printing-ink-brown-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-8-oz-acrylic-screen-printing-ink-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=high-opacity-acrylic-screen-printing-ink-vibrant-colors-with-easy-clean-up"><img alt="speedball-8-oz-acrylic-screen-printing-ink-brown-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-8-oz-acrylic-screen-printing-ink-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 The Speedball Acrylic Screen Printing Ink in Brown is a versatile product that offers vibrant colors, high opacity, and good lightfastness. This non-toxic, water-based ink is perfect for use on a variety of surfaces, including paper, wood, and cardboard. The 8 oz. 
 
@@ -509,18 +509,18 @@ Additionally, the fluorescent shades available in this product line provide a un
 Overall, this screen printing ink is a reliable and affordable option for adding vibrant colors to your projects. 
 
 
-### [Versatex Extender for Printmaking Inks](https://serp.ly/amazon/Printmaking+Inks?utm\_term=versatex-extender-for-printmaking-inks)
+### [Versatex Extender for Printmaking Inks](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=versatex-extender-for-printmaking-inks)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=versatex-extender-for-printmaking-inks"><img alt="jacquard-versatex-screen-printing-ink-extender-4-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-versatex-screen-printing-ink-extender-4-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=versatex-extender-for-printmaking-inks"><img alt="jacquard-versatex-screen-printing-ink-extender-4-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jacquard-versatex-screen-printing-ink-extender-4-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jacquard Versatex Screen Printing Ink Extender, a versatile option for commercial silkscreening, boasts a rich, creamy consistency that's perfect for textile printing, batiks, and other intricate designs. This ink is renowned for its deep, long-lasting colors, which remain vibrant even after heat setting. Adding the extender allows for pastel and translucent shades, offering a range of possibilities for your creative projects. 
 
 Its water-soluble nature ensures ease of use, while its compatibility with light fabrics makes it a go-to choice for vibrant designs on various textiles. Although it may not entirely cover dark tones, its ability to blend and create new shades makes it a valuable addition to your printmaking toolkit. 
 
 
-### [Professional Relief Ink in Titanium White for Printmaking](https://serp.ly/amazon/Printmaking+Inks?utm\_term=professional-relief-ink-in-titanium-white-for-printmaking)
+### [Professional Relief Ink in Titanium White for Printmaking](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=professional-relief-ink-in-titanium-white-for-printmaking)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=professional-relief-ink-in-titanium-white-for-printmaking"><img alt="speedball-professional-relief-ink-titanium-white-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-professional-relief-ink-titanium-white-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=professional-relief-ink-in-titanium-white-for-printmaking"><img alt="speedball-professional-relief-ink-titanium-white-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/speedball-professional-relief-ink-titanium-white-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently became acquainted with the Speedball Professional Relief Ink series, specifically the 8 oz tin of Titanium White. As a printmaking enthusiast, I was eager to incorporate this ink into my projects. 
 
@@ -533,9 +533,9 @@ Another downside I discovered was the limited availability of the ink. The Titan
 Despite these minor setbacks, the Speedball Professional Relief Ink series certainly holds potential for printmakers looking for high-quality, lightfast, and archival oil-based inks. By addressing the odor and expanding the color range in the future, the product could become a valuable addition to any printmaking studio. 
 
 
-### [Vibrant Fabric Screen Printing Ink for Artists - 128 fl. oz. Black](https://serp.ly/amazon/Printmaking+Inks?utm\_term=vibrant-fabric-screen-printing-ink-for-artists-128-fl-oz-black)
+### [Vibrant Fabric Screen Printing Ink for Artists - 128 fl. oz. Black](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=vibrant-fabric-screen-printing-ink-for-artists-128-fl-oz-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=vibrant-fabric-screen-printing-ink-for-artists-128-fl-oz-black"><img alt="speedball-046000-fabric-screen-printing-ink-128-fl-oz-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-046000-fabric-screen-printing-ink-128-fl-oz-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=vibrant-fabric-screen-printing-ink-for-artists-128-fl-oz-black"><img alt="speedball-046000-fabric-screen-printing-ink-128-fl-oz-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-046000-fabric-screen-printing-ink-128-fl-oz-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As an artist, I've always been on the lookout for top-notch screen printing ink that offers the best vibrant colors, great coverage, and consistent workability. That's precisely what I found in Speedball's Fabric Screen Printing Inks. The ink produced super soft-hand on fabric and was permanently set once meticulously heat-set. The highlight that stood out for me was the ease of using soap and water for cleanup—a much-needed feature for a mess-free experience. 
 
@@ -546,45 +546,45 @@ However, there was one downside I encountered, which was the tricky process of s
 Overall, Speedball's Fabric Screen Printing Inks offer a blend of vibrant colors, great performance, and ease of cleanup. It's a reliable choice for artists looking to elevate their screen printing game. 
 
 
-### [Vibrant Silkscreen Ink for Unique Printmaking Projects](https://serp.ly/amazon/Printmaking+Inks?utm\_term=vibrant-silkscreen-ink-for-unique-printmaking-projects)
+### [Vibrant Silkscreen Ink for Unique Printmaking Projects](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=vibrant-silkscreen-ink-for-unique-printmaking-projects)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=vibrant-silkscreen-ink-for-unique-printmaking-projects"><img alt="we-r-memory-keepers-vinyl-print-press-screen-print-ink-2oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-r-memory-keepers-vinyl-print-press-screen-print-ink-2oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=vibrant-silkscreen-ink-for-unique-printmaking-projects"><img alt="we-r-memory-keepers-vinyl-print-press-screen-print-ink-2oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-r-memory-keepers-vinyl-print-press-screen-print-ink-2oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the We R Memory Keepers Vinyl Print Press Screen Print Ink a try, and let me tell you, it's a game-changer for my printmaking projects. The bright colors are simply stunning and make my designs really pop. The ink is surprisingly easy to work with, and I love that I can mix and match to create unique finishes. 
 
 It's like having a personal color palette at my fingertips! However, I did notice that it takes a bit longer to dry compared to other inks I've used. Overall, it's a fantastic product for those looking to add some vibrant color to their printmaking projects. 
 
 
-### [High-Quality Acrylic Screen Printing Ink for Various Surfaces - Black](https://serp.ly/amazon/Printmaking+Inks?utm\_term=high-quality-acrylic-screen-printing-ink-for-various-surfaces-black)
+### [High-Quality Acrylic Screen Printing Ink for Various Surfaces - Black](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=high-quality-acrylic-screen-printing-ink-for-various-surfaces-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=high-quality-acrylic-screen-printing-ink-for-various-surfaces-black"><img alt="speedball-8-oz-acrylic-screen-printing-ink-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-8-oz-acrylic-screen-printing-ink-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=high-quality-acrylic-screen-printing-ink-for-various-surfaces-black"><img alt="speedball-8-oz-acrylic-screen-printing-ink-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-8-oz-acrylic-screen-printing-ink-black-1/h=540,fit=pad,background=black"/></a></div>
 
 This acrylic screen printing ink is designed to work seamlessly on various surfaces like paper, cardboard, and wood. It has a premium quality and is considered non-toxic and low fume, giving professional artists and students a sense of peace and ease while working. The ink is also easy to clean up using water, making it a perfect fit for those who value convenience. 
 
 However, it is not recommended for use on fabrics that will be laundered, which limits its potential applications for some users. The product does have a propensity to congeal if left unattended for too long but this does not appear to impact the performance of the inks significantly. Some users suggest there's a tendency for the ink to have air bubbles, but despite this, the inks are praised for their smooth application and blendability across the product range. The price point is considered quite reasonable for the quality of the product, especially considering its suitability for CMYK printing. 
 
 
-### [Speedball Metallic Printmaking Ink for Block Printing](https://serp.ly/amazon/Printmaking+Inks?utm\_term=speedball-metallic-printmaking-ink-for-block-printing)
+### [Speedball Metallic Printmaking Ink for Block Printing](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=speedball-metallic-printmaking-ink-for-block-printing)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=speedball-metallic-printmaking-ink-for-block-printing"><img alt="speedball-block-printing-fabric-ink-2-5-oz-metallic-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-2-5-oz-metallic-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=speedball-metallic-printmaking-ink-for-block-printing"><img alt="speedball-block-printing-fabric-ink-2-5-oz-metallic-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/speedball-block-printing-fabric-ink-2-5-oz-metallic-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using Speedball's Fabric Block Printing Ink for a few weeks now, and it's been a game-changer for my projects. The first thing I noticed about this ink was its versatility. Not only can you use it on fabric - cotton, polyester, linen, and rayon - but it also works incredibly well on paper and cardboard. The fast drying time without the need for any heat set to make it permanent was a nice surprise as well. One key highlight of this ink for me was its non-toxic formula. I felt safe using it indoors, even with my young children running around. 
 
 One downside I noticed was the ink's tendency to cake up when layering prints. However, that didn't stop me from creating detailed and vibrant designs on my fabric pieces. Another drawback that I've encountered is the drying time for different colors. For example, the black color dries significantly faster than the greens. Regardless of these minor issues, the Speedball Fabric Block Printing Ink has greatly enhanced my printmaking experience. 
 
 
-### [Handy Art Non-Toxic Water-Soluble Printmaking Ink 5 oz. Black](https://serp.ly/amazon/Printmaking+Inks?utm\_term=handy-art-non-toxic-water-soluble-printmaking-ink-5-oz-black)
+### [Handy Art Non-Toxic Water-Soluble Printmaking Ink 5 oz. Black](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=handy-art-non-toxic-water-soluble-printmaking-ink-5-oz-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=handy-art-non-toxic-water-soluble-printmaking-ink-5-oz-black"><img alt="handy-art-block-printing-ink-5-oz-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/handy-art-block-printing-ink-5-oz-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=handy-art-non-toxic-water-soluble-printmaking-ink-5-oz-black"><img alt="handy-art-block-printing-ink-5-oz-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/handy-art-block-printing-ink-5-oz-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Handy Art Block Printing Ink for my art projects, and I must say, it's a game-changer! The 5 oz. black ink was a great choice to start with, as it's non-toxic and made right here in the USA. I loved the bright, opaque colors it produced – they're incredibly consistent in tack and viscosity. It's perfect for printing on various materials like linoleum, wood blocks, and even flexible vinyl plates. 
 
 One downside I noticed was that it didn't mix well with certain types of materials. But overall, the ink's non-toxic nature and high-quality colors made it a worthwhile addition to my art supplies. And let's not forget how easy it is to clean up – just a simple soap and water rinse and you're good to go. Handy Art's Block Printing Inks are truly the ideal choice for any artist looking for quality, non-toxic ink. 
 
 
-### [Sawgrass EasySubli Printmaking Inks: Black, Cyan, Magenta & Yellow - 4 Pack](https://serp.ly/amazon/Printmaking+Inks?utm\_term=sawgrass-easysubli-printmaking-inks-black-cyan-magenta-yellow-4-pack)
+### [Sawgrass EasySubli Printmaking Inks: Black, Cyan, Magenta & Yellow - 4 Pack](https://serp.ly/@outrun/amazon/Printmaking+Inks?utm\_term=sawgrass-easysubli-printmaking-inks-black-cyan-magenta-yellow-4-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Printmaking+Inks?utm_term=sawgrass-easysubli-printmaking-inks-black-cyan-magenta-yellow-4-pack"><img alt="sawgrass-easysubli-inks-sg500-sg1000-4-pack-black-cyan-magenta-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sawgrass-easysubli-inks-sg500-sg1000-4-pack-black-cyan-magenta-yellow-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks?utm_term=sawgrass-easysubli-printmaking-inks-black-cyan-magenta-yellow-4-pack"><img alt="sawgrass-easysubli-inks-sg500-sg1000-4-pack-black-cyan-magenta-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sawgrass-easysubli-inks-sg500-sg1000-4-pack-black-cyan-magenta-yellow-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sawgrass EasySubli Inks SG500 & SG1000 are a popular choice for those in need of versatile and durable sublimation inks. These inks are specifically designed to work with Sawgrass' Virtuoso HD Product Decorating Systems and offer expanded gamut and extended yield for vibrant, true-to-life colors. The 4-pack includes black, cyan, magenta, and yellow inks, which are suitable for decorating a wide range of products made from polyester fabrics or polymer coated rigid media. 
 
@@ -600,7 +600,7 @@ Printmaking is an art form that involves leaving an image on paper or other mate
 
 There are various types of printmaking inks, including oil-based, water-based, and solvent-based. Oil-based inks are highly pigmented and suitable for creating rich, deep colors. On the other hand, water-based and solvent-based inks are more versatile and easier to work with, making them ideal for beginners. 
 
-<div><a href="https://serp.ly/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-2/h=540,fit=pad,background=black" alt="Printmaking-Inks-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-2/h=540,fit=pad,background=black" alt="Printmaking-Inks-2" height="540"></a></div>
 
 
 ### Consider the Substrate
@@ -612,7 +612,7 @@ The substrate or material you intend to print on also plays a significant role i
 
 Viscosity refers to the thickness or fluidity of the ink. Thicker inks are better for printing on textured surfaces, while thinner inks offer smoother coverage. Generally, beginners prefer thinner inks for easier application, while professionals may prefer thicker inks for greater control and opacity. 
 
-<div><a href="https://serp.ly/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-3/h=540,fit=pad,background=black" alt="Printmaking-Inks-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-3/h=540,fit=pad,background=black" alt="Printmaking-Inks-3" height="540"></a></div>
 
 
 ### Eco-Friendly Options
@@ -622,7 +622,7 @@ Many printmaking inks are designed with eco-friendly materials. These inks often
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-4/h=540,fit=pad,background=black" alt="Printmaking-Inks-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-4/h=540,fit=pad,background=black" alt="Printmaking-Inks-4" height="540"></a></div>
 
 
 ### What makes printmaking ink unique?
@@ -636,7 +636,7 @@ Water-based inks are the most common and versatile options, suitable for a varie
 
 There are several types of printmaking inks, including water-based, solvent-based, UV-curable, and phtalocyanine inks. While water-based inks are the most common and versatile, offering a wide range of suitable surfaces and techniques, solvent-based inks are beneficial for non-absorbent materials, like plastics. UV-curable inks provide rapid and efficient curing for high-speed printing, making them ideal for commercial environments. 
 
-<div><a href="https://serp.ly/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-5/h=540,fit=pad,background=black" alt="Printmaking-Inks-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-5/h=540,fit=pad,background=black" alt="Printmaking-Inks-5" height="540"></a></div>
 
 
 ### Which brands of printmaking ink are popular among artists?
@@ -652,7 +652,7 @@ Cleaning printmaking surfaces and equipment depends on the type of material bein
 
 When cleaning printers, follow the manufacturer's instructions for optimal cleaning and maintenance. Generally, printer components can be cleaned with a soft-bristled brush or cloth and a mild detergent solution. Some components may require specific cleaning methods or cleaners, so consult your printer's manual or contact the manufacturer for further guidance. 
 
-<div><a href="https://serp.ly/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-6/h=540,fit=pad,background=black" alt="Printmaking-Inks-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Printmaking+Inks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Printmaking-Inks-6/h=540,fit=pad,background=black" alt="Printmaking-Inks-6" height="540"></a></div>
 
 
 ### How do I select the right ink for my printmaking project?

@@ -14,9 +14,9 @@ Looking for the perfect way to light up your night without draining your electri
 ## Reviews
 
 
-### [Wireless LED Cabinet Night Lights - 6-Pack](https://serp.ly/amazon/Battery+Night+Light?utm\_term=wireless-led-cabinet-night-lights-6-pack)
+### [Wireless LED Cabinet Night Lights - 6-Pack](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=wireless-led-cabinet-night-lights-6-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=wireless-led-cabinet-night-lights-6-pack"><img alt="nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-white-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-white-6-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=wireless-led-cabinet-night-lights-6-pack"><img alt="nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-white-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-white-6-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Brighten up your storage areas or small spaces with the NexTool 200 Lumen LED Night Light. Portable and wireless, these conveniently sized LEDs make the perfect addition to your nighttime routine. Easy to detach and attach, they're an excellent choice for garages, sheds, closets, and any other tucked-away corner that can benefit from a little extra illumination. 
 
@@ -25,9 +25,9 @@ With adjustable brightness levels and batteries provided, these lights offer ver
 While these minor drawbacks might bother some, the overall simplicity and usefulness of the product make it a solid choice for those looking to add a bit of light to their darkest corners. 
 
 
-### [Moomin Snorkmaiden 22cm Battery Night Light](https://serp.ly/amazon/Battery+Night+Light?utm\_term=moomin-snorkmaiden-22cm-battery-night-light)
+### [Moomin Snorkmaiden 22cm Battery Night Light](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=moomin-snorkmaiden-22cm-battery-night-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=moomin-snorkmaiden-22cm-battery-night-light"><img alt="moomin-lamp-snorkmaiden-good-night-light-usb-battery-22-cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moomin-lamp-snorkmaiden-good-night-light-usb-battery-22-cm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=moomin-snorkmaiden-22cm-battery-night-light"><img alt="moomin-lamp-snorkmaiden-good-night-light-usb-battery-22-cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moomin-lamp-snorkmaiden-good-night-light-usb-battery-22-cm-1/h=540,fit=pad,background=black"/></a></div>
 
 The Moomin Lamp Snorkmaiden Good Night Light is a delightful addition to any room, measuring 22 cm in size, perfect for table or bedside use. This soft and soothing light comes in a warm white glow, perfect for creating a calming atmosphere at bedtime. The brightness can be adjusted by tapping the light, with four different options: three different levels of brightness plus off. 
 
@@ -36,9 +36,9 @@ The light can be powered by three AAA batteries (not included) or a USB-C cable 
 This charming light is a great nighttime companion and is sure to bring a touch of magic to any room. Its versatility makes it a great addition to any space, whether it's a child's bedroom or an office. The Moomin Lamp Snorkmaiden Good Night Light is the perfect way to create a cozy and inviting atmosphere, where memories are made and where dreams come true. 
 
 
-### [Musashi Motion-Sensor Battery Night Light](https://serp.ly/amazon/Battery+Night+Light?utm\_term=musashi-motion-sensor-battery-night-light)
+### [Musashi Motion-Sensor Battery Night Light](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=musashi-motion-sensor-battery-night-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=musashi-motion-sensor-battery-night-light"><img alt="musashi-night-light-motion-sensor-indoor-portable-light-battery-powered-night-light-sphere-pearl-gra-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/musashi-night-light-motion-sensor-indoor-portable-light-battery-powered-night-light-sphere-pearl-gra-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=musashi-motion-sensor-battery-night-light"><img alt="musashi-night-light-motion-sensor-indoor-portable-light-battery-powered-night-light-sphere-pearl-gra-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/musashi-night-light-motion-sensor-indoor-portable-light-battery-powered-night-light-sphere-pearl-gra-1/h=540,fit=pad,background=black"/></a></div>
 
 The Musashi Night Light Motion Sensor Indoor Portable Light, in a beautiful pearl gray color, is a must-have for your home. With its battery-powered design, it's easy to carry and perfect for hallway, stairs, bedroom, dining room, kitchen, entrance hall, attic, storage or work space. 
 
@@ -47,18 +47,18 @@ Featuring two lighting modes, it can automatically detect heat sources up to 13f
 Available in three different soft colors, it looks lovely as a standalone light or as a gift. 
 
 
-### [Mooas Rechargeable LED Nightlight: Multifunctional Timer for Time Management](https://serp.ly/amazon/Battery+Night+Light?utm\_term=mooas-rechargeable-led-nightlight-multifunctional-timer-for-time-management)
+### [Mooas Rechargeable LED Nightlight: Multifunctional Timer for Time Management](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=mooas-rechargeable-led-nightlight-multifunctional-timer-for-time-management)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=mooas-rechargeable-led-nightlight-multifunctional-timer-for-time-management"><img alt="mooas-rechargeable-timer-led-nightlight-51530-and-60-minutes-time-management-timer-nightlight-timer--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mooas-rechargeable-timer-led-nightlight-51530-and-60-minutes-time-management-timer-nightlight-timer--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=mooas-rechargeable-led-nightlight-multifunctional-timer-for-time-management"><img alt="mooas-rechargeable-timer-led-nightlight-51530-and-60-minutes-time-management-timer-nightlight-timer--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mooas-rechargeable-timer-led-nightlight-51530-and-60-minutes-time-management-timer-nightlight-timer--1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's been using the Mooas Rechargeable Timer LED Nightlight in my daily life, I can say it's been a game changer. The no-battery LED nightlight provides a warm glow without requiring constant replacement, and the 4 different time settings have made it incredibly versatile. Whether I'm nursing my baby or trying to help my kids fall asleep, this little device has been reliable. 
 
 However, there's one issue - the weight inside causes the timer to rattle. While it may seem a minor annoyance, it doesn't seem to affect the overall functionality of the product. Despite this, the overall comfort and easy usage have made it a go-to for me. Plus, the soft and simple design in two colors has added a touch of warmth to my bedroom. 
 
 
-### [Westinghouse Ultra-Bright 4-in-1 Rechargeable LED Night Lights (3-Pack)](https://serp.ly/amazon/Battery+Night+Light?utm\_term=westinghouse-ultra-bright-4-in-1-rechargeable-led-night-lights-3-pack)
+### [Westinghouse Ultra-Bright 4-in-1 Rechargeable LED Night Lights (3-Pack)](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=westinghouse-ultra-bright-4-in-1-rechargeable-led-night-lights-3-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=westinghouse-ultra-bright-4-in-1-rechargeable-led-night-lights-3-pack"><img alt="westinghouse-4-in-1-rechargeable-power-failure-led-night-light-3-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/westinghouse-4-in-1-rechargeable-power-failure-led-night-light-3-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=westinghouse-ultra-bright-4-in-1-rechargeable-led-night-lights-3-pack"><img alt="westinghouse-4-in-1-rechargeable-power-failure-led-night-light-3-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/westinghouse-4-in-1-rechargeable-power-failure-led-night-light-3-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 The Westinghouse 4-in-1 Rechargeable Power Failure LED Night Light offers a versatile and energy-efficient lighting solution for various household needs. This compact device is designed with intelligent light and motion sensor technology which automatically activates the unit to provide ample brightness during both normal usage and power outages. 
 
@@ -67,18 +67,18 @@ The unit has three modes: auto-dimming, motion sensing only, and off modes, ensu
 Its rechargeable battery makes it environmentally friendly, and users can take advantage of its portable flashlight feature when needed. 
 
 
-### [Lueudu LED Cat Night Light: Customizable LED Night Light for Kids and Babies](https://serp.ly/amazon/Battery+Night+Light?utm\_term=lueudu-led-cat-night-light-customizable-led-night-light-for-kids-and-babies)
+### [Lueudu LED Cat Night Light: Customizable LED Night Light for Kids and Babies](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=lueudu-led-cat-night-light-customizable-led-night-light-for-kids-and-babies)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=lueudu-led-cat-night-light-customizable-led-night-light-for-kids-and-babies"><img alt="lueudu-led-cat-night-light-battery-powered-night-light-for-kids-silicone-multicolor-cute-cat-lamp-wi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lueudu-led-cat-night-light-battery-powered-night-light-for-kids-silicone-multicolor-cute-cat-lamp-wi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=lueudu-led-cat-night-light-customizable-led-night-light-for-kids-and-babies"><img alt="lueudu-led-cat-night-light-battery-powered-night-light-for-kids-silicone-multicolor-cute-cat-lamp-wi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lueudu-led-cat-night-light-battery-powered-night-light-for-kids-silicone-multicolor-cute-cat-lamp-wi-1/h=540,fit=pad,background=black"/></a></div>
 
 This Lueudu LED Cat Night Light is a charming and safe addition to any nursery or bedroom. Made with BPA-free washable silicone, this enviro-friendly and comfortable material is ideal for kids and babies alike. The light features three modes, offering a warm white glow or a soothing 7-color breathing light. 
 
 Simply pat the silicone surface to change the mode - the light even turns off after an hour of inactivity, making it energy-saving and safe for little ones. Its compact size and touch control make it perfect for travel, and the included manual guides you through its easy operation. 
 
 
-### [GAGAYA Portable LED Battery Night Light for Kids Room and Nursery](https://serp.ly/amazon/Battery+Night+Light?utm\_term=gagaya-portable-led-battery-night-light-for-kids-room-and-nursery)
+### [GAGAYA Portable LED Battery Night Light for Kids Room and Nursery](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=gagaya-portable-led-battery-night-light-for-kids-room-and-nursery)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=gagaya-portable-led-battery-night-light-for-kids-room-and-nursery"><img alt="gagaya-portable-pir-motion-sensor-retro-led-night-light-wireless-battery-operated-moving-table-lamp--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gagaya-portable-pir-motion-sensor-retro-led-night-light-wireless-battery-operated-moving-table-lamp--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=gagaya-portable-led-battery-night-light-for-kids-room-and-nursery"><img alt="gagaya-portable-pir-motion-sensor-retro-led-night-light-wireless-battery-operated-moving-table-lamp--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gagaya-portable-pir-motion-sensor-retro-led-night-light-wireless-battery-operated-moving-table-lamp--1/h=540,fit=pad,background=black"/></a></div>
 
 As a busy mom, I've always been on the lookout for efficient and portable lighting solutions for my home. Recently, I stumbled upon the GAGAYA Retro LED Night Light, and I must say, it's been a game-changer! 
 
@@ -93,18 +93,18 @@ When I went camping, I even took this lamp along with me as it fits perfectly fo
 Overall, the GAGAYA Retro LED Night Light is a highly reliable, efficient, and stylish lighting solution that is perfect for any setting. Just ensure that you're always stocked up on AAA batteries for optimal performance. 
 
 
-### [Imperial Home Battery Night Light: 200 Lumens LED illumination](https://serp.ly/amazon/Battery+Night+Light?utm\_term=imperial-home-battery-night-light-200-lumens-led-illumination)
+### [Imperial Home Battery Night Light: 200 Lumens LED illumination](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=imperial-home-battery-night-light-200-lumens-led-illumination)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=imperial-home-battery-night-light-200-lumens-led-illumination"><img alt="imperial-home-200-lumens-battery-operated-led-night-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imperial-home-200-lumens-battery-operated-led-night-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=imperial-home-battery-night-light-200-lumens-led-illumination"><img alt="imperial-home-200-lumens-battery-operated-led-night-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imperial-home-200-lumens-battery-operated-led-night-light-1/h=540,fit=pad,background=black"/></a></div>
 
 Using the Imperial Home 200 Lumens LED Night Light was a game-changer in my daily routine. The dual COB LED strips were blindingly bright, providing excellent illumination in any room I needed it. I especially loved the three different ways to mount this faux light switch – using the self-adhesive hook and loop fasteners, embedded magnets, or the keyed mounting slots. 
 
 One minor downside was that it only included four AAA batteries, which caused me to run out quickly. However, the pros far outweighed the cons. The brightness and versatility of this LED night light made it a crucial tool for my daily life. If you're in search of a reliable and easy-to-use night light, the Imperial Home 200 Lumens Battery Operated LED Night Light should definitely be at the top of your list. 
 
 
-### [Battery-Powered 200 Lumen LED Cabinet Light - Pack of 6](https://serp.ly/amazon/Battery+Night+Light?utm\_term=battery-powered-200-lumen-led-cabinet-light-pack-of-6)
+### [Battery-Powered 200 Lumen LED Cabinet Light - Pack of 6](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=battery-powered-200-lumen-led-cabinet-light-pack-of-6)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=battery-powered-200-lumen-led-cabinet-light-pack-of-6"><img alt="nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-cream-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-cream-6-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=battery-powered-200-lumen-led-cabinet-light-pack-of-6"><img alt="nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-cream-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nextool-200-lumen-battery-operated-brightness-adjustable-led-cabinet-night-light-cream-6-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're constantly searching for a bright LED light to spruce up your workspace or cabinet, NexTool's 200 Lumen Battery Operated Brightness Adjustable LED Cabinet Night Light is a versatile option. Sporting an updated COB LED technology, it boasts of an impressive 200 lumen output. 
 
@@ -115,36 +115,36 @@ However, there are some downsides to this product. The user interface was a bit 
 Overall, if you're looking for a budget-friendly, portable light, this might be your answer. But be prepared for the limitations and set them up in locations where battery life and brightness are not a major concern. In the end, you'll have a nifty little tool to keep you going in the darkness. 
 
 
-### [Maxsa Battery-Powered Motion-Activated Outdoor Night-Light](https://serp.ly/amazon/Battery+Night+Light?utm\_term=maxsa-battery-powered-motion-activated-outdoor-night-light)
+### [Maxsa Battery-Powered Motion-Activated Outdoor Night-Light](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=maxsa-battery-powered-motion-activated-outdoor-night-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=maxsa-battery-powered-motion-activated-outdoor-night-light"><img alt="maxsa-43342-battery-powered-motion-activated-outdoor-night-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maxsa-43342-battery-powered-motion-activated-outdoor-night-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=maxsa-battery-powered-motion-activated-outdoor-night-light"><img alt="maxsa-43342-battery-powered-motion-activated-outdoor-night-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maxsa-43342-battery-powered-motion-activated-outdoor-night-light-1/h=540,fit=pad,background=black"/></a></div>
 
 These Maxsa outdoor night lights are the ultimate solution for your dark outdoor pathways. I've used them for my garden steps, and the motion-activated feature turned on the light just when I needed it. 
 
 No need for electricity or the help of an electrician, these lights are a piece of cake to install. They're rated IP-44 Weatherproof, so they won't be affected by rain or harsh sunlight either. The only drawback I experienced is that half of the lights had trouble detecting motion and turned on intermittently, but overall, these lights are absolutely perfect for lighting your night-time journey. 
 
 
-### [Energizer Battery-Powered LED Utility Touch Light for Versatile Illumination](https://serp.ly/amazon/Battery+Night+Light?utm\_term=energizer-battery-powered-led-utility-touch-light-for-versatile-illumination)
+### [Energizer Battery-Powered LED Utility Touch Light for Versatile Illumination](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=energizer-battery-powered-led-utility-touch-light-for-versatile-illumination)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=energizer-battery-powered-led-utility-touch-light-for-versatile-illumination"><img alt="energizer-white-led-night-light-76043-t1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-white-led-night-light-76043-t1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=energizer-battery-powered-led-utility-touch-light-for-versatile-illumination"><img alt="energizer-white-led-night-light-76043-t1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-white-led-night-light-76043-t1-1/h=540,fit=pad,background=black"/></a></div>
 
 The Energizer LED Utility Touch Light offers versatile lighting options, powered by three AA batteries for hassle-free usage. The soft white light serves as a guiding light for tasks, a stylish accent, or a calming night light, making it a valuable addition to various spaces like storage areas, sheds, and RVs. Its low-profile design can easily blend into any decor, while the built-in light sensor ensures energy efficiency and hands-free operation. 
 
 The durable construction and energy efficiency instill confidence in long-lasting reliability and safety. 
 
 
-### [GE Jewel LED Night Light Dual Pack for Energy Efficient Illumination](https://serp.ly/amazon/Battery+Night+Light?utm\_term=ge-jewel-led-night-light-dual-pack-for-energy-efficient-illumination)
+### [GE Jewel LED Night Light Dual Pack for Energy Efficient Illumination](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=ge-jewel-led-night-light-dual-pack-for-energy-efficient-illumination)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=ge-jewel-led-night-light-dual-pack-for-energy-efficient-illumination"><img alt="ge-night-light-led-2-pack-2-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ge-night-light-led-2-pack-2-lights-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=ge-jewel-led-night-light-dual-pack-for-energy-efficient-illumination"><img alt="ge-night-light-led-2-pack-2-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ge-night-light-led-2-pack-2-lights-1/h=540,fit=pad,background=black"/></a></div>
 
 Last night, I tried out the GE Jewel LED Night Light to see if it was as stylish and efficient as it claimed. To my delight, this LED light instantly brought a warm, amber glow to my bathroom, making my nighttime routine more pleasant. The light's design blended seamlessly with my existing decor, and it never needed turning on or off since it automatically illuminates when plugged in. 
 
 However, my bathroom has a dimly lit corner, and sometimes the LED light was not bright enough for me to see in the dark. Overall, the GE Jewel LED Night Light made my nightly trips to the bathroom more comfortable, though I wish it was a bit brighter in darker areas. 
 
 
-### [Eco-Friendly Rechargeable Motion Sensor LED Night Light Battery-Powered for Kids' Safety and Bedroom Lighting](https://serp.ly/amazon/Battery+Night+Light?utm\_term=eco-friendly-rechargeable-motion-sensor-led-night-light-battery-powered-for-kids-safety-and-bedroom-lighting)
+### [Eco-Friendly Rechargeable Motion Sensor LED Night Light Battery-Powered for Kids' Safety and Bedroom Lighting](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=eco-friendly-rechargeable-motion-sensor-led-night-light-battery-powered-for-kids-safety-and-bedroom-lighting)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=eco-friendly-rechargeable-motion-sensor-led-night-light-battery-powered-for-kids-safety-and-bedroom-lighting"><img alt="keliden-rechargeable-night-lightstick-on-anywhere-motion-sensor-battery-nightlight-closet-light-warm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keliden-rechargeable-night-lightstick-on-anywhere-motion-sensor-battery-nightlight-closet-light-warm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=eco-friendly-rechargeable-motion-sensor-led-night-light-battery-powered-for-kids-safety-and-bedroom-lighting"><img alt="keliden-rechargeable-night-lightstick-on-anywhere-motion-sensor-battery-nightlight-closet-light-warm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keliden-rechargeable-night-lightstick-on-anywhere-motion-sensor-battery-nightlight-closet-light-warm-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer, I recently had the chance to use the KELIDEN Rechargeable Night Light in my home. This little device has been a lifesaver, especially for my children who are scared of the dark. The motion sensor feature ensures that the light turns on automatically when someone enters the room, and it shuts off just 20 seconds after the person leaves. This makes it perfect for families with young kids who might wake up during the night. 
 
@@ -153,9 +153,9 @@ I also appreciate that the night light doesn't require any disposable batteries,
 One small drawback is that the light sensor can sometimes be a bit sensitive, causing the light to turn on when it's not necessary. However, this hasn't been a major issue for me, and overall, I'm really happy with the KELIDEN Rechargeable Night Light. 
 
 
-### [Portable Wireless LED Bulbs for Outdoor/Indoor Use](https://serp.ly/amazon/Battery+Night+Light?utm\_term=portable-wireless-led-bulbs-for-outdoor-indoor-use)
+### [Portable Wireless LED Bulbs for Outdoor/Indoor Use](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=portable-wireless-led-bulbs-for-outdoor-indoor-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=portable-wireless-led-bulbs-for-outdoor-indoor-use"><img alt="alltrolite-4-pack-bulb-portable-wireless-cob-led-light-bulb-battery-operated-led-night-lights-cob-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alltrolite-4-pack-bulb-portable-wireless-cob-led-light-bulb-battery-operated-led-night-lights-cob-le-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=portable-wireless-led-bulbs-for-outdoor-indoor-use"><img alt="alltrolite-4-pack-bulb-portable-wireless-cob-led-light-bulb-battery-operated-led-night-lights-cob-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alltrolite-4-pack-bulb-portable-wireless-cob-led-light-bulb-battery-operated-led-night-lights-cob-le-1/h=540,fit=pad,background=black"/></a></div>
 
 These Alltro bulbs are a game changer! Imagine ditching the wiring and replacing it with simple, battery-powered LED lights. 
 
@@ -164,18 +164,18 @@ They take the hassle out of lighting up your life. You can tap-on and tap-off th
 The only thing that stands out is the need for 3 AAA batteries per light. But hey, with such a long-lasting product, it's a small price to pay! 
 
 
-### [Energy-Efficient, Adjustable Brightness Plug-In Night Light](https://serp.ly/amazon/Battery+Night+Light?utm\_term=energy-efficient-adjustable-brightness-plug-in-night-light)
+### [Energy-Efficient, Adjustable Brightness Plug-In Night Light](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=energy-efficient-adjustable-brightness-plug-in-night-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=energy-efficient-adjustable-brightness-plug-in-night-light"><img alt="l-lohas-led-lohas-dimmable-night-light-2-pack-led-plug-in-night-light-nightlights-with-light-sensors-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-lohas-led-lohas-dimmable-night-light-2-pack-led-plug-in-night-light-nightlights-with-light-sensors-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=energy-efficient-adjustable-brightness-plug-in-night-light"><img alt="l-lohas-led-lohas-dimmable-night-light-2-pack-led-plug-in-night-light-nightlights-with-light-sensors-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-lohas-led-lohas-dimmable-night-light-2-pack-led-plug-in-night-light-nightlights-with-light-sensors-1/h=540,fit=pad,background=black"/></a></div>
 
 The L Lohas LED Lohas Dimmable Night Light is an innovative lighting solution that takes convenience to the next level. With its smart light sensor, this night light seamlessly fades on when the surrounding brightness drops, providing an optimal hands-free lighting experience. The adjustable brightness makes it perfect for various settings, while its energy efficiency contributes to a healthier environment and cost savings. 
 
 This sleek and space-saving design is versatile, making it suitable for various rooms and an exceptional addition to your home. 
 
 
-### [One Fire Baby Dimmer Night Light with Memory Function and Remote Control - 80 Lighting Effects and 1800mAh Rechargeable Battery](https://serp.ly/amazon/Battery+Night+Light?utm\_term=one-fire-baby-dimmer-night-light-with-memory-function-and-remote-control-80-lighting-effects-and-1800mah-rechargeable-battery)
+### [One Fire Baby Dimmer Night Light with Memory Function and Remote Control - 80 Lighting Effects and 1800mAh Rechargeable Battery](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=one-fire-baby-dimmer-night-light-with-memory-function-and-remote-control-80-lighting-effects-and-1800mah-rechargeable-battery)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=one-fire-baby-dimmer-night-light-with-memory-function-and-remote-control-80-lighting-effects-and-1800mah-rechargeable-battery"><img alt="one-fire-baby-night-light-kids-night-light10-colors-dimmable-night-light-for-kids-lamprechargeable-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/one-fire-baby-night-light-kids-night-light10-colors-dimmable-night-light-for-kids-lamprechargeable-p-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=one-fire-baby-dimmer-night-light-with-memory-function-and-remote-control-80-lighting-effects-and-1800mah-rechargeable-battery"><img alt="one-fire-baby-night-light-kids-night-light10-colors-dimmable-night-light-for-kids-lamprechargeable-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/one-fire-baby-night-light-kids-night-light10-colors-dimmable-night-light-for-kids-lamprechargeable-p-1/h=540,fit=pad,background=black"/></a></div>
 
 The One Fire Baby Night Light is a versatile and convenient solution for parents who want to create a cozy atmosphere for their little ones. With 80 lighting effects and an adjustable brightness level, this night light can easily be dimmed to a soft glow, making it perfect for breastfeeding, diaper changes or those late-night trips to the bathroom. It also boasts a memory function, so you can quickly access the last brightness and color setting. 
 
@@ -186,9 +186,9 @@ One of the unique features of this night light is its remote and timer settings.
 Portable and easy to use, this night light has been designed keeping in mind the needs of busy parents and growing children. Its compact size and lightweight build make it perfect for outdoor camping trips or emergency situations, whereas its sturdy build and reliable construction ensure its lasting value for years to come. This baby night light is a perfect addition to a nursery, children's bedroom, or even the bathroom, for that added layer of comfort and security. 
 
 
-### [Soothing Glowing Fox Night Light for Children](https://serp.ly/amazon/Battery+Night+Light?utm\_term=soothing-glowing-fox-night-light-for-children)
+### [Soothing Glowing Fox Night Light for Children](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=soothing-glowing-fox-night-light-for-children)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=soothing-glowing-fox-night-light-for-children"><img alt="lumipets-fox-night-light-with-remote-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lumipets-fox-night-light-with-remote-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=soothing-glowing-fox-night-light-for-children"><img alt="lumipets-fox-night-light-with-remote-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lumipets-fox-night-light-with-remote-1/h=540,fit=pad,background=black"/></a></div>
 
 As a busy mom, finding a product that doubles as an adorable companion and a soothing night light has been a game changer for my kids. LumePets Fox Night Light has been such a relief during bedtime! The changing colors not only make it visually appealing, but it also helps my children learn colors effortlessly. 
 
@@ -197,9 +197,9 @@ One feature that stands out is the remote control for the brightness and sleep t
 However, one downside I've noticed is that the color cycle control seems a bit too sensitive, making it hard to keep the light stable. Overall, it's still a great product that serves its purpose well, with the added bonus of being perfect for travel. It's become a constant presence on our nightstand, providing a gentle glow and a friendly companion to my little ones. 
 
 
-### [Mr. Beams MB720A Sleep-Friendly Battery Night Lights (3-Pack)](https://serp.ly/amazon/Battery+Night+Light?utm\_term=mr-beams-mb720a-sleep-friendly-battery-night-lights-3-pack)
+### [Mr. Beams MB720A Sleep-Friendly Battery Night Lights (3-Pack)](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=mr-beams-mb720a-sleep-friendly-battery-night-lights-3-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=mr-beams-mb720a-sleep-friendly-battery-night-lights-3-pack"><img alt="mr-beams-mb720a-sleep-friendly-battery-powered-motion-sensing-led-stick-anywhere-nightlight-with-amb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-beams-mb720a-sleep-friendly-battery-powered-motion-sensing-led-stick-anywhere-nightlight-with-amb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=mr-beams-mb720a-sleep-friendly-battery-night-lights-3-pack"><img alt="mr-beams-mb720a-sleep-friendly-battery-powered-motion-sensing-led-stick-anywhere-nightlight-with-amb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-beams-mb720a-sleep-friendly-battery-powered-motion-sensing-led-stick-anywhere-nightlight-with-amb-1/h=540,fit=pad,background=black"/></a></div>
 
 These Mr. Beams battery-powered motion-sensing LED lights provide a sleep-friendly amber light emitting 20 lumens of soft light at 600Nm. 
 
@@ -208,9 +208,9 @@ Perfect for bedrooms, bathrooms, and hallways, these lights have been proven to 
 The wireless installation allows for quick mounting with included screws or double-sided adhesive. 
 
 
-### [Battery-Powered LED Motion Sensor Light](https://serp.ly/amazon/Battery+Night+Light?utm\_term=battery-powered-led-motion-sensor-light)
+### [Battery-Powered LED Motion Sensor Light](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=battery-powered-led-motion-sensor-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=battery-powered-led-motion-sensor-light"><img alt="bunker-hill-security-battery-operated-led-motion-sensor-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bunker-hill-security-battery-operated-led-motion-sensor-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=battery-powered-led-motion-sensor-light"><img alt="bunker-hill-security-battery-operated-led-motion-sensor-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bunker-hill-security-battery-operated-led-motion-sensor-light-1/h=540,fit=pad,background=black"/></a></div>
 
 The battery-operated LED motion sensor light is a fantastic option for illuminating dark corners where an electrical outlet is unavailable. Lasting a whopping 50 times longer than standard bulbs while conserving energy, these lights are perfect for sheds, closets, and stairwells. 
 
@@ -219,9 +219,9 @@ The superb blue light filter ensures your eyes can easily adjust to the surround
 Overall, the LED motion sensor light is an excellent investment for anyone seeking convenience and functionality in a night light option. 
 
 
-### [Battery Operated Table Lamp with LED Bulb and Timer for Indoor Use](https://serp.ly/amazon/Battery+Night+Light?utm\_term=battery-operated-table-lamp-with-led-bulb-and-timer-for-indoor-use)
+### [Battery Operated Table Lamp with LED Bulb and Timer for Indoor Use](https://serp.ly/@outrun/amazon/Battery+Night+Light?utm\_term=battery-operated-table-lamp-with-led-bulb-and-timer-for-indoor-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Battery+Night+Light?utm_term=battery-operated-table-lamp-with-led-bulb-and-timer-for-indoor-use"><img alt="mj-premier-battery-operated-table-lamp-cordless-lamps-for-home-d-cor-nightlight-with-led-bulb-with-t-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mj-premier-battery-operated-table-lamp-cordless-lamps-for-home-d-cor-nightlight-with-led-bulb-with-t-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light?utm_term=battery-operated-table-lamp-with-led-bulb-and-timer-for-indoor-use"><img alt="mj-premier-battery-operated-table-lamp-cordless-lamps-for-home-d-cor-nightlight-with-led-bulb-with-t-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mj-premier-battery-operated-table-lamp-cordless-lamps-for-home-d-cor-nightlight-with-led-bulb-with-t-1/h=540,fit=pad,background=black"/></a></div>
 
 This elegant cordless table lamp, known as the "Mj Premier Battery Operated Table Lamp, " is a versatile addition to any home. With two available sizes and three glossy finish colors, it can effortlessly blend into any space, whether it's on a nightstand, coffee table, or even in the bathroom. The lamp's modern design features a stunning combination of glass and leaf vein patterns, balanced atop a golden metal base. 
 
@@ -239,7 +239,7 @@ Welcome to the buyer's guide section for battery night lights. This guide will p
 
 1. Brightness: Check the lumens rating of the night light. A higher lumens rating will provide brighter light, while a lower rating will be more energy-efficient and provide a softer glow. Choose according to your preference and the area you will be using the night light in. 2. Motion Sensor: Some battery night lights have built-in motion sensors, which automatically turn on the light when you enter the room. This feature can be convenient for nighttime use and help save energy. 3. Battery Life: Consider the battery life of the night light, as it varies depending on usage and features. Look for products with long-lasting batteries, and remember to replace them when necessary. 
 
-<div><a href="https://serp.ly/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-2/h=540,fit=pad,background=black" alt="Battery-Night-Light-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-2/h=540,fit=pad,background=black" alt="Battery-Night-Light-2" height="540"></a></div>
 
 
 ### General Advice
@@ -251,7 +251,7 @@ Welcome to the buyer's guide section for battery night lights. This guide will p
 
 1. Cleaning: Battery night lights can gather dust and debris over time. Regularly clean the light with a soft cloth to maintain its performance and lifespan. 2. Battery Replacement: Remember to check and replace the batteries in your battery night light when needed to ensure it continues working efficiently. 
 
-<div><a href="https://serp.ly/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-3/h=540,fit=pad,background=black" alt="Battery-Night-Light-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-3/h=540,fit=pad,background=black" alt="Battery-Night-Light-3" height="540"></a></div>
 
 
 ### Usage Tips
@@ -261,7 +261,7 @@ Welcome to the buyer's guide section for battery night lights. This guide will p
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-4/h=540,fit=pad,background=black" alt="Battery-Night-Light-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-4/h=540,fit=pad,background=black" alt="Battery-Night-Light-4" height="540"></a></div>
 
 
 ### What are Battery Night Lights?
@@ -277,7 +277,7 @@ Battery Night Lights operate on low voltage, usually using AA, AAA or even recha
 
 These lights are often fitted with automatic or motion-sensory switches, meaning they will turn on when they sense movement or darkness, and automatically switch off after a predetermined time interval to save energy. This makes them highly efficient and can help you save on energy costs in the long run. 
 
-<div><a href="https://serp.ly/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-5/h=540,fit=pad,background=black" alt="Battery-Night-Light-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-5/h=540,fit=pad,background=black" alt="Battery-Night-Light-5" height="540"></a></div>
 
 
 ### What are the features of Battery Night Lights?
@@ -293,7 +293,7 @@ The battery life of a Battery Night Light can vary depending on the specific mod
 
 Moreover, modern Battery Night Lights are equipped with automatic power-off features, which not only help to save the battery life but also extend the overall lifespan of the light. By turning off the lights automatically when there is no movement or darkness detected for a certain period, these lights ensure that they're only consuming power when they're actually needed. 
 
-<div><a href="https://serp.ly/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-6/h=540,fit=pad,background=black" alt="Battery-Night-Light-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Battery+Night+Light"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Battery-Night-Light-6/h=540,fit=pad,background=black" alt="Battery-Night-Light-6" height="540"></a></div>
 
 
 ### Can I use Battery Night Lights in a wet area?

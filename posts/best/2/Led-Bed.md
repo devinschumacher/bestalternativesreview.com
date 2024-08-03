@@ -14,9 +14,9 @@ Say hello to the latest innovation in bedding technology - the revolutionary **L
 ## Reviews
 
 
-### [Luxury Twin LED Bed Frame with Upholstered Platform and USB Charger](https://serp.ly/amazon/Led+Bed?utm\_term=luxury-twin-led-bed-frame-with-upholstered-platform-and-usb-charger)
+### [Luxury Twin LED Bed Frame with Upholstered Platform and USB Charger](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=luxury-twin-led-bed-frame-with-upholstered-platform-and-usb-charger)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=luxury-twin-led-bed-frame-with-upholstered-platform-and-usb-charger"><img alt="rolanstar-bed-frame-twin-size-with-headboard-upholstered-platform-frame-with-led-lights-and-usb-port-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-bed-frame-twin-size-with-headboard-upholstered-platform-frame-with-led-lights-and-usb-port-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=luxury-twin-led-bed-frame-with-upholstered-platform-and-usb-charger"><img alt="rolanstar-bed-frame-twin-size-with-headboard-upholstered-platform-frame-with-led-lights-and-usb-port-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-bed-frame-twin-size-with-headboard-upholstered-platform-frame-with-led-lights-and-usb-port-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rolanstar Twin Bed Frame features an upholstered platform and a stylish headboard, perfect for adding a touch of modern flair to your bedroom. Its motion-activated night light and LED lights offer a warm glow, providing convenience and a sense of security in the dark. 
 
@@ -25,27 +25,27 @@ The platform is made of durable materials and includes 12 wooden slats for added
 While some users report minor issues with assembly, missing components, and a malfunctioning remote, overall, the Rolanstar Twin Bed Frame is a well-regarded piece of furniture for its functional and aesthetic features. 
 
 
-### [LED PU Tufted Platform Bed with Bunk Storage and USB Charging](https://serp.ly/amazon/Led+Bed?utm\_term=led-pu-tufted-platform-bed-with-bunk-storage-and-usb-charging)
+### [LED PU Tufted Platform Bed with Bunk Storage and USB Charging](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=led-pu-tufted-platform-bed-with-bunk-storage-and-usb-charging)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=led-pu-tufted-platform-bed-with-bunk-storage-and-usb-charging"><img alt="led-lights-platform-bed-black-storage-bed-pu-tufted-bed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-lights-platform-bed-black-storage-bed-pu-tufted-bed-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=led-pu-tufted-platform-bed-with-bunk-storage-and-usb-charging"><img alt="led-lights-platform-bed-black-storage-bed-pu-tufted-bed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-lights-platform-bed-black-storage-bed-pu-tufted-bed-1/h=540,fit=pad,background=black"/></a></div>
 
 This LED-lit PU upholstered bed adds a touch of elegance and mystery to your bedroom. The sturdy wooden frame provides the perfect base for support, while the LED lights bring a romantic ambiance for cozy nights. 
 
 With a hydraulic storage system and a built-in USB charger, this bed combines functionality and style seamlessly. Experience a unique and practical addition to your space. 
 
 
-### [Modern LED Storage Bed with Button-Tufted Design - Gray](https://serp.ly/amazon/Led+Bed?utm\_term=modern-led-storage-bed-with-button-tufted-design-gray)
+### [Modern LED Storage Bed with Button-Tufted Design - Gray](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=modern-led-storage-bed-with-button-tufted-design-gray)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=modern-led-storage-bed-with-button-tufted-design-gray"><img alt="full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=modern-led-storage-bed-with-button-tufted-design-gray"><img alt="full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of comfort and style with this full-size upholstered bed. Its hydraulic storage system allows you to utilize the space beneath the mattress for storing your belongings without sacrificing the bed's overall size. The button-tufted headboard adds a modern, chic touch to your bedroom, while the LED lights offer a range of colors and patterns to match your personal preferences. 
 
 The heavy-duty frame is constructed from plywood and linen, providing durability and support. At 660 pounds weight capacity, this bed is ideal for various mattress thicknesses from 6 to 10 inches. Although manual measurements may result in slight errors, this upholstered bed is an excellent addition to any master suite. 
 
 
-### [LED Haiden Queen Bed - Stylish Design with Shimmering Silver Trim](https://serp.ly/amazon/Led+Bed?utm\_term=led-haiden-queen-bed-stylish-design-with-shimmering-silver-trim)
+### [LED Haiden Queen Bed - Stylish Design with Shimmering Silver Trim](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=led-haiden-queen-bed-stylish-design-with-shimmering-silver-trim)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=led-haiden-queen-bed-stylish-design-with-shimmering-silver-trim"><img alt="acme-haiden-queen-bed-led-white-finish-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/acme-haiden-queen-bed-led-white-finish-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=led-haiden-queen-bed-stylish-design-with-shimmering-silver-trim"><img alt="acme-haiden-queen-bed-led-white-finish-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/acme-haiden-queen-bed-led-white-finish-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to your dream bed with the Haiden Queen Bed. This stunning piece incorporates both classic and modern elements, making it the perfect fit for any bedroom. One of its standout features is the LED-lit panel headboard, adding a touch of sophistication while illuminating your space. The bed also showcases a glistening silver trim, not only elevating its design but also ensuring a cohesive look throughout the bedroom. 
 
@@ -54,9 +54,9 @@ Crafted with care and attention to detail, this bed comes in a sleek black finis
 As with any product, there's always room for improvement. Some reviews highlight missing assembly instructions, and a few users have experienced issues with the LED lights functioning as intended. Nonetheless, with its stylish design and user-friendly assembly, this Haiden Queen Bed proves to be a solid choice for your bedroom. 
 
 
-### [LED Queen Size Bed Frame](https://serp.ly/amazon/Led+Bed?utm\_term=led-queen-size-bed-frame)
+### [LED Queen Size Bed Frame](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=led-queen-size-bed-frame)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=led-queen-size-bed-frame"><img alt="led-bed-frame-queen-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-bed-frame-queen-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=led-queen-size-bed-frame"><img alt="led-bed-frame-queen-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-bed-frame-queen-size-1/h=540,fit=pad,background=black"/></a></div>
 
 So, I recently tried out the LED Bed Frame Queen Size by Fred Co International, and let me tell you, it was a real game-changer in my bedroom. The first thing I noticed was the stylish color options – it comes in either Dove Gray or Camel Brown – which really added a touch of elegance to my space. 
 
@@ -67,9 +67,9 @@ As far as comfort goes, the 1000 lb max static load capacity meant I could sleep
 Overall, the LED Bed Frame Queen Size was a fantastic addition to my bedroom. With its blend of style, comfort, and energy efficiency, it definitely lived up to the hype. Just remember, if you're prone to late-night cozy reading sessions, this could be just the bed to light up your room! 
 
 
-### [Rose LED Queen Bed in White Lacquer: Elegant Lighting for Your Sleep Space](https://serp.ly/amazon/Led+Bed?utm\_term=rose-led-queen-bed-in-white-lacquer-elegant-lighting-for-your-sleep-space)
+### [Rose LED Queen Bed in White Lacquer: Elegant Lighting for Your Sleep Space](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=rose-led-queen-bed-in-white-lacquer-elegant-lighting-for-your-sleep-space)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=rose-led-queen-bed-in-white-lacquer-elegant-lighting-for-your-sleep-space"><img alt="rose-led-queen-bed-in-white-lacquer-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rose-led-queen-bed-in-white-lacquer-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=rose-led-queen-bed-in-white-lacquer-elegant-lighting-for-your-sleep-space"><img alt="rose-led-queen-bed-in-white-lacquer-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rose-led-queen-bed-in-white-lacquer-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the charm and practicality of the Rose LED Queen Bed in white lacquer. Standing tall with dimensions of 92 inches in length, 63 inches in width, and 48 inches in height, this white beauty makes a statement while offering the perfect sleeping surface for a relaxing night's rest. 
 
@@ -78,9 +78,9 @@ Crafted from premium, durable materials, the Rose LED Queen Bed boasts a sleek a
 While the absence of user reviews and ratings may leave some uncertainty, the promise of a quick packing time (2 days) adds a level of convenience for customers eager to receive their new furniture. With its timeless design and high-quality craftsmanship, the Rose LED Queen Bed in white lacquer is an excellent choice for those who appreciate a touch of elegance in their home. 
 
 
-### [LED Full-Size Bed Frame with Dove Gray and Camel Brown Options](https://serp.ly/amazon/Led+Bed?utm\_term=led-full-size-bed-frame-with-dove-gray-and-camel-brown-options)
+### [LED Full-Size Bed Frame with Dove Gray and Camel Brown Options](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=led-full-size-bed-frame-with-dove-gray-and-camel-brown-options)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=led-full-size-bed-frame-with-dove-gray-and-camel-brown-options"><img alt="led-bed-frame-full-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-bed-frame-full-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=led-full-size-bed-frame-with-dove-gray-and-camel-brown-options"><img alt="led-bed-frame-full-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-bed-frame-full-size-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the LED Bed Frame Full Size, a stylish and innovative addition to your bedroom. Boasting a Dove Gray and Camel Brown color scheme, this bed frame exudes an understated elegance, complementing any decor. 
 
@@ -89,18 +89,18 @@ Made from high-quality materials such as particleboard, steel, and 25D high-resi
 Weighing approximately 101.9 lbs, it's sturdy and can support a maximum weight of 1000 lbs. Don't miss out on the LED Bed Frame Full Size by VASAGLE and Fred Co International. 
 
 
-### [Furniture World LED Full Panel Silver Bed](https://serp.ly/amazon/Led+Bed?utm\_term=furniture-world-led-full-panel-silver-bed)
+### [Furniture World LED Full Panel Silver Bed](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=furniture-world-led-full-panel-silver-bed)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=furniture-world-led-full-panel-silver-bed"><img alt="furniture-world-b474-led-full-panel-bed-in-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/furniture-world-b474-led-full-panel-bed-in-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=furniture-world-led-full-panel-silver-bed"><img alt="furniture-world-b474-led-full-panel-bed-in-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/furniture-world-b474-led-full-panel-bed-in-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 The LED-lit Furniture World B474 Full Panel Bed in Silver offers a contemporary touch to any bedroom. This stylish piece comes complete with a headboard, footboard, and rails, requiring only a boxspring for support. Available in Queen and King sizes, this bed boasts a sleek silver finish that adds a touch of luxe to your space. 
 
 Although there are currently no reviews or ratings, this full panel bed is definitely a standout option for those looking to create a statement in their bedroom. 
 
 
-### [Mixoy Smart LED Platform Bed Frame with PVC Headboard and Storage Drawers](https://serp.ly/amazon/Led+Bed?utm\_term=mixoy-smart-led-platform-bed-frame-with-pvc-headboard-and-storage-drawers)
+### [Mixoy Smart LED Platform Bed Frame with PVC Headboard and Storage Drawers](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=mixoy-smart-led-platform-bed-frame-with-pvc-headboard-and-storage-drawers)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=mixoy-smart-led-platform-bed-frame-with-pvc-headboard-and-storage-drawers"><img alt="mixoy-upholstered-platform-bed-frame-with-smart-led-lightspvc-fabric-tufted-headboardstorage-drawers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mixoy-upholstered-platform-bed-frame-with-smart-led-lightspvc-fabric-tufted-headboardstorage-drawers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=mixoy-smart-led-platform-bed-frame-with-pvc-headboard-and-storage-drawers"><img alt="mixoy-upholstered-platform-bed-frame-with-smart-led-lightspvc-fabric-tufted-headboardstorage-drawers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mixoy-upholstered-platform-bed-frame-with-smart-led-lightspvc-fabric-tufted-headboardstorage-drawers-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet Mixoy's Upholstered Platform Bed Frame, where style and function meet in perfect harmony, making it a great choice for your home. Its Smart LED Lights feature is a standout, as it lets you control the lighting atmosphere with multiple modes, all while using a mobile app. This handy functionality makes it an excellent addition to any indoor event, allowing you to easily transform the ambiance in your home. 
 
@@ -115,9 +115,9 @@ Assembling the bed frame is a breeze, thanks to the package's comprehensive inst
 In summary, Mixoy's Upholstered Platform Bed Frame combines smart technology, ample storage, luxurious comfort, and sleek design, making it an all-around versatile and functional addition to any home. 
 
 
-### [Queen LED Upholstered Platform Bed with Hydraulic Storage and Bluetooth Audio](https://serp.ly/amazon/Led+Bed?utm\_term=queen-led-upholstered-platform-bed-with-hydraulic-storage-and-bluetooth-audio)
+### [Queen LED Upholstered Platform Bed with Hydraulic Storage and Bluetooth Audio](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=queen-led-upholstered-platform-bed-with-hydraulic-storage-and-bluetooth-audio)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=queen-led-upholstered-platform-bed-with-hydraulic-storage-and-bluetooth-audio"><img alt="queen-upholstered-platform-bed-with-led-light-bluetooth-player-usb-charging-velvet-hydraulic-storage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/queen-upholstered-platform-bed-with-led-light-bluetooth-player-usb-charging-velvet-hydraulic-storage-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=queen-led-upholstered-platform-bed-with-hydraulic-storage-and-bluetooth-audio"><img alt="queen-upholstered-platform-bed-with-led-light-bluetooth-player-usb-charging-velvet-hydraulic-storage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/queen-upholstered-platform-bed-with-led-light-bluetooth-player-usb-charging-velvet-hydraulic-storage-1/h=540,fit=pad,background=black"/></a></div>
 
 I must say, this Queen upholstered platform bed is quite an extraordinary piece of furniture. Not only does it serve as a comfortable and stylish place to rest our weary heads, but it's also become a source of endless amusement for both my family and me. 
 
@@ -128,18 +128,18 @@ However, the true genius of this bed lies in its hydraulic storage box design. I
 Overall, I highly recommend this product to anyone looking for a versatile and functional upholstered bed. It's become a staple in our home, and I'm certain it would do the same for you and your family. 
 
 
-### [Bella Esprit LED Lighted Luxury Queen Size Bed - Charcoal](https://serp.ly/amazon/Led+Bed?utm\_term=bella-esprit-led-lighted-luxury-queen-size-bed-charcoal)
+### [Bella Esprit LED Lighted Luxury Queen Size Bed - Charcoal](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=bella-esprit-led-lighted-luxury-queen-size-bed-charcoal)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=bella-esprit-led-lighted-luxury-queen-size-bed-charcoal"><img alt="bella-esprit-led-lighted-queen-size-bed-charcoal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bella-esprit-led-lighted-queen-size-bed-charcoal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=bella-esprit-led-lighted-luxury-queen-size-bed-charcoal"><img alt="bella-esprit-led-lighted-queen-size-bed-charcoal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bella-esprit-led-lighted-queen-size-bed-charcoal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bella Esprit LED Lighted Queen Size Bed, Charcoal, is a stunning addition to any bedroom. Its classic design and charcoal finish hue add an elegant touch to your space. With 4 slats and support legs, this bed ensures a comfortable and sturdy sleep. 
 
 The LED headboard is the cherry on top, offering 3 settings to set the perfect mood for your nights. However, you'll need to provide a mattress box, so keep that in mind before making the purchase. 
 
 
-### [Float-in-Space LED Queen Bed Frame](https://serp.ly/amazon/Led+Bed?utm\_term=float-in-space-led-queen-bed-frame)
+### [Float-in-Space LED Queen Bed Frame](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=float-in-space-led-queen-bed-frame)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=float-in-space-led-queen-bed-frame"><img alt="simplie-fun-queen-size-floating-bed-frame-with-led-lights-and-usb-charging-modern-upholstered-platfo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simplie-fun-queen-size-floating-bed-frame-with-led-lights-and-usb-charging-modern-upholstered-platfo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=float-in-space-led-queen-bed-frame"><img alt="simplie-fun-queen-size-floating-bed-frame-with-led-lights-and-usb-charging-modern-upholstered-platfo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simplie-fun-queen-size-floating-bed-frame-with-led-lights-and-usb-charging-modern-upholstered-platfo-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine coming home to a cozy, modern haven. The 'Simplie Fun Queen Size Floating Bed Frame' adds an alluring touch to your room like no other. It's like being wrapped in a warm hug every time you lay down. 
 
@@ -148,9 +148,9 @@ The platform bed's sleek upholstery isn't just a great design choice, it also en
 However, it does come with a couple of drawbacks. The price tag might be a bit steep for some, and the setup could be a bit challenging. But hey, if it means your bedroom turns into a personal spa every night, we guess it's worth it! 
 
 
-### [LED-Accented Queen Upholstered Bed Frame with 4 Drawers and Customizable Lighting](https://serp.ly/amazon/Led+Bed?utm\_term=led-accented-queen-upholstered-bed-frame-with-4-drawers-and-customizable-lighting)
+### [LED-Accented Queen Upholstered Bed Frame with 4 Drawers and Customizable Lighting](https://serp.ly/@outrun/amazon/Led+Bed?utm\_term=led-accented-queen-upholstered-bed-frame-with-4-drawers-and-customizable-lighting)
 
-<div class="image"><a href="https://serp.ly/amazon/Led+Bed?utm_term=led-accented-queen-upholstered-bed-frame-with-4-drawers-and-customizable-lighting"><img alt="afuhokles-queen-bed-frame-with-led-lights-headboard-4-drawers2-usb-charging-station-upholstered-plat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/afuhokles-queen-bed-frame-with-led-lights-headboard-4-drawers2-usb-charging-station-upholstered-plat-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Led+Bed?utm_term=led-accented-queen-upholstered-bed-frame-with-4-drawers-and-customizable-lighting"><img alt="afuhokles-queen-bed-frame-with-led-lights-headboard-4-drawers2-usb-charging-station-upholstered-plat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/afuhokles-queen-bed-frame-with-led-lights-headboard-4-drawers2-usb-charging-station-upholstered-plat-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Afuhokles Queen Bed Frame with LED Lights Headboard and storage options, perfect for adding a touch of luxury to your bedroom. The upholstered platform bed includes a stylish headboard equipped with LED lights, adding a modern aesthetic to your bedroom. The frame has 4 drawers, providing ample storage space for your belongings. Additionally, this bed frame features a 2 USB charging station, making it convenient for charging your devices while you rest. 
 

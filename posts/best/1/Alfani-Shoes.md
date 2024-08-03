@@ -14,9 +14,9 @@ Step into the world of fashion-forward footwear with our roundup of Alfani Shoes
 ## Reviews
 
 
-### [Alfani Women's Chic Black Perforated Pumps](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-womens-chic-black-perforated-pumps)
+### [Alfani Women's Chic Black Perforated Pumps](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-womens-chic-black-perforated-pumps)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-womens-chic-black-perforated-pumps"><img alt="alfani-womens-black-perforated-cushioned-jeules-pointed-toe-stiletto-slip-on-leather-pumps-shoes-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-perforated-cushioned-jeules-pointed-toe-stiletto-slip-on-leather-pumps-shoes-5-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-womens-chic-black-perforated-pumps"><img alt="alfani-womens-black-perforated-cushioned-jeules-pointed-toe-stiletto-slip-on-leather-pumps-shoes-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-perforated-cushioned-jeules-pointed-toe-stiletto-slip-on-leather-pumps-shoes-5-5-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience comfort and style with these Alfani Womens Black Perforated Cushioned Leather Pumps. Featuring pointed toe stiletto heels, these shoes offer a touch of elegance for any casual occasion. 
 
@@ -25,9 +25,9 @@ The cushioned footbed provides support and comfort for all-day wear. Available i
 While some users have reported issues with sizing and comfort, overall, these heels are a budget-friendly choice for those seeking stylish and comfortable footwear. 
 
 
-### [Alfani Jeeny Mesh Pump Shoes - Black Size 8M](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-jeeny-mesh-pump-shoes-black-size-8m)
+### [Alfani Jeeny Mesh Pump Shoes - Black Size 8M](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-jeeny-mesh-pump-shoes-black-size-8m)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-jeeny-mesh-pump-shoes-black-size-8m"><img alt="alfani-womens-jeeny-mesh-pumps-created-for-macys-black-micro-size-8m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-jeeny-mesh-pumps-created-for-macys-black-micro-size-8m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-jeeny-mesh-pump-shoes-black-size-8m"><img alt="alfani-womens-jeeny-mesh-pumps-created-for-macys-black-micro-size-8m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-jeeny-mesh-pumps-created-for-macys-black-micro-size-8m-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Alfani Women's Jeeny Mesh Pumps for Macy's. At first glance, I was impressed by the pointed cap-toes and the mesh panels, which added a touch of sophistication. However, the stiletto life took a backseat to the overall comfort. 
 
@@ -38,27 +38,27 @@ A positive aspect was the backing made of white material, which made them suitab
 While the Jeeny Mesh Pumps are a decent choice, they aren't without their drawbacks. It's a bit of a trade-off between comfort, durability, and style. Overall, I'd recommend trying them out for yourself and see if they fit your needs and preferences better. 
 
 
-### [Alfani Remy Driving Loafers - Reversible Bit and Timeless Appeal in Black](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-remy-driving-loafers-reversible-bit-and-timeless-appeal-in-black)
+### [Alfani Remy Driving Loafers - Reversible Bit and Timeless Appeal in Black](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-remy-driving-loafers-reversible-bit-and-timeless-appeal-in-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-remy-driving-loafers-reversible-bit-and-timeless-appeal-in-black"><img alt="alfani-remy-driving-loafers-created-for-macys-black-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-remy-driving-loafers-created-for-macys-black-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-remy-driving-loafers-reversible-bit-and-timeless-appeal-in-black"><img alt="alfani-remy-driving-loafers-created-for-macys-black-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-remy-driving-loafers-created-for-macys-black-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
 
 These Alfani Remy Driving Loafers offer a touch of elegance, with traditional moc-toe tailoring and a tasteful reversible bit that exudes timeless charm. The black shade adds an element of sophistication, while the size 7.5 caters to a broad range of customers. 
 
 Users highlight both the positives and negatives, with the good quality and comfortable fit balancing the buckle issues and occasional broken parts. Overall, these shoes make a decent purchase for those looking for a blend of fashion and functionality, but with a slight note of caution regarding the durability of some parts. 
 
 
-### [Alfani Elston Chocolate Lace-Up Oxford Sneakers for Men](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-elston-chocolate-lace-up-oxford-sneakers-for-men)
+### [Alfani Elston Chocolate Lace-Up Oxford Sneakers for Men](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-elston-chocolate-lace-up-oxford-sneakers-for-men)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-elston-chocolate-lace-up-oxford-sneakers-for-men"><img alt="alfani-mens-elston-lace-up-oxford-sneakers-chocolate-10-mens-size-10-medium-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-elston-lace-up-oxford-sneakers-chocolate-10-mens-size-10-medium-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-elston-chocolate-lace-up-oxford-sneakers-for-men"><img alt="alfani-mens-elston-lace-up-oxford-sneakers-chocolate-10-mens-size-10-medium-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-elston-lace-up-oxford-sneakers-chocolate-10-mens-size-10-medium-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alfani Men's Elston Lace-Up Oxford Sneakers are a stylish blend of sophistication and sportiness, perfect for a business casual look. With a memory foam insole for added comfort, these sneakers feature a manmade upper and rubber sole. Users appreciate their versatility, comfort, and stylish appearance, with the majority of reviews rating them highly. 
 
 However, some users have mentioned that the shoes run narrow, which might impact their fit. Overall, the Alfani Men's Elston Lace-Up Oxford Sneakers are a great choice for men seeking a comfortable and fashionable option for their wardrobe. 
 
 
-### [Alfani Women's Coreena Square-heel Dress Sandals - Black Suede](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-womens-coreena-square-heel-dress-sandals-black-suede)
+### [Alfani Women's Coreena Square-heel Dress Sandals - Black Suede](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-womens-coreena-square-heel-dress-sandals-black-suede)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-womens-coreena-square-heel-dress-sandals-black-suede"><img alt="alfani-womens-coreena-square-heel-dress-sandals-created-for-macys-black-suede-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-coreena-square-heel-dress-sandals-created-for-macys-black-suede-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-womens-coreena-square-heel-dress-sandals-black-suede"><img alt="alfani-womens-coreena-square-heel-dress-sandals-created-for-macys-black-suede-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-coreena-square-heel-dress-sandals-created-for-macys-black-suede-1/h=540,fit=pad,background=black"/></a></div>
 
 Alfani Women's Coreena, the dress square-heel sandals, were a charming addition to my summer wardrobe. I loved the sleek design and the chic vibe they added to my outfits. However, one thing that stood out was the comfort issue. 
 
@@ -67,9 +67,9 @@ The straps were just too loose to secure my feet well, causing the sandals to sl
 Despite that, the sandals looked stunning with my favorite sundresses, making them ideal for casual outings. Overall, a stylish choice, but not for those who prioritize comfort over fashion. 
 
 
-### [Alfani Tan Porter Loafer for Macy's - Size 11](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-tan-porter-loafer-for-macys-size-11)
+### [Alfani Tan Porter Loafer for Macy's - Size 11](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-tan-porter-loafer-for-macys-size-11)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-tan-porter-loafer-for-macys-size-11"><img alt="alfani-mens-porter-loafer-created-for-macys-tan-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-porter-loafer-created-for-macys-tan-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-tan-porter-loafer-for-macys-size-11"><img alt="alfani-mens-porter-loafer-created-for-macys-tan-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-porter-loafer-created-for-macys-tan-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 Picture yourself strutting into the office wearing a pair of stylish loafers that ooze confidence and comfort. That's exactly how I felt when I first slipped on the Alfani Men's Porter Loafer. The clean, classic design was the perfect addition to my business casual wardrobe and received many compliments. 
 
@@ -80,9 +80,9 @@ The notched embellishment on the apron toe added a touch of elegance to the shoe
 Overall, the Alfani Men's Porter Loafer was a great investment for someone looking for a stylish and comfortable option for the office or casual events. Just be prepared to size up and keep an eye out for any signs of wear before using them. 
 
 
-### [ALFANI Black Gingham Knit Cushioned Slip-On Loafers for Women](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-black-gingham-knit-cushioned-slip-on-loafers-for-women)
+### [ALFANI Black Gingham Knit Cushioned Slip-On Loafers for Women](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-black-gingham-knit-cushioned-slip-on-loafers-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-black-gingham-knit-cushioned-slip-on-loafers-for-women"><img alt="alfani-womens-black-gingham-knit-machine-wash-safe-cushioned-rorrii-round-toe-slip-on-loafers-6-5-m--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-gingham-knit-machine-wash-safe-cushioned-rorrii-round-toe-slip-on-loafers-6-5-m--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-black-gingham-knit-cushioned-slip-on-loafers-for-women"><img alt="alfani-womens-black-gingham-knit-machine-wash-safe-cushioned-rorrii-round-toe-slip-on-loafers-6-5-m--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-gingham-knit-machine-wash-safe-cushioned-rorrii-round-toe-slip-on-loafers-6-5-m--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased a pair of Alfani Women's Cushioned Rorrii Slip-On Loafers in size 6.5 Medium, and I must say, they've become a staple in my wardrobe. The gingham pattern adds a touch of whimsy to these otherwise casual flats, making them a versatile addition to any outfit. 
 
@@ -91,27 +91,27 @@ One of the highlights of these loafers is their machine-washable nature. I love 
 However, I did find that the shoes are a bit on the narrow side, so I'd recommend ordering half a size larger for a better fit. Other than that minor issue, these Alfani Women's loafers are a great investment for any woman seeking both style and comfort. 
 
 
-### [Alfani Women's Work Stiletto Pointed Toe Slingback Shoes](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-womens-work-stiletto-pointed-toe-slingback-shoes)
+### [Alfani Women's Work Stiletto Pointed Toe Slingback Shoes](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-womens-work-stiletto-pointed-toe-slingback-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-womens-work-stiletto-pointed-toe-slingback-shoes"><img alt="alfani-womens-black-hardware-detail-goring-cushioned-carynn-pointed-toe-stiletto-slip-on-slingback-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-hardware-detail-goring-cushioned-carynn-pointed-toe-stiletto-slip-on-slingback-1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-womens-work-stiletto-pointed-toe-slingback-shoes"><img alt="alfani-womens-black-hardware-detail-goring-cushioned-carynn-pointed-toe-stiletto-slip-on-slingback-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-hardware-detail-goring-cushioned-carynn-pointed-toe-stiletto-slip-on-slingback-1-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fashion-conscious woman, I've always been on the lookout for stylish yet comfortable shoes, and Alfani's Womens Black Hardware Detail Goring Cushioned Carynn Pointed Toe Stiletto Slip on Slingback in size 11 Medium met all my expectations. The sleek black design with hardware detailing makes these shoes perfect for both office and after-work events. 
 
 I was particularly impressed with the cushioned insoles that kept my feet comfortable throughout the day. Despite their high heel, I found these shoes surprisingly easy to walk in, thanks to the pointed toe and slip-on closure. Overall, I'm thrilled with the quality and design of these shoes from Alfani, and I highly recommend them for any woman looking to elevate her wardrobe. 
 
 
-### [Alfani Women's Sima Mules for Macy's - Black Buckle Shoes - Size 9M](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-womens-sima-mules-for-macys-black-buckle-shoes-size-9m)
+### [Alfani Women's Sima Mules for Macy's - Black Buckle Shoes - Size 9M](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-womens-sima-mules-for-macys-black-buckle-shoes-size-9m)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-womens-sima-mules-for-macys-black-buckle-shoes-size-9m"><img alt="alfani-womens-sima-two-piece-buckle-mules-created-for-macys-black-smooth-size-9m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-sima-two-piece-buckle-mules-created-for-macys-black-smooth-size-9m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-womens-sima-mules-for-macys-black-buckle-shoes-size-9m"><img alt="alfani-womens-sima-two-piece-buckle-mules-created-for-macys-black-smooth-size-9m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-sima-two-piece-buckle-mules-created-for-macys-black-smooth-size-9m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alfani Women's Sima Two-Piece Buckle Mules are a stylish and versatile addition to any wardrobe. With a smooth black finish and a comfortable, wear-to-work design, these elegant shoes offer the perfect blend of style and practicality. 
 
 Sporting a two-piece buckle mule style and made to fit women's size 9M, these mules are designed to make a statement while keeping you comfortable all day long. Although some reviewers have mentioned issues with the sizing and heel quality, overall the Alfani Women's Sima Two-Piece Buckle Mules have impressed many customers with their sleek design and cozy comfort. 
 
 
-### [Sleek Alfani Zipper Booties for Women](https://serp.ly/amazon/Alfani+Shoes?utm\_term=sleek-alfani-zipper-booties-for-women)
+### [Sleek Alfani Zipper Booties for Women](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=sleek-alfani-zipper-booties-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=sleek-alfani-zipper-booties-for-women"><img alt="alfani-celleste-womens-zipper-booties-black-smooth-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-celleste-womens-zipper-booties-black-smooth-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=sleek-alfani-zipper-booties-for-women"><img alt="alfani-celleste-womens-zipper-booties-black-smooth-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-celleste-womens-zipper-booties-black-smooth-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Alfani Celleste Womens Zipper Booties in black and I must say, they add a touch of elegance to any outfit. The pointed toes and sleek silhouette give them a modern look, while the metallic flash makes them stand out. Wearing them, I noticed that they are comfortable to walk in, thanks to the cushioned sole. 
 
@@ -120,18 +120,18 @@ However, after a few hours of wearing them, I started to experience some discomf
 Despite this problem, I appreciated the stylish design of these booties and enjoyed receiving compliments on their appearance. They definitely have the potential to dress up or down any outfit, which is a positive aspect of the product. However, in order to avoid any chafing issues, I would suggest choosing a boot with a smoother edge or trying a different size just to be safe. 
 
 
-### [Square Toe Dressy Booties by Alfani Brittnee - Black MC - US 6.5](https://serp.ly/amazon/Alfani+Shoes?utm\_term=square-toe-dressy-booties-by-alfani-brittnee-black-mc-us-6-5)
+### [Square Toe Dressy Booties by Alfani Brittnee - Black MC - US 6.5](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=square-toe-dressy-booties-by-alfani-brittnee-black-mc-us-6-5)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=square-toe-dressy-booties-by-alfani-brittnee-black-mc-us-6-5"><img alt="alfani-brittnee-womens-square-toe-dressy-booties-black-mc-us-6-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-brittnee-womens-square-toe-dressy-booties-black-mc-us-6-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=square-toe-dressy-booties-by-alfani-brittnee-black-mc-us-6-5"><img alt="alfani-brittnee-womens-square-toe-dressy-booties-black-mc-us-6-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-brittnee-womens-square-toe-dressy-booties-black-mc-us-6-5-1/h=540,fit=pad,background=black"/></a></div>
 
 These Alfani Brittnee dressy booties are the perfect addition to your casual wardrobe. The solid black pattern and square toe design make them versatile and chic. 
 
 The block heel adds an elevated touch, while the cushioned inner lining ensures comfort all day long. With a zip closure for easy fit and available in multiple sizes, these booties are a must-have for any fashion-conscious woman. 
 
 
-### [Alfani Walkerr Fashion Sneakers for Women - Black](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-walkerr-fashion-sneakers-for-women-black)
+### [Alfani Walkerr Fashion Sneakers for Women - Black](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-walkerr-fashion-sneakers-for-women-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-walkerr-fashion-sneakers-for-women-black"><img alt="alfani-womens-walkerr-fabric-low-top-pull-on-fashion-sneakers-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-walkerr-fabric-low-top-pull-on-fashion-sneakers-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-walkerr-fashion-sneakers-for-women-black"><img alt="alfani-womens-walkerr-fabric-low-top-pull-on-fashion-sneakers-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-walkerr-fabric-low-top-pull-on-fashion-sneakers-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alfani Womens Walkerr Fabric Low Top Pull on Fashion Sneakers come in a black color, offering both style and functionality. These shoes are perfect for casual wear and for work, catering to both men and women. 
 
@@ -140,9 +140,9 @@ With various shoe styles available, Alfani aims to keep your feet comfortable an
 There are both positives and negatives about this shoe, but overall, it seems users appreciate the comfort and style they provide. 
 
 
-### [Gently Used Alfani Jerison Pumps in Black Size 9.5 for Women](https://serp.ly/amazon/Alfani+Shoes?utm\_term=gently-used-alfani-jerison-pumps-in-black-size-9-5-for-women)
+### [Gently Used Alfani Jerison Pumps in Black Size 9.5 for Women](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=gently-used-alfani-jerison-pumps-in-black-size-9-5-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=gently-used-alfani-jerison-pumps-in-black-size-9-5-for-women"><img alt="alfani-shoes-alfani-womens-jerison-pumps-created-for-macys-black-sz-9-5-color-black-size-9-5-burnitd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-shoes-alfani-womens-jerison-pumps-created-for-macys-black-sz-9-5-color-black-size-9-5-burnitd-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=gently-used-alfani-jerison-pumps-in-black-size-9-5-for-women"><img alt="alfani-shoes-alfani-womens-jerison-pumps-created-for-macys-black-sz-9-5-color-black-size-9-5-burnitd-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-shoes-alfani-womens-jerison-pumps-created-for-macys-black-sz-9-5-color-black-size-9-5-burnitd-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon a pair of Alfani Jerison Pumps, and let me tell you, they've become my go-to shoes for any special occasion. With a chic black color, sized 9.5, and a 3" stiletto heel, these pumps add a touch of elegance to any outfit. The pointed-toe design and slip-on feature add a practical touch to their glamorous appeal. 
 
@@ -155,9 +155,9 @@ Of course, no product is perfect, and I've encountered some mixed reviews from f
 So, if you're looking for a stylish, comfortable, and versatile pair of shoes to elevate your fashion game, look no further than these Alfani Jerison Pumps. They're sure to leave you looking and feeling your best. 
 
 
-### [Alfani Glorria Womens Black Pumps with 3-inch Heel](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-glorria-womens-black-pumps-with-3-inch-heel)
+### [Alfani Glorria Womens Black Pumps with 3-inch Heel](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-glorria-womens-black-pumps-with-3-inch-heel)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-glorria-womens-black-pumps-with-3-inch-heel"><img alt="alfani-glorria-womens-pumps-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-glorria-womens-pumps-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-glorria-womens-black-pumps-with-3-inch-heel"><img alt="alfani-glorria-womens-pumps-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-glorria-womens-pumps-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out the Alfani Glorria Womens Pumps in black, and I must say, they exceeded my expectations. The stylish yet practical design made them a must-have in my wardrobe. 
 
@@ -166,18 +166,18 @@ The medium (B, M) size fit me perfectly, and I appreciated the true-to-color bla
 Overall, the Alfani Glorria pumps were a delightful addition to my footwear collection. 
 
 
-### [Alfani Men's Monroe Cap Toe Oxfords - Stylish & Comfortable 12M Black Shoes](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-mens-monroe-cap-toe-oxfords-stylish-comfortable-12m-black-shoes)
+### [Alfani Men's Monroe Cap Toe Oxfords - Stylish & Comfortable 12M Black Shoes](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-mens-monroe-cap-toe-oxfords-stylish-comfortable-12m-black-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-mens-monroe-cap-toe-oxfords-stylish-comfortable-12m-black-shoes"><img alt="alfani-mens-monroe-cap-toe-oxfords-black-12m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-monroe-cap-toe-oxfords-black-12m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-mens-monroe-cap-toe-oxfords-stylish-comfortable-12m-black-shoes"><img alt="alfani-mens-monroe-cap-toe-oxfords-black-12m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-mens-monroe-cap-toe-oxfords-black-12m-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave these Alfani Men's Monroe cap-toe oxfords a spin, and honestly, they're a stylish upgrade for any modern gentlemen's wardrobe. Although they look a bit sleek thanks to the perforated detailing, they maintain a classic appeal with the cap-toe design. The most unexpected surprise for me was the presence of a gel heel cushion that adds a touch of comfort to my daily walks. 
 
 One thing I came across while reviewing these shoes was the sizing; they run slightly small, so I'd recommend going a half size up. It's a hassle to remember, but it definitely makes a difference. Some users reported getting compliments and feeling extra comfortable after wearing the shoes, which indicates that the sizing issue might not be consistent across all sizes. Overall, I found the Alfani Men's Monroe cap-toe oxfords to be both stylish and practical, even if the size isn't perfect. 
 
 
-### [Alfani Nude Smooth Cecee Dress Boots - Size 6.5M](https://serp.ly/amazon/Alfani+Shoes?utm\_term=alfani-nude-smooth-cecee-dress-boots-size-6-5m)
+### [Alfani Nude Smooth Cecee Dress Boots - Size 6.5M](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=alfani-nude-smooth-cecee-dress-boots-size-6-5m)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=alfani-nude-smooth-cecee-dress-boots-size-6-5m"><img alt="alfani-womens-cecee-dress-boots-created-for-macys-nude-smooth-size-6-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-cecee-dress-boots-created-for-macys-nude-smooth-size-6-5m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=alfani-nude-smooth-cecee-dress-boots-size-6-5m"><img alt="alfani-womens-cecee-dress-boots-created-for-macys-nude-smooth-size-6-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-cecee-dress-boots-created-for-macys-nude-smooth-size-6-5m-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine stepping into these Alfani Women's Cecee Dress Boots, Crafted for Macy's - a nude smooth boot that's perfect for any occasion. The 3-inch heel height provides a touch of elegance, while the zip-up closure ensures a snug fit. Although they're designed for women with wide calves, some reviewers have found them too wide around the legs, so it's essential to find the right fit. 
 
@@ -186,9 +186,9 @@ The boots' smooth nude finish adds a touch of sophistication to any outfit, and 
 Overall, these beautiful boots are a stylish choice for your wardrobe, as long as you find the right fit and are aware of the sizing quirks. But don't forget, they are designed for everyday use and will only get better with each wear. 
 
 
-### [Comfortable Alfani Women's Lace Booties in Size 5 Medium](https://serp.ly/amazon/Alfani+Shoes?utm\_term=comfortable-alfani-womens-lace-booties-in-size-5-medium)
+### [Comfortable Alfani Women's Lace Booties in Size 5 Medium](https://serp.ly/@outrun/amazon/Alfani+Shoes?utm\_term=comfortable-alfani-womens-lace-booties-in-size-5-medium)
 
-<div class="image"><a href="https://serp.ly/amazon/Alfani+Shoes?utm_term=comfortable-alfani-womens-lace-booties-in-size-5-medium"><img alt="alfani-womens-black-lace-comfort-lug-sole-blaire-round-toe-block-heel-zip-up-booties-5-m-womens-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-lace-comfort-lug-sole-blaire-round-toe-block-heel-zip-up-booties-5-m-womens-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alfani+Shoes?utm_term=comfortable-alfani-womens-lace-booties-in-size-5-medium"><img alt="alfani-womens-black-lace-comfort-lug-sole-blaire-round-toe-block-heel-zip-up-booties-5-m-womens-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alfani-womens-black-lace-comfort-lug-sole-blaire-round-toe-block-heel-zip-up-booties-5-m-womens-size-1/h=540,fit=pad,background=black"/></a></div>
 
 Alfani Women's Black Lace Comfort Lug Sole Blaire Round Toe Block Heel Zip-Up Booties were a game changer in my wardrobe. At first, I was a little hesitant about the block heel height, but once I tried them on, I was sold. The lace-up design added a touch of elegance and the zipper made it super easy to put on and take off. The black color was versatile, and I could wear it with almost anything, from dresses to casual outfits. 
 

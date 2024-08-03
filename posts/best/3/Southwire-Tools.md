@@ -14,9 +14,9 @@ Welcome to the world of Southwire Tools - a roundup of the latest and greatest i
 ## Reviews
 
 
-### [Southwire High-Leverage Side Cutting Pliers with Puller/Crimp](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-side-cutting-pliers-with-puller-crimp)
+### [Southwire High-Leverage Side Cutting Pliers with Puller/Crimp](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-side-cutting-pliers-with-puller-crimp)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-high-leverage-side-cutting-pliers-with-puller-crimp"><img alt="southwire-scp9tpc-9-high-leverage-side-cutting-pliers-w-puller-crimp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-scp9tpc-9-high-leverage-side-cutting-pliers-w-puller-crimp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-high-leverage-side-cutting-pliers-with-puller-crimp"><img alt="southwire-scp9tpc-9-high-leverage-side-cutting-pliers-w-puller-crimp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-scp9tpc-9-high-leverage-side-cutting-pliers-w-puller-crimp-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire 9" Side Cutting Pliers & Fishtape Crimper has been a game-changer in my daily life. The sturdy forged steel construction and streamlined design have proven themselves durable, making this plier a tool that will last for years to come. When it comes to cutting, stripping, and crimping cables and wires, this plier excels. The side cutting action allows me to make flush cuts, while the dual material grips provide added comfort and control. 
 
@@ -25,9 +25,9 @@ One of the highlights of this plier is its versatility. It features a crimping d
 While there isn't much to criticize about the Southwire 9" Side Cutting Pliers & Fishtape Crimper, one minor downside is the plastic handle, which may not be as durable as a metal one. Regardless, the pros of this plier far outweigh the cons, and I would highly recommend it to anyone in need of a reliable and versatile cutting, stripping, and crimping tool. 
 
 
-### [Multi-Function Southwire Screwdriver with Chrome-Plated Shaft](https://serp.ly/amazon/Southwire+Tools?utm\_term=multi-function-southwire-screwdriver-with-chrome-plated-shaft)
+### [Multi-Function Southwire Screwdriver with Chrome-Plated Shaft](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=multi-function-southwire-screwdriver-with-chrome-plated-shaft)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=multi-function-southwire-screwdriver-with-chrome-plated-shaft"><img alt="southwire-sdr9n1-9-in-1-ratcheting-multi-bit-screwdriver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-sdr9n1-9-in-1-ratcheting-multi-bit-screwdriver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=multi-function-southwire-screwdriver-with-chrome-plated-shaft"><img alt="southwire-sdr9n1-9-in-1-ratcheting-multi-bit-screwdriver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-sdr9n1-9-in-1-ratcheting-multi-bit-screwdriver-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire SDR9N1 Ratcheting Multi-Bit Screwdriver is a versatile and efficient tool for electricians and DIY enthusiasts. It features a chrome-plated shaft that provides protection from rust and corrosion, ensuring long-lasting performance. The precision machined quick change bits are used for driving hex, Phillips, slotted, and square head screws effectively. 
 
@@ -36,9 +36,9 @@ Its cushion grip handle offers extra comfort and maximum torque while using the 
 However, some users have reported issues with the bearings being too loose and the tool snapping while in use, which can be frustrating. Overall, the Southwire Ratcheting 9-in-1 multi-bit screwdriver is a well-designed tool that comes with a few minor drawbacks, but its versatility and ease of use make it a valuable addition to many professionals' toolboxes. 
 
 
-### [Southwire 14070t Multimeter for Accurate Measurements](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-14070t-multimeter-for-accurate-measurements)
+### [Southwire 14070t Multimeter for Accurate Measurements](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-14070t-multimeter-for-accurate-measurements)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-14070t-multimeter-for-accurate-measurements"><img alt="southwire-14070t-multimeter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-14070t-multimeter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-14070t-multimeter-for-accurate-measurements"><img alt="southwire-14070t-multimeter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-14070t-multimeter-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire 14070T multimeter is a versatile and durable option for those looking for an affordable, yet reliable tool. As a multifunctional device, it offers 11 different measuring functions, including AC voltage and amperage, making it perfect for electrical testing applications. One of the standout features is the TrueRMS readings, which provide accurate AC measurements, even in the presence of voltage fluctuations. Moreover, the Low Z function helps eliminate false readings caused by "Ghost" voltage, ensuring accurate and dependable results. 
 
@@ -49,9 +49,9 @@ While the Southwire 14070T multimeter is relatively affordable, it still offers 
 However, some users have reported inconsistencies in the reliability of the device, indicating that there may be some concerns with its long-term performance. Overall, while the Southwire 14070T multimeter has its share of both positive and negative aspects, it remains a solid choice for those in need of an affordable and reliable multimeter for various electrical testing applications. 
 
 
-### [Southwire CCPR400 Cable Cutter - Ratcheting Tool for Efficient Cutting](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-ccpr400-cable-cutter-ratcheting-tool-for-efficient-cutting)
+### [Southwire CCPR400 Cable Cutter - Ratcheting Tool for Efficient Cutting](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-ccpr400-cable-cutter-ratcheting-tool-for-efficient-cutting)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-ccpr400-cable-cutter-ratcheting-tool-for-efficient-cutting"><img alt="southwire-ccpr400-ratcheting-cable-cutter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccpr400-ratcheting-cable-cutter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-ccpr400-cable-cutter-ratcheting-tool-for-efficient-cutting"><img alt="southwire-ccpr400-ratcheting-cable-cutter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccpr400-ratcheting-cable-cutter-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire ratcheting cable cutter is a sturdy choice for cutting cables of varying sizes, including copper and aluminum wires up to 750 kcmil and 1000 kcmil respectively. This tool features hardened steel blades that ensure consistent, long-lasting cuts, while the rounded blade design minimizes cable distortion. One of the standout features is the replaceable blades, providing longevity and convenience. 
 
@@ -60,18 +60,18 @@ The cutter boasts a two-step ratcheting mechanism, which reduces the number of s
 Many satisfied customers have praised the Southwire ratcheting cable cutter for its ease of use and effective cutting capabilities. The reasonable price point makes it a great value, especially when compared to more expensive options. Overall, this tool is a reliable and efficient option for anyone requiring a cable cutter in their line of work. 
 
 
-### [Southwire 400A AC Clamp Meter with Non-Contact Voltage Detector and Built-In Work Light](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-400a-ac-clamp-meter-with-non-contact-voltage-detector-and-built-in-work-light)
+### [Southwire 400A AC Clamp Meter with Non-Contact Voltage Detector and Built-In Work Light](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-400a-ac-clamp-meter-with-non-contact-voltage-detector-and-built-in-work-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-400a-ac-clamp-meter-with-non-contact-voltage-detector-and-built-in-work-light"><img alt="southwire-400a-ac-clamp-meter-w-built-in-ncv-worklight-third-hand-test-probe-holder-21510n-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-400a-ac-clamp-meter-w-built-in-ncv-worklight-third-hand-test-probe-holder-21510n-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-400a-ac-clamp-meter-with-non-contact-voltage-detector-and-built-in-work-light"><img alt="southwire-400a-ac-clamp-meter-w-built-in-ncv-worklight-third-hand-test-probe-holder-21510n-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-400a-ac-clamp-meter-w-built-in-ncv-worklight-third-hand-test-probe-holder-21510n-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the convenience of routine electrical repairs with the Southwire Tools 21510N 400A AC Clamp Meter. Designed to deliver the perfect balance of functionality, this clamp meter not only measures AC current up to 400A, but also AC and DC voltage, resistance, capacitance, continuity, temperature, and diode. 
 
 Boasting a compact design, the meter's built-in non-contact AC Voltage Detector helps identify potential live voltage, while the powerful LED worklight ensures visibility even in dimly lit areas. Furthermore, the included case, test leads, temperature probe with banana plug adapter, and AAA batteries make this clamp meter a comprehensive package for all your electrical needs. 
 
 
-### [Southwire Cable Splicing Kit for Efficient Electrical Projects](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-cable-splicing-kit-for-efficient-electrical-projects)
+### [Southwire Cable Splicing Kit for Efficient Electrical Projects](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-cable-splicing-kit-for-efficient-electrical-projects)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-cable-splicing-kit-for-efficient-electrical-projects"><img alt="southwire-csk5-5-piece-cable-splicing-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-csk5-5-piece-cable-splicing-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-cable-splicing-kit-for-efficient-electrical-projects"><img alt="southwire-csk5-5-piece-cable-splicing-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-csk5-5-piece-cable-splicing-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire Cable Splicing Kit is not just your average toolbox addition, but a dependable companion for cable installation tasks. With its unique spring-loaded design, you can enjoy precise control over your cuts. The kit's lock holds blades closed when not in use, ensuring safety during transportation or storage. 
 
@@ -80,9 +80,9 @@ Serrated lower blades hold the wire in place, providing non-slip cutting action.
 Handling this tool is a breeze, thanks to the double dipped textured grip that provides a solid, comfortable grip. Despite its compact size, it packs a punch, outperforming larger, more cumbersome options. This Southwire Cable Splicing Kit is truly a game-changer in the world of cable installation. 
 
 
-### [Southwire High-Leverage Cable Cutters for Effortless Handling](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-cable-cutters-for-effortless-handling)
+### [Southwire High-Leverage Cable Cutters for Effortless Handling](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-cable-cutters-for-effortless-handling)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-high-leverage-cable-cutters-for-effortless-handling"><img alt="southwire-ccp9-9-high-leverage-cable-cutters-with-grip-handles-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccp9-9-high-leverage-cable-cutters-with-grip-handles-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-high-leverage-cable-cutters-for-effortless-handling"><img alt="southwire-ccp9-9-high-leverage-cable-cutters-with-grip-handles-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccp9-9-high-leverage-cable-cutters-with-grip-handles-1/h=540,fit=pad,background=black"/></a></div>
 
 Featuring robust heat-treated precision blades that ensure clean and efficient cuts, the Southwire High-Leverage Cable Cutters are a true game-changer for those accustomed to clumsy, inefficient cuts. With the added cushion grips that reduce hand fatigue, these cutters provide a comfortable and all-encompassing user experience. Their beveled tips ensure a positive mating for a seamless and secure cable connection. 
 
@@ -91,9 +91,9 @@ The build quality of these cutters is second to none, with a drop-forged 6150 st
 The 27 reviews for the Southwire High-Leverage Cable Cutters boast a whopping 4.8-star rating, which indicates overwhelmingly positive feedback from customers. Users praise not only the product's construction and performance but also the comfort and ease that it provides during use. The Southwire High-Leverage Cable Cutters offer a high-quality, reliable cable cutting solution, perfect for both DIY projects and commercial applications. 
 
 
-### [Southwire TCC9D Terminal Crimper & Cutter for Electricians](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-tcc9d-terminal-crimper-cutter-for-electricians)
+### [Southwire TCC9D Terminal Crimper & Cutter for Electricians](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-tcc9d-terminal-crimper-cutter-for-electricians)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-tcc9d-terminal-crimper-cutter-for-electricians"><img alt="southwire-tcc9d-terminal-crimper-cutter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-tcc9d-terminal-crimper-cutter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-tcc9d-terminal-crimper-cutter-for-electricians"><img alt="southwire-tcc9d-terminal-crimper-cutter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-tcc9d-terminal-crimper-cutter-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire TCC9D Terminal Crimper & Cutter is a versatile tool designed for electricians and contractors. It handles day-to-day demands with ease, thanks to its tapered nose that works smoothly in tight spaces and provides consistent cuts for both insulated and non-insulated terminals and connectors. 
 
@@ -102,27 +102,27 @@ The specially-hardened wire cutter in the nose allows for precise and clean cuts
 Overall, the Southwire TCC9D Terminal Crimper & Cutter is a well-built tool that offers a great balance of power and precision, making it a go-to choice for electricians and contractors alike. 
 
 
-### [Southwire Marksman Conduit Layout Tool](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-marksman-conduit-layout-tool)
+### [Southwire Marksman Conduit Layout Tool](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-marksman-conduit-layout-tool)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-marksman-conduit-layout-tool"><img alt="southwire-mm01-marksman-conduit-layout-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-mm01-marksman-conduit-layout-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-marksman-conduit-layout-tool"><img alt="southwire-mm01-marksman-conduit-layout-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-mm01-marksman-conduit-layout-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire Marksman Conduit Layout Tool is a must-have for electricians and contractors. Made of anodized aluminum, this tool ensures durability and accuracy, saving valuable time on job sites. Easy to use, it simplifies the task of installing conduit layouts with pinpoint precision, offering a user-friendly experience. 
 
 Featuring laser-etched markings for maximum durability, it's an excellent tool to have in your toolbox for both overhead and underground projects. Plus, it includes a panel schedule with the branch circuit number for added convenience. 
 
 
-### [Southwire Apprentice Kit: 14 Piece Electrical Tool Set](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-apprentice-kit-14-piece-electrical-tool-set)
+### [Southwire Apprentice Kit: 14 Piece Electrical Tool Set](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-apprentice-kit-14-piece-electrical-tool-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-apprentice-kit-14-piece-electrical-tool-set"><img alt="southwire-14pkit-14-piece-apprentice-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-14pkit-14-piece-apprentice-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-apprentice-kit-14-piece-electrical-tool-set"><img alt="southwire-14pkit-14-piece-apprentice-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-14pkit-14-piece-apprentice-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 Though I'm not an electrician, I spent a day pretending to be one with the Southwire 14 Piece Apprentice Kit. The quality of the devices is impressive, they felt sturdy and well-crafted. I was most wowed by the voltage and GFCI tester they included, it was a real lifesaver, especially when working in the dark. 
 
 However, while it's called an apprentice kit, it's more geared towards a journeyman, or at least someone familiar with the tools. This kit has some hefty pieces that a true apprentice might struggle to use. But overall, it's a robust and reliable collection of tools that any electrician would be lucky to have at their side. 
 
 
-### [Southwire High-Leverage 9" Side Cutting Pliers](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-9-side-cutting-pliers)
+### [Southwire High-Leverage 9" Side Cutting Pliers](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-high-leverage-9-side-cutting-pliers)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-high-leverage-9-side-cutting-pliers"><img alt="southwire-tools-scp9-9-high-leverage-side-cutting-pliers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-tools-scp9-9-high-leverage-side-cutting-pliers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-high-leverage-9-side-cutting-pliers"><img alt="southwire-tools-scp9-9-high-leverage-side-cutting-pliers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-tools-scp9-9-high-leverage-side-cutting-pliers-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using these Southwire Tools SCP9 9" High-Leverage Side Cutting Pliers for a while now, and I must say, they've made my life as an electrician a whole lot easier. The first thing that caught my attention was their high-leverage design, perfect for tackling tough jobs with ease. 
 
@@ -133,18 +133,18 @@ The curved handle and ergonomic molded grip are thoughtfully designed for comfor
 While these pliers are a bit heavier compared to others, their durability more than makes up for it. They're built to last, and that makes them worth every penny. Overall, these are definitely a set of pliers I recommend adding to your toolbox. 
 
 
-### [Southwire Coax Preparation Tool](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-coax-preparation-tool)
+### [Southwire Coax Preparation Tool](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-coax-preparation-tool)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-coax-preparation-tool"><img alt="southwire-cpt-cf1-coax-prep-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-cpt-cf1-coax-prep-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-coax-preparation-tool"><img alt="southwire-cpt-cf1-coax-prep-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-cpt-cf1-coax-prep-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 This Southwire CPT-CF1 Coax Prep Tool is the perfect solution for those looking to install or maintain their TV's "F" connectors. Built with a double-molded grip for ultimate comfort, this versatile tool not only simplifies the process but is also sturdy enough to handle the demands of the job. 
 
 With its 3-in-1 design, it effortlessly loosens stubborn connectors and comes equipped with a flares tool for opening cable, an incursion tool for holding "F" connectors, and a slotted wrench for easy access to the connectors. Overall, this Southwire product is a reliable and comfortable option for anyone in need of a coax prep tool. 
 
 
-### [Southwire 3 Great Products Electrical Test Kit Bundle - Safe and Accurate Multimeter with Non-Contact Voltage Detector](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-3-great-products-electrical-test-kit-bundle-safe-and-accurate-multimeter-with-non-contact-voltage-detector)
+### [Southwire 3 Great Products Electrical Test Kit Bundle - Safe and Accurate Multimeter with Non-Contact Voltage Detector](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-3-great-products-electrical-test-kit-bundle-safe-and-accurate-multimeter-with-non-contact-voltage-detector)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-3-great-products-electrical-test-kit-bundle-safe-and-accurate-multimeter-with-non-contact-voltage-detector"><img alt="southwire-10037k-electrical-test-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-10037k-electrical-test-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-3-great-products-electrical-test-kit-bundle-safe-and-accurate-multimeter-with-non-contact-voltage-detector"><img alt="southwire-10037k-electrical-test-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-10037k-electrical-test-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 Southwire's 3 Great Products at an Unbeatable Price bundle has been a game-changer for me as a homeowner tackling basic electrical tasks. The plug-in receptacle tester is such a relief when it comes to avoiding errors in 120-volt receptacles. Its compact size and rugged housing make it ideal for those with limited storage space. 
 
@@ -153,9 +153,9 @@ The multi-meter, however, stood out for me: boasting 7 useful functions and a CA
 All in all, this is a great value for DIYers like me, and I wouldn't hesitate to recommend the Southwire 3 Great Products bundle to others. 
 
 
-### [Southwire 3-in-1 Phone & Data Crimp Tool Kit](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-3-in-1-phone-data-crimp-tool-kit)
+### [Southwire 3-in-1 Phone & Data Crimp Tool Kit](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-3-in-1-phone-data-crimp-tool-kit)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-3-in-1-phone-data-crimp-tool-kit"><img alt="southwire-rjcr-t1-3-in-1-phone-data-crimp-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-rjcr-t1-3-in-1-phone-data-crimp-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-3-in-1-phone-data-crimp-tool-kit"><img alt="southwire-rjcr-t1-3-in-1-phone-data-crimp-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-rjcr-t1-3-in-1-phone-data-crimp-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Southwire RJCR-T1 3-in-1 Phone & Data Crimp Tool Kit, and I must say it's quite impressive. This little gadget can strip flat phone cables and even cut through solid or stranded wires with ease. Its highlight feature, the comfortable double-molded grips, gives it a firm hold and allows for easy tool orientation while in use. 
 
@@ -164,9 +164,9 @@ What stood out for me the most was its ability to strip flat phone cable and CAT
 However, I encountered a minor issue with the RJ11 connectors – it over-crimps them, and the pins get pushed too far into the plastic. This had me calling tech support but was left hanging. Despite this minor glitch, the RJCR-T1 tool remains the best CAT5 cable tool I've ever used and a great value for its price. It's indeed a reliable and durable option for any home or small business use. 
 
 
-### [Southwire Professional Impact Punchdown Tool](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-professional-impact-punchdown-tool)
+### [Southwire Professional Impact Punchdown Tool](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-professional-impact-punchdown-tool)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-professional-impact-punchdown-tool"><img alt="southwire-pdtp-k1-professional-impact-punchdown-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-pdtp-k1-professional-impact-punchdown-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-professional-impact-punchdown-tool"><img alt="southwire-pdtp-k1-professional-impact-punchdown-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-pdtp-k1-professional-impact-punchdown-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few weeks, I've been using the Southwire Professional Impact Punchdown Tool. It's a compact, reliable device that offers a range of features for efficient cable management. One of the first things that stood out to me was the comfortable double-molded tool body, which fits perfectly in my hand. 
 
@@ -177,9 +177,9 @@ However, there were a few areas where the product could use some improvement. I 
 Despite these minor setbacks, the Professional Impact Punchdown Tool has become an indispensable part of my daily life. Its ability to terminate twisted pair category cable into wall jacks and patch panels for phone and data communications has been a game-changer. Overall, I'd say this is a valuable tool for anyone who's involved in networking and structured cabling. 
 
 
-### [Southwire Key Strip Tool for Twisted Pair Cables](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-key-strip-tool-for-twisted-pair-cables)
+### [Southwire Key Strip Tool for Twisted Pair Cables](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-key-strip-tool-for-twisted-pair-cables)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-key-strip-tool-for-twisted-pair-cables"><img alt="southwire-sk-t1-key-strip-tool-for-twisted-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-sk-t1-key-strip-tool-for-twisted-pair-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-key-strip-tool-for-twisted-pair-cables"><img alt="southwire-sk-t1-key-strip-tool-for-twisted-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-sk-t1-key-strip-tool-for-twisted-pair-1/h=540,fit=pad,background=black"/></a></div>
 
 When it comes to removing outer cable jackets, the Southwire SK-T1 Key Strip Tool for Twisted Pair is a game-changer. Its three positions for different size cables make it a versatile addition to any toolbox. 
 
@@ -188,9 +188,9 @@ The ergonomic handle ensures a comfortable grip, and its easy storage means you 
 While it might not be the most powerful stripper out there, its user-friendly design and affordable price make it a great option for those stripping cables every now and then. 
 
 
-### [Southwire KIT-C1 Cable TV Tool Kit for Custom Patch Cables and Outlet Relocation](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-kit-c1-cable-tv-tool-kit-for-custom-patch-cables-and-outlet-relocation)
+### [Southwire KIT-C1 Cable TV Tool Kit for Custom Patch Cables and Outlet Relocation](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-kit-c1-cable-tv-tool-kit-for-custom-patch-cables-and-outlet-relocation)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-kit-c1-cable-tv-tool-kit-for-custom-patch-cables-and-outlet-relocation"><img alt="southwire-kit-c1-cable-tv-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-kit-c1-cable-tv-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-kit-c1-cable-tv-tool-kit-for-custom-patch-cables-and-outlet-relocation"><img alt="southwire-kit-c1-cable-tv-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-kit-c1-cable-tv-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the Southwire KIT-C1 Cable TV Tool Kit for my home's cable TV relocation project. It's easy to use and comes with all the necessary tools - a stripper, a cutter, and a crimper. Plus, I love that it includes 10 RG6 connectors, making it a convenient all-in-one solution. 
 
@@ -199,9 +199,9 @@ The best part? The stripper strips perfectly, making quick work of exposing the 
 However, one slight drawback is that the connectors don't always work with every cable TV system. But overall, this tool kit is a real lifesaver for DIYers like me. Highly recommended! 
 
 
-### [Southwire KIT-TP1 Tool Kit: Terminate Data Cables Effortlessly](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-kit-tp1-tool-kit-terminate-data-cables-effortlessly)
+### [Southwire KIT-TP1 Tool Kit: Terminate Data Cables Effortlessly](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-kit-tp1-tool-kit-terminate-data-cables-effortlessly)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-kit-tp1-tool-kit-terminate-data-cables-effortlessly"><img alt="southwire-kit-tp1-network-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-kit-tp1-network-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-kit-tp1-tool-kit-terminate-data-cables-effortlessly"><img alt="southwire-kit-tp1-network-tool-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-kit-tp1-network-tool-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had a need to customize length patch cables for a network project, so I decided to give the Southwire KIT-TP1 Network Tool Kit a try. I was impressed by the quality and variety of tools included in this kit. The crimper worked like a charm, easily terminating the twisted pairs of wiring for the patch cable I was making. 
 
@@ -212,18 +212,18 @@ However, as much as I liked this toolkit, I did encounter a couple of drawbacks.
 Overall, the Southwire KIT-TP1 Network Tool Kit was a useful and effective tool for my patch cable adventures. While it wasn't perfect, I was certainly impressed by the quality and value it brought to the table. I might just have to reevaluate my toolkit for future projects! 
 
 
-### [Southwire 7-in-1 Multifunction Tool Pliers](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-7-in-1-multifunction-tool-pliers)
+### [Southwire 7-in-1 Multifunction Tool Pliers](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-7-in-1-multifunction-tool-pliers)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-7-in-1-multifunction-tool-pliers"><img alt="southwire-s7n1hd-7-in-1-multi-tool-pliers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-s7n1hd-7-in-1-multi-tool-pliers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-7-in-1-multifunction-tool-pliers"><img alt="southwire-s7n1hd-7-in-1-multi-tool-pliers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-s7n1hd-7-in-1-multi-tool-pliers-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire S7N1HD 7-in-1 Multi Tool Pliers is a highly versatile and sturdy tool perfect for tackling any rugged work environment. Equipped with various useful features, this multi-tool pliers can handle stripping, shearing, gripping, crimping, reaming, and spanning bolts with ease. Its scalloped blade allows for smooth and efficient cutting, and its spring-loaded handles provide drop prevention. 
 
 Although some users have reported rusting issues, the overall quality and functionality of the Southwire S7N1HD 7-in-1 Multi Tool Pliers are well-regarded and highly appreciated by both professional electricians and homeowners. 
 
 
-### [Southwire CCM C1 Tool: Crimp Multi-Connector for Coaxial Wiring](https://serp.ly/amazon/Southwire+Tools?utm\_term=southwire-ccm-c1-tool-crimp-multi-connector-for-coaxial-wiring)
+### [Southwire CCM C1 Tool: Crimp Multi-Connector for Coaxial Wiring](https://serp.ly/@outrun/amazon/Southwire+Tools?utm\_term=southwire-ccm-c1-tool-crimp-multi-connector-for-coaxial-wiring)
 
-<div class="image"><a href="https://serp.ly/amazon/Southwire+Tools?utm_term=southwire-ccm-c1-tool-crimp-multi-connector-for-coaxial-wiring"><img alt="southwire-ccm-c1-compression-coax-crimp-multi-connector-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccm-c1-compression-coax-crimp-multi-connector-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Southwire+Tools?utm_term=southwire-ccm-c1-tool-crimp-multi-connector-for-coaxial-wiring"><img alt="southwire-ccm-c1-compression-coax-crimp-multi-connector-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/southwire-ccm-c1-compression-coax-crimp-multi-connector-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 The Southwire CCM-C1 Compression Coax Adjustable Crimp Tool is a versatile and reliable tool suitable for various cable TV, satellite, security, and home theater applications. Its robust design and comfortable double-molded grips make it an easy-to-use option for those who need to make cable connections. 
 

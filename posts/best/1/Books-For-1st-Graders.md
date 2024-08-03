@@ -14,9 +14,9 @@ Looking for the perfect books to ignite your child's love for reading at a young
 ## Reviews
 
 
-### [Unstoppable US: Grade 1 History Book](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=unstoppable-us-grade-1-history-book)
+### [Unstoppable US: Grade 1 History Book](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=unstoppable-us-grade-1-history-book)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=unstoppable-us-grade-1-history-book"><img alt="unstoppable-us-volume-1-how-humans-took-over-the-world-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/unstoppable-us-volume-1-how-humans-took-over-the-world-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=unstoppable-us-grade-1-history-book"><img alt="unstoppable-us-volume-1-how-humans-took-over-the-world-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/unstoppable-us-volume-1-how-humans-took-over-the-world-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Unstoppable Us, Volume 1: A compelling journey into the history of human kind. Last weekend, I grabbed a copy and found myself completely immersed in its pages. The vivid storytelling combined with fascinating facts made it a real page-turner. 
 
@@ -25,9 +25,9 @@ It's a book that feels like a good friend from the past, keeping you company whi
 Whether you're a teen or an adult, Unstoppable Us will definitely keep you hooked, making it a perfect read-aloud for the whole family. 
 
 
-### [Newmark Learning Self-Discovery Books for 1st Graders (24 Pack)](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=newmark-learning-self-discovery-books-for-1st-graders-24-pack)
+### [Newmark Learning Self-Discovery Books for 1st Graders (24 Pack)](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=newmark-learning-self-discovery-books-for-1st-graders-24-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=newmark-learning-self-discovery-books-for-1st-graders-24-pack"><img alt="newmark-learning-grades-1-2-myself-complete-single-copy-small-book-set-of-25" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/newmark-learning-grades-1-2-myself-complete-single-copy-small-book-set-of-25/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=newmark-learning-self-discovery-books-for-1st-graders-24-pack"><img alt="newmark-learning-grades-1-2-myself-complete-single-copy-small-book-set-of-25" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/newmark-learning-grades-1-2-myself-complete-single-copy-small-book-set-of-25/h=540,fit=pad,background=black"/></a></div>
 
 The Newmark Learning Grades 1-2 Myself Complete Single-Copy Small Book set is an engaging collection of stories designed to help young readers understand various emotions and social interactions. With 24 books in the set, this resource offers a diverse range of perspectives aimed at nurturing empathy in children aged 4-6 years. 
 
@@ -36,9 +36,9 @@ Each book in the set comes with a set of shared reading books to further engage 
 Despite its numerous benefits, the set might not be ideal for larger classrooms due to its compact size. Nevertheless, the Newmark Learning Grades 1-2 Myself Complete Single-Copy Small Book set is a fantastic educational tool for nurturing compassion and emotional intelligence in younger children. 
 
 
-### [Discover Reading Magic with Dr. Seuss's 'I Can Read with My Eyes Shut!'](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=discover-reading-magic-with-dr-seusss-i-can-read-with-my-eyes-shut)
+### [Discover Reading Magic with Dr. Seuss's 'I Can Read with My Eyes Shut!'](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=discover-reading-magic-with-dr-seusss-i-can-read-with-my-eyes-shut)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=discover-reading-magic-with-dr-seusss-i-can-read-with-my-eyes-shut"><img alt="i-can-read-with-my-eyes-shut-by-dr-seuss-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/i-can-read-with-my-eyes-shut-by-dr-seuss-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=discover-reading-magic-with-dr-seusss-i-can-read-with-my-eyes-shut"><img alt="i-can-read-with-my-eyes-shut-by-dr-seuss-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/i-can-read-with-my-eyes-shut-by-dr-seuss-1/h=540,fit=pad,background=black"/></a></div>
 
 I was really excited to dive into "I Can Read with My Eyes Shut! " by Dr. Seuss, as I had heard such great things about this book. The bright colored cover and playful illustrations caught my eye immediately, and I was eager to see what kind of story awaited inside. 
 
@@ -51,9 +51,9 @@ However, while I enjoyed my experience with this book, I couldn't help but notic
 Overall, "I Can Read with My Eyes Shut! " by Dr. Seuss is a wonderful addition to any child's library. The engaging illustrations and clever use of sight words make it a fun and educational read, and I wholeheartedly recommend it to parents and teachers looking for a first reader that will capture a child's imagination. 
 
 
-### [Color By Math Workbook for 1st Graders](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=color-by-math-workbook-for-1st-graders)
+### [Color By Math Workbook for 1st Graders](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=color-by-math-workbook-for-1st-graders)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=color-by-math-workbook-for-1st-graders"><img alt="color-by-math-workbooks-for-1st-graders-childrens-math-books-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/color-by-math-workbooks-for-1st-graders-childrens-math-books-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=color-by-math-workbook-for-1st-graders"><img alt="color-by-math-workbooks-for-1st-graders-childrens-math-books-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/color-by-math-workbooks-for-1st-graders-childrens-math-books-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Color by Math workbook with my 1st grader, and it quickly became a favorite of ours. The bright, colorful pages make it appealing to kids, while the math-guided coloring adds an extra layer of challenge. 
 
@@ -62,9 +62,9 @@ With a focus on number recognition, my child was able to develop his coloring sk
 Overall, this workbook is a great addition to any childhood library, helping to make learning fun and engaging. 
 
 
-### [Keira's Beach Adventure: A Fun Read for Kindergarteners and First Graders](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=keiras-beach-adventure-a-fun-read-for-kindergarteners-and-first-graders)
+### [Keira's Beach Adventure: A Fun Read for Kindergarteners and First Graders](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=keiras-beach-adventure-a-fun-read-for-kindergarteners-and-first-graders)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=keiras-beach-adventure-a-fun-read-for-kindergarteners-and-first-graders"><img alt="what-i-like-a-fun-basic-reading-book-for-kindergarteners-and-first-graders-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/what-i-like-a-fun-basic-reading-book-for-kindergarteners-and-first-graders-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=keiras-beach-adventure-a-fun-read-for-kindergarteners-and-first-graders"><img alt="what-i-like-a-fun-basic-reading-book-for-kindergarteners-and-first-graders-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/what-i-like-a-fun-basic-reading-book-for-kindergarteners-and-first-graders-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover the charms of "Fun, Basic Reading Book for Kindergarteners and First Graders" - a delightful read for young learners seeking engaging tales. Join Keira as she embarks on an adventure to the beach, sharing her favorite things with loved ones. This enchanting story captivates children with gentle humor, making it a must-have for Kindergarten and First Grade students. 
 
@@ -75,9 +75,9 @@ Parents and kids alike will love the added educational activities in the book. P
 If you're searching for a book that blends fun learning with engaging stories for your youngest readers, look no further. Remember, reading is not just about deciphering words; it's about the stories that inspire a love for books and the joy they bring. 
 
 
-### [Animal Antics: Hilarious Reader Series for 1st Graders](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=animal-antics-hilarious-reader-series-for-1st-graders)
+### [Animal Antics: Hilarious Reader Series for 1st Graders](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=animal-antics-hilarious-reader-series-for-1st-graders)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=animal-antics-hilarious-reader-series-for-1st-graders"><img alt="animal-antics-e-j-first-grade-reader-box-set-scholastic-early-learners-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/animal-antics-e-j-first-grade-reader-box-set-scholastic-early-learners-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=animal-antics-hilarious-reader-series-for-1st-graders"><img alt="animal-antics-e-j-first-grade-reader-box-set-scholastic-early-learners-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/animal-antics-e-j-first-grade-reader-box-set-scholastic-early-learners-1/h=540,fit=pad,background=black"/></a></div>
 
 As a parent, I've always been on the lookout for fun and engaging books that can help my child develop his reading skills. When I stumbled upon Scholastic Early Learners' Animal Antics E-J Reader Box Set, I was excited to see if it could live up to the hype. 
 
@@ -90,27 +90,27 @@ However, I did notice that some stories were a bit too short and lacked depth, w
 Overall, the Animal Antics E-J Reader Box Set by Scholastic Early Learners proved to be a valuable resource for my child's first-grade reading journey. With engaging stories and interactive elements, it provided a fun and interactive way for him to enhance his reading skills. 
 
 
-### [Roald Dahl 1st Grade Books Collection (16 Book Box Set)](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=roald-dahl-1st-grade-books-collection-16-book-box-set)
+### [Roald Dahl 1st Grade Books Collection (16 Book Box Set)](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=roald-dahl-1st-grade-books-collection-16-book-box-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=roald-dahl-1st-grade-books-collection-16-book-box-set"><img alt="roald-dahl-collection-16-books-box-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roald-dahl-collection-16-books-box-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=roald-dahl-1st-grade-books-collection-16-book-box-set"><img alt="roald-dahl-collection-16-books-box-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roald-dahl-collection-16-books-box-set-1/h=540,fit=pad,background=black"/></a></div>
 
 A fantastic box set of 16 books from the ever-popular Roald Dahl Collection, perfect for both gifting and travel. This set contains a diverse range of stories, appealing to young readers and adults alike. 
 
 Featuring the beloved characters from "Matilda" and "The Witches, " the collection also includes lesser-known titles such as "Charlie and the Great Glass Elevator" and "The Twits. " With its compact size and eye-catching packaging, this box set is sure to become a cherished addition to any bookshelf. Suitable for young readers, the book series features classic illustrations and a timeless literary movement. 
 
 
-### [First Learning Library" - 20 Board Books Set for Beginners](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=first-learning-library-20-board-books-set-for-beginners)
+### [First Learning Library" - 20 Board Books Set for Beginners](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=first-learning-library-20-board-books-set-for-beginners)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=first-learning-library-20-board-books-set-for-beginners"><img alt="my-first-complete-learning-library-boxset-of-20-board-books-gift-set-for-kids-horizontal-design-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/my-first-complete-learning-library-boxset-of-20-board-books-gift-set-for-kids-horizontal-design-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=first-learning-library-20-board-books-set-for-beginners"><img alt="my-first-complete-learning-library-boxset-of-20-board-books-gift-set-for-kids-horizontal-design-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/my-first-complete-learning-library-boxset-of-20-board-books-gift-set-for-kids-horizontal-design-book-1/h=540,fit=pad,background=black"/></a></div>
 
 This complete learning library is filled with 20 engaging board books, perfect for little scholars to explore a variety of learning topics. The well-researched images and accurate word labels make learning a breeze, ultimately boosting your child's vocabulary development. 
 
 With a sturdy hardback cover and 460 pages, it's a fantastic addition to any home library. The compact size of these books also allows them to fit easily into small hands, making them perfect for young readers to hold and enjoy. 
 
 
-### [Step into Reading: 1st Grade Boxed Set for Beginner Readers](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=step-into-reading-1st-grade-boxed-set-for-beginner-readers)
+### [Step into Reading: 1st Grade Boxed Set for Beginner Readers](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=step-into-reading-1st-grade-boxed-set-for-beginner-readers)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=step-into-reading-1st-grade-boxed-set-for-beginner-readers"><img alt="1st-grade-reading-success-boxed-set-best-friends-duck-cats-rainy-day-big-shark-little-shark-drop-it--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1st-grade-reading-success-boxed-set-best-friends-duck-cats-rainy-day-big-shark-little-shark-drop-it--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=step-into-reading-1st-grade-boxed-set-for-beginner-readers"><img alt="1st-grade-reading-success-boxed-set-best-friends-duck-cats-rainy-day-big-shark-little-shark-drop-it--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1st-grade-reading-success-boxed-set-best-friends-duck-cats-rainy-day-big-shark-little-shark-drop-it--1/h=540,fit=pad,background=black"/></a></div>
 
 As a parent and avid reader myself, I recently discovered the 5-book set from the Step into Reading series by Random House Books for Young Readers. Let me tell you, my first grader couldn't be more thrilled with these engaging stories! 
 
@@ -119,18 +119,18 @@ Each book has vibrant illustrations, simple words, and rhythmic repetition, perf
 The set is compactly packed at just 9 inches by 6.1 inches, making it a fantastic travel companion for bedtime stories. Overall, these books have been a great way to nurture my first grader's love for reading and make learning fun. 
 
 
-### [How Do Dinosaurs Say I'm Mad? A Calming Board Book for Little Ones](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=how-do-dinosaurs-say-im-mad-a-calming-board-book-for-little-ones)
+### [How Do Dinosaurs Say I'm Mad? A Calming Board Book for Little Ones](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=how-do-dinosaurs-say-im-mad-a-calming-board-book-for-little-ones)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=how-do-dinosaurs-say-im-mad-a-calming-board-book-for-little-ones"><img alt="how-do-dinosaurs-say-im-mad-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/how-do-dinosaurs-say-im-mad-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=how-do-dinosaurs-say-im-mad-a-calming-board-book-for-little-ones"><img alt="how-do-dinosaurs-say-im-mad-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/how-do-dinosaurs-say-im-mad-book-1/h=540,fit=pad,background=black"/></a></div>
 
 How Do Dinosaurs Say I'm Mad? " is a charming addition to the award-winning "How Do Dinosaurs" series. This humorous hardback book, published by Cartwheel Books in 2022, is perfect for little ones dealing with anger and frustration, providing practical solutions to calm down and apologize. With its delightful illustrations and engaging storytelling, it's the perfect way for parents, educators, and children to talk about handling upset moments. 
 
 The 32 pages of the book offer an entertaining solution for any toddler who wants to learn how to love and communicate better. 
 
 
-### [Mastering Basic Skills: First Grade Activity Book](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=mastering-basic-skills-first-grade-activity-book)
+### [Mastering Basic Skills: First Grade Activity Book](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=mastering-basic-skills-first-grade-activity-book)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=mastering-basic-skills-first-grade-activity-book"><img alt="mastering-basic-skills-first-grade-activity-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mastering-basic-skills-first-grade-activity-book-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=mastering-basic-skills-first-grade-activity-book"><img alt="mastering-basic-skills-first-grade-activity-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mastering-basic-skills-first-grade-activity-book-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking for ways to support your little one in their first-grade studies? Check out the Mastering Basic Skills First Grade Activity Book. This comprehensive ebook offers an all-in-one guide for first graders, covering essential skills like reading comprehension, phonics, language arts, grammar, writing, time and money, and math. 
 
@@ -139,9 +139,9 @@ Parents will appreciate the extra features, such as grade-specific math and lang
 With rave reviews from parents who've already used the book, it's clear that the Mastering Basic Skills First Grade Activity Book is a worthwhile purchase. So why wait? Dive in and help your little learner master those first-grade skills with ease! 
 
 
-### [A Pocketful of Princess Posey: First Grader Books Collection](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=a-pocketful-of-princess-posey-first-grader-books-collection)
+### [A Pocketful of Princess Posey: First Grader Books Collection](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=a-pocketful-of-princess-posey-first-grader-books-collection)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=a-pocketful-of-princess-posey-first-grader-books-collection"><img alt="a-pocketful-of-princess-posey-princess-posey-first-grader-books-1-3-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a-pocketful-of-princess-posey-princess-posey-first-grader-books-1-3-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=a-pocketful-of-princess-posey-first-grader-books-collection"><img alt="a-pocketful-of-princess-posey-princess-posey-first-grader-books-1-3-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a-pocketful-of-princess-posey-princess-posey-first-grader-books-1-3-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across "A Pocketful of Princess Posey, " a collection of the first three books in the Princess Posey, First Grader series. It's a delightful find for parents looking for books to spark the imagination of their little ones. 
 
@@ -152,25 +152,25 @@ What struck me the most was the positive message woven into everyday experiences
 "A Pocketful of Princess Posey" boasts proper binding covers that promise durability and withstand the rough-and-tumble of a child's daily use. Plus, the condition of the books was new and good – a bonus for gifting purposes. So, if you're looking for a book series that will capture the attention of your early readers, "A Pocketful of Princess Posey" is definitely worth considering. 
 
 
-### [Hookers and Blow Save Christmas: A Fun Book for 1st Graders](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=hookers-and-blow-save-christmas-a-fun-book-for-1st-graders)
+### [Hookers and Blow Save Christmas: A Fun Book for 1st Graders](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=hookers-and-blow-save-christmas-a-fun-book-for-1st-graders)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=hookers-and-blow-save-christmas-a-fun-book-for-1st-graders"><img alt="hookers-and-blow-save-christmas-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hookers-and-blow-save-christmas-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=hookers-and-blow-save-christmas-a-fun-book-for-1st-graders"><img alt="hookers-and-blow-save-christmas-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hookers-and-blow-save-christmas-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to cuddle up with a heartwarming and humorous tale this holiday season! Hookers and Blow Save Christmas is a delightful book that follows Tom Transport as he gets stuck in a snowdrift with all the presents for the town Christmas party. But fear not, as Hookers the tow truck and Blow the snowblower are there to save the day and bring cheer to all! 
 
 This engaging story is not only a perfect holiday treat for kids, but it also offers a few witty and amusing moments for adults with a slightly twisted sense of humor. With its adorable softcover design, Hookers and Blow Save Christmas is sure to become a cherished addition to every family's collection. So grab a cozy blanket, gather your loved ones, and dive into this amazing Christmas adventure together! 
 
 
-### [National Geographic Level 1 Reader: Caterpillar to Butterfly, Ponies](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=national-geographic-level-1-reader-caterpillar-to-butterfly-ponies)
+### [National Geographic Level 1 Reader: Caterpillar to Butterfly, Ponies](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=national-geographic-level-1-reader-caterpillar-to-butterfly-ponies)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=national-geographic-level-1-reader-caterpillar-to-butterfly-ponies"><img alt="national-geographic-readers-level-1-caterpillar-to-butterfly-ponies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-geographic-readers-level-1-caterpillar-to-butterfly-ponies-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=national-geographic-level-1-reader-caterpillar-to-butterfly-ponies"><img alt="national-geographic-readers-level-1-caterpillar-to-butterfly-ponies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-geographic-readers-level-1-caterpillar-to-butterfly-ponies-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the magic of nature with National Geographic Readers Level 1: Caterpillar to Butterfly, Ponies. This visually stunning collection of stories is designed specifically for young readers, providing them with an engaging and educational journey through the wonders of the natural world. With captivating illustrations, these books stimulate curiosity and imagination, encouraging early literacy skills and fostering a love for learning. 
 
 
-### [Oxford Starter Phonics Book: The Town Mouse and Count](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=oxford-starter-phonics-book-the-town-mouse-and-count)
+### [Oxford Starter Phonics Book: The Town Mouse and Count](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=oxford-starter-phonics-book-the-town-mouse-and-count)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=oxford-starter-phonics-book-the-town-mouse-and-count"><img alt="read-with-oxford-stage-1-phonics-the-town-mouse-and-count-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/read-with-oxford-stage-1-phonics-the-town-mouse-and-count-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=oxford-starter-phonics-book-the-town-mouse-and-count"><img alt="read-with-oxford-stage-1-phonics-the-town-mouse-and-count-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/read-with-oxford-stage-1-phonics-the-town-mouse-and-count-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Read with Oxford: Stage 1: Phonics collection, which features some delightful traditional tales. As a book enthusiast, I couldn't resist picking it up for my little one. The hardcover books are not only beautifully illustrated, but they also have a clear phonics progression that makes reading easier for young children. 
 
@@ -179,18 +179,18 @@ What stood out the most was the expertly-levelled stories that catered to my chi
 However, I noticed that the books had been previously owned, which means they have signs of wear, such as creased spines and slightly discolored pages. Despite this, the overall quality of the books is still great, and I believe the benefits of using this collection in our daily reading routine outweigh the slight wear and tear. 
 
 
-### [Children's Math Workbook: Sorting Odd & Even Numbers for 1st Graders](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=childrens-math-workbook-sorting-odd-even-numbers-for-1st-graders)
+### [Children's Math Workbook: Sorting Odd & Even Numbers for 1st Graders](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=childrens-math-workbook-sorting-odd-even-numbers-for-1st-graders)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=childrens-math-workbook-sorting-odd-even-numbers-for-1st-graders"><img alt="is-it-odd-or-even-sorting-numbers-1st-grade-math-book-childrens-math-books-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/is-it-odd-or-even-sorting-numbers-1st-grade-math-book-childrens-math-books-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=childrens-math-workbook-sorting-odd-even-numbers-for-1st-graders"><img alt="is-it-odd-or-even-sorting-numbers-1st-grade-math-book-childrens-math-books-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/is-it-odd-or-even-sorting-numbers-1st-grade-math-book-childrens-math-books-book-1/h=540,fit=pad,background=black"/></a></div>
 
 When it comes to mastering basic math concepts like odd and even numbers, every 1st grader needs a little extra practice. This carefully crafted workbook, "Sorting Numbers - Children's Math Books, " published in 2017, comes as a handy companion for both parents and educators looking to reinforce those important foundational skills. 
 
 With its simple and engaging exercises, the "Sorting Numbers" workbook fosters self-paced learning, a crucial aspect of a young learner's development. Don't let the classroom stop there; continue the learning journey at home with this helpful book! So grab your copy today and make those odd and even numbers come alive! 
 
 
-### [Explore the World of Reading with Bob Books Set 1](https://serp.ly/amazon/Books+For+1st+Graders?utm\_term=explore-the-world-of-reading-with-bob-books-set-1)
+### [Explore the World of Reading with Bob Books Set 1](https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm\_term=explore-the-world-of-reading-with-bob-books-set-1)
 
-<div class="image"><a href="https://serp.ly/amazon/Books+For+1st+Graders?utm_term=explore-the-world-of-reading-with-bob-books-set-1"><img alt="bob-books-set-1-beginning-readers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bob-books-set-1-beginning-readers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders?utm_term=explore-the-world-of-reading-with-bob-books-set-1"><img alt="bob-books-set-1-beginning-readers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bob-books-set-1-beginning-readers-1/h=540,fit=pad,background=black"/></a></div>
 
 Bob Books (Set 1) Beginning Readers" is a must-have set for young learners eager to read. With a 4.7-star rating and 131 reviews, it's clear that it's an excellent choice for early childhood development. This set follows a gradual approach to increase children's confidence in reading, teaching them letter sounds and basic sentence construction. 
 
@@ -216,7 +216,7 @@ When it comes to selecting books for 1st graders, it is essential to consider va
 
 One of the most important aspects to consider when selecting books for 1st graders is the appropriate reading level. It is generally recommended to choose books with a reading level that aligns with their current grade or slightly below. This ensures that the content is suitable for their reading ability and can challenge and stimulate their comprehension skills. 
 
-<div><a href="https://serp.ly/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-2/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-2/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-2" height="540"></a></div>
 
 
 ### Interest Level
@@ -228,7 +228,7 @@ Apart from the reading level, it is also crucial to select books that align with
 
 There are numerous topics that are popular among 1st graders, such as colors, shapes, numbers, letters, and basic science concepts. It is helpful to select books that cover these topics to help your child develop essential foundational knowledge. You can also look for books that focus on social skills, emotions, and friendships, as they can help children navigate the challenges they face in their daily lives. 
 
-<div><a href="https://serp.ly/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-3/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-3/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-3" height="540"></a></div>
 
 
 ### Illustrations and Pictures
@@ -238,7 +238,7 @@ Visual aids play a vital role in helping young readers comprehend the text. Ther
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-4/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-4/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-4" height="540"></a></div>
 
 
 ### What age group are these books suitable for?
@@ -254,7 +254,7 @@ These books are carefully crafted to support the learning of 1st graders by intr
 
 Some books in the collection may also touch on subjects that are taught in the classroom, such as basic math, science, and social studies. These books can help children to connect their learning in school with the world outside of the classroom, making the material more relatable and interesting. By providing engaging and age-appropriate content, these books can help support the overall development and learning of 1st graders. 
 
-<div><a href="https://serp.ly/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-5/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-5/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-5" height="540"></a></div>
 
 
 ### Are these books available in different formats?
@@ -270,7 +270,7 @@ These books are specifically designed to engage and delight young readers, helpi
 
 By providing age-appropriate and engaging content, these books help to create a positive association with reading for children, making it more likely that they will continue to read and develop their reading skills as they grow. Parents and teachers can also use these books as an opportunity to bond with their children over a shared storytime experience, further strengthening the connection between them and their love for reading. 
 
-<div><a href="https://serp.ly/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-6/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Books+For+1st+Graders"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Books-For-1st-Graders-6/h=540,fit=pad,background=black" alt="Books-For-1st-Graders-6" height="540"></a></div>
 
 
 ### What topics do these books cover?

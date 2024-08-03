@@ -14,18 +14,18 @@ Welcome to our roundup of the best dog kennels on the market. Whether you're loo
 ## Reviews
 
 
-### [Coziwow: Premium Lockable Dog Kennel with Swivel Wheels](https://serp.ly/amazon/Dog+Kennel?utm\_term=coziwow-premium-lockable-dog-kennel-with-swivel-wheels)
+### [Coziwow: Premium Lockable Dog Kennel with Swivel Wheels](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=coziwow-premium-lockable-dog-kennel-with-swivel-wheels)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=coziwow-premium-lockable-dog-kennel-with-swivel-wheels"><img alt="coziwow-dog-kennel-lockable-caster-cw12k0312-w02-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coziwow-dog-kennel-lockable-caster-cw12k0312-w02-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=coziwow-premium-lockable-dog-kennel-with-swivel-wheels"><img alt="coziwow-dog-kennel-lockable-caster-cw12k0312-w02-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coziwow-dog-kennel-lockable-caster-cw12k0312-w02-1/h=540,fit=pad,background=black"/></a></div>
 
 The Coziwow Dog Kennel Lockable Caster CW12K0312-W02 is quite an impressive creation for your fur babies. The solid galvanized metal construction keeps the cage sturdy, while the black powder finish adds an appealing touch. The top and front entrances allow easy access without compromising safety, with slide-bolt latches on both sides. The cage also comes equipped with a pull-out tray, making cleanup a breeze, and can also be effortlessly moved around thanks to its 360-degree rotating casters, with two of them being lockable. 
 
 However, it's not all smooth sailing. Some users have experienced cosmetic damage during delivery, but the customer service has been quick to resolve these issues. Despite the minor setbacks, many users have found the cage spacious and sturdy, providing their pets with ample room to move around comfortably. Overall, it's quite a reliable solution for those looking to ensure their pet's safety while on the go. 
 
 
-### [Aspen Pet Traditional 28" Dog Kennel](https://serp.ly/amazon/Dog+Kennel?utm\_term=aspen-pet-traditional-28-dog-kennel)
+### [Aspen Pet Traditional 28" Dog Kennel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=aspen-pet-traditional-28-dog-kennel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=aspen-pet-traditional-28-dog-kennel"><img alt="aspen-pet-traditional-kennel-28-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aspen-pet-traditional-kennel-28-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=aspen-pet-traditional-28-dog-kennel"><img alt="aspen-pet-traditional-kennel-28-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aspen-pet-traditional-kennel-28-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Aspen Pet Traditional Kennel for my adorable little puppy, and I have to say, it has been a game-changer for both of us. The easy-to-clean, durable plastic construction made it a cinch to maintain, and the ventilation on all three walls provided excellent airflow, keeping my pup comfy and fresh. 
 
@@ -36,9 +36,9 @@ However, there were a couple of downsides to using this kennel. Firstly, it took
 Overall, the Aspen Pet Traditional Kennel proved to be a reliable and safe option for my furry friend, making travel and crate training a much more pleasant experience for both of us. 
 
 
-### [Stephens Gold Series Dog Kennel System](https://serp.ly/amazon/Dog+Kennel?utm\_term=stephens-gold-series-dog-kennel-system)
+### [Stephens Gold Series Dog Kennel System](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=stephens-gold-series-dog-kennel-system)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=stephens-gold-series-dog-kennel-system"><img alt="stephens-gold-series-dog-kennel-system-10-x-10-x-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stephens-gold-series-dog-kennel-system-10-x-10-x-6-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=stephens-gold-series-dog-kennel-system"><img alt="stephens-gold-series-dog-kennel-system-10-x-10-x-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stephens-gold-series-dog-kennel-system-10-x-10-x-6-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine your furry friend happily playing in their own secured space, the Stephens Gold Series Dog Kennel System. It's a breeze to set up - no holes or concrete required! The rust-resistant galvanized steel tubing and chain link fabric make it sturdy and well-built. Plus, the horizontal and vertical braces ensure maximum strength. 
 
@@ -47,18 +47,18 @@ However, there's a catch. If you have a particularly smart or strong dog, it mig
 Despite these cons, the Stephens Gold Series Dog Kennel System is a good value for the money. It's an attractive and easy-to-assemble solution for pet owners looking for a temporary or long-term containment area for their furry friends. Just be mindful of the escape-proofing aspect when considering this kennel for your specific situation. 
 
 
-### [Grey Dog Kennel Side Table with Shelves and Double Doors](https://serp.ly/amazon/Dog+Kennel?utm\_term=grey-dog-kennel-side-table-with-shelves-and-double-doors)
+### [Grey Dog Kennel Side Table with Shelves and Double Doors](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=grey-dog-kennel-side-table-with-shelves-and-double-doors)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=grey-dog-kennel-side-table-with-shelves-and-double-doors"><img alt="grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=grey-dog-kennel-side-table-with-shelves-and-double-doors"><img alt="grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave this versatile wooden dog crate a try and was pleasantly surprised by its functionality. It served as not only a safe space for our furry friend, but also as an elegant addition to our living room. The 3-tier open shelf allowed us to easily store dog-related items like toys, treats, and grooming supplies, making it incredibly convenient and organized. 
 
 The movable pulleys at the bottom made it easy to move around the house, and once I found the perfect spot, I securely fastened them for stability. Overall, this grey dog crate side table with raised roof is a stylish and practical choice for any pet owner. 
 
 
-### [Feandrea Modern Dog Kennel: Multi-Functional Up to 70 lb Weight Capacity](https://serp.ly/amazon/Dog+Kennel?utm\_term=feandrea-modern-dog-kennel-multi-functional-up-to-70-lb-weight-capacity)
+### [Feandrea Modern Dog Kennel: Multi-Functional Up to 70 lb Weight Capacity](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=feandrea-modern-dog-kennel-multi-functional-up-to-70-lb-weight-capacity)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=feandrea-modern-dog-kennel-multi-functional-up-to-70-lb-weight-capacity"><img alt="feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=feandrea-modern-dog-kennel-multi-functional-up-to-70-lb-weight-capacity"><img alt="feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1/h=540,fit=pad,background=black"/></a></div>
 
 The Feandrea Dog Crate Furniture offers a modern, multi-purpose kennel for your furry friend. With a heavy-duty build and removable tray, this cozy retreat is perfect for dogs weighing up to 70 pounds. Crafted from quality materials, this kennel is designed to provide a comfortable and secure space for your dog, whether it's to rest or just hang out. 
 
@@ -67,9 +67,9 @@ The open box with minor cosmetic damage sells for an affordable price, making it
 The Feandrea Dog Crate makes an excellent choice for pet owners seeking a functional and aesthetically pleasing option for their indoor dogs. 
 
 
-### [Adjustable Heavy-Duty Galvanized Steel Dog Kennel with Latching Door](https://serp.ly/amazon/Dog+Kennel?utm\_term=adjustable-heavy-duty-galvanized-steel-dog-kennel-with-latching-door)
+### [Adjustable Heavy-Duty Galvanized Steel Dog Kennel with Latching Door](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=adjustable-heavy-duty-galvanized-steel-dog-kennel-with-latching-door)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=adjustable-heavy-duty-galvanized-steel-dog-kennel-with-latching-door"><img alt="lucky-dog-61528ez-adjustable-10-x-5-x-6-heavy-duty-outdoor-galvanized-steel-chain-link-dog-kennel-en-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-61528ez-adjustable-10-x-5-x-6-heavy-duty-outdoor-galvanized-steel-chain-link-dog-kennel-en-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=adjustable-heavy-duty-galvanized-steel-dog-kennel-with-latching-door"><img alt="lucky-dog-61528ez-adjustable-10-x-5-x-6-heavy-duty-outdoor-galvanized-steel-chain-link-dog-kennel-en-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-61528ez-adjustable-10-x-5-x-6-heavy-duty-outdoor-galvanized-steel-chain-link-dog-kennel-en-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Lucky Dog adjustable dog kennel, and my experience was quite diverse. The product felt quite sturdy and durable, making it perfect for keeping my pets safe and secure. The galvanized finish on the heavy-duty chain link gave it a rust-resistant quality that added to its durability and appeal. Moreover, the adjustable size of the kennel allowed me to customize it according to my pet's needs, ensuring they have the space they need to move around freely and comfortably. 
 
@@ -78,18 +78,18 @@ However, there were a couple of noteworthy downsides as well. Firstly, the instr
 Despite these small drawbacks, overall I'm happy with my purchase of the Lucky Dog adjustable dog kennel. Its sturdiness, rust-resistant finish, and the ability to customize its size to my pet's needs make it a valuable addition to my backyard. 
 
 
-### [Hittite Large Anti-Rust Outdoor Dog Kennel with Waterproof Cover](https://serp.ly/amazon/Dog+Kennel?utm\_term=hittite-large-anti-rust-outdoor-dog-kennel-with-waterproof-cover)
+### [Hittite Large Anti-Rust Outdoor Dog Kennel with Waterproof Cover](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=hittite-large-anti-rust-outdoor-dog-kennel-with-waterproof-cover)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=hittite-large-anti-rust-outdoor-dog-kennel-with-waterproof-cover"><img alt="hittite-large-outdoor-dog-kennel-heavy-duty-outdoor-fence-dog-cage-anti-rust-dog-pens-outdoor-dog-fe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hittite-large-outdoor-dog-kennel-heavy-duty-outdoor-fence-dog-cage-anti-rust-dog-pens-outdoor-dog-fe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=hittite-large-anti-rust-outdoor-dog-kennel-with-waterproof-cover"><img alt="hittite-large-outdoor-dog-kennel-heavy-duty-outdoor-fence-dog-cage-anti-rust-dog-pens-outdoor-dog-fe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hittite-large-outdoor-dog-kennel-heavy-duty-outdoor-fence-dog-cage-anti-rust-dog-pens-outdoor-dog-fe-1/h=540,fit=pad,background=black"/></a></div>
 
 Give your furry friend a spacious and comfortable home with the Hittite Large Outdoor Dog Kennel. This heavy-duty kennel is perfect for medium-sized pets, including dogs, cats, ducks, and chickens, and provides plenty of room for them to run and play. The UV-resistant cover ensures your pet stays dry in the rain or protected from the sun in the summer, while the pitched roof allows water and snow to easily run off, protecting your roof and ensuring long-lasting use. 
 
 With minimal maintenance required, this dog kennel is a great investment for any pet owner seeking a sturdy and practical outdoor enclosure. 
 
 
-### [Upgraded Outdoor Large Dog Kennel with Canopy](https://serp.ly/amazon/Dog+Kennel?utm\_term=upgraded-outdoor-large-dog-kennel-with-canopy)
+### [Upgraded Outdoor Large Dog Kennel with Canopy](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=upgraded-outdoor-large-dog-kennel-with-canopy)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=upgraded-outdoor-large-dog-kennel-with-canopy"><img alt="outdoor-large-dog-kennel-with-canopy-giodir-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoor-large-dog-kennel-with-canopy-giodir-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=upgraded-outdoor-large-dog-kennel-with-canopy"><img alt="outdoor-large-dog-kennel-with-canopy-giodir-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoor-large-dog-kennel-with-canopy-giodir-1/h=540,fit=pad,background=black"/></a></div>
 
 For years, I've been searching for a decent dog kennel to give my large dogs some personal space and freedom to run around. After a lot of research, I decided to give the Outdoor Large Dog Kennel with Canopy GIODIR a try. 
 
@@ -102,9 +102,9 @@ One big plus for this kennel is its spaciousness. It's perfect for accommodating
 If I were to suggest some improvements, the fencing needs to be stronger and more durable, and the locking system needs to function better. Overall, while the Outdoor Large Dog Kennel with Canopy GIODIR isn't the kennel I've been dreaming of, it might just be right for someone who's looking for something more temporary, as long as you're willing to keep an eye on it. 
 
 
-### [Bestpet 32-inch Durable Insulated Dog Kennel for Small to Large Pets](https://serp.ly/amazon/Dog+Kennel?utm\_term=bestpet-32-inch-durable-insulated-dog-kennel-for-small-to-large-pets)
+### [Bestpet 32-inch Durable Insulated Dog Kennel for Small to Large Pets](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=bestpet-32-inch-durable-insulated-dog-kennel-for-small-to-large-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=bestpet-32-inch-durable-insulated-dog-kennel-for-small-to-large-pets"><img alt="bestpet-32inch-large-dog-house-insulated-kennel-durable-plastic-dog-house-for-small-medium-large-dog-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-32inch-large-dog-house-insulated-kennel-durable-plastic-dog-house-for-small-medium-large-dog-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=bestpet-32-inch-durable-insulated-dog-kennel-for-small-to-large-pets"><img alt="bestpet-32inch-large-dog-house-insulated-kennel-durable-plastic-dog-house-for-small-medium-large-dog-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-32inch-large-dog-house-insulated-kennel-durable-plastic-dog-house-for-small-medium-large-dog-1/h=540,fit=pad,background=black"/></a></div>
 
 Having spent some time with this dog house, I can confidently say that it's a game-changer. Not only is it large enough to accommodate all types of dogs, but it also feels like a home for your furry friend. 
 
@@ -119,9 +119,9 @@ That being said, there's room for improvement. While the product boasts that it'
 All in all, this plastic dog house certainly has its benefits. It's versatile, user-friendly, and well-crafted. If you're in the market for a functional and practical dog house, this one is worth considering, despite the minor drawbacks. 
 
 
-### [Rugged Intermediate Ruff Land Gen 2 Dog Crate](https://serp.ly/amazon/Dog+Kennel?utm\_term=rugged-intermediate-ruff-land-gen-2-dog-crate)
+### [Rugged Intermediate Ruff Land Gen 2 Dog Crate](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=rugged-intermediate-ruff-land-gen-2-dog-crate)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=rugged-intermediate-ruff-land-gen-2-dog-crate"><img alt="ruff-land-gen-2-performance-dog-kennel-dog-crate-dog-cage-intermediate-tan-single-door-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruff-land-gen-2-performance-dog-kennel-dog-crate-dog-cage-intermediate-tan-single-door-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=rugged-intermediate-ruff-land-gen-2-dog-crate"><img alt="ruff-land-gen-2-performance-dog-kennel-dog-crate-dog-cage-intermediate-tan-single-door-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ruff-land-gen-2-performance-dog-kennel-dog-crate-dog-cage-intermediate-tan-single-door-1/h=540,fit=pad,background=black"/></a></div>
 
 Picture this: a top-tier performance dog kennel, designed just for your pup to thrive in. This not-so-basic kennel features intermediate size and a whitestone finish, perfect for pooches who need just the right amount of space and style. And the best part? It's built with top-quality materials. Prepare for some pet approval as this kennel boasts durability, ease of cleaning, and a stylish appearance. 
 
@@ -134,9 +134,9 @@ Another impressive feature is the no-bite grid pattern, designed to prevent dogs
 Remember Ruff Land for your next roundup review, for the durable and safe kennel that leaves no area unturned when it comes to keeping your pup cozy and secure. 
 
 
-### [PawHut Lockable Water-Resistant Dog Kennel for Small Pets](https://serp.ly/amazon/Dog+Kennel?utm\_term=pawhut-lockable-water-resistant-dog-kennel-for-small-pets)
+### [PawHut Lockable Water-Resistant Dog Kennel for Small Pets](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=pawhut-lockable-water-resistant-dog-kennel-for-small-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=pawhut-lockable-water-resistant-dog-kennel-for-small-pets"><img alt="pawhut-lockable-dog-house-kennel-with-water-resistant-roof-for-small-and-medium-small-sized-pets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-lockable-dog-house-kennel-with-water-resistant-roof-for-small-and-medium-small-sized-pets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=pawhut-lockable-water-resistant-dog-kennel-for-small-pets"><img alt="pawhut-lockable-dog-house-kennel-with-water-resistant-roof-for-small-and-medium-small-sized-pets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-lockable-dog-house-kennel-with-water-resistant-roof-for-small-and-medium-small-sized-pets-1/h=540,fit=pad,background=black"/></a></div>
 
 My beloved dog deserves a warm and secure shelter, which led me to discover the PawHut Lockable Canine Cabin. This kennel feels like a dream come true for me and my canine companion. The robust, woven wire construction, along with the protective cross-roof design, provides the assurance that my dog is safe and secure.
 
@@ -149,9 +149,9 @@ Although nothing is flawless, this kennel does have a few downsides. Assembling 
 In summary, the PawHut Lockable Canine Cabin is a dependable and fashionable choice for pet owners seeking a functional solution that puts a premium on safety and comfort for their furry wards. Despite a few hiccups, it is evident that the value this kennel provides is incomparable for you and your pet. Why not give it a shot and witness the joyous tail wags for yourself?
 
 
-### [Premium Plastic Dog Kennel - Small Size](https://serp.ly/amazon/Dog+Kennel?utm\_term=premium-plastic-dog-kennel-small-size)
+### [Premium Plastic Dog Kennel - Small Size](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=premium-plastic-dog-kennel-small-size)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=premium-plastic-dog-kennel-small-size"><img alt="kennels-direct-premium-plastic-dog-kennel-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kennels-direct-premium-plastic-dog-kennel-small-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=premium-plastic-dog-kennel-small-size"><img alt="kennels-direct-premium-plastic-dog-kennel-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kennels-direct-premium-plastic-dog-kennel-small-1/h=540,fit=pad,background=black"/></a></div>
 
 When the opportunity arose to use this Kennels Direct Premium Plastic Dog Kennel, I jumped at the chance. I'd heard their kennels were a breeze to assemble, and oh my, they weren't wrong! It took me about 10 minutes to snap this bad boy together, no screws needed. 
 
@@ -166,9 +166,9 @@ However, I must say, I was a bit disappointed with the size. The label indicated
 So, all in all, a kennel designed for durable use with removable wheels, definitely suitable for air travel. But, be cautious of the size - I don't think I'd call it a small kennel myself. 
 
 
-### [EliteField Folding Soft Dog Crate](https://serp.ly/amazon/Dog+Kennel?utm\_term=elitefield-folding-soft-dog-crate)
+### [EliteField Folding Soft Dog Crate](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=elitefield-folding-soft-dog-crate)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=elitefield-folding-soft-dog-crate"><img alt="elitefield-3-door-folding-soft-dog-crate-size-28-inch-h-x-24-inch-w-x-36-inch-large-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elitefield-3-door-folding-soft-dog-crate-size-28-inch-h-x-24-inch-w-x-36-inch-large-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=elitefield-folding-soft-dog-crate"><img alt="elitefield-3-door-folding-soft-dog-crate-size-28-inch-h-x-24-inch-w-x-36-inch-large-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elitefield-3-door-folding-soft-dog-crate-size-28-inch-h-x-24-inch-w-x-36-inch-large-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 This EliteField 3-Door Folding Soft Dog Crate, a 28-inch tall, 24-inch wide, and 36-inch large size Blue one, deserves the top spot for its outstanding features. At first glance, the crate might appear a bit too bulky to fold away, but with the included carrying bag, it's easy to store, transport, and even travel with it. 
 
@@ -181,18 +181,18 @@ The biggest drawback for some users is the zippers on the top opening, which can
 Overall, the EliteField 3-Door Folding Soft Dog Crate offers a durable, washable, and multifunctional solution for pet owners. With careful consideration of the size and zipper concerns, users can enjoy the benefits this crate has to offer while keeping their dogs safe and comfortable. 
 
 
-### [XL Wooden Dog Crate for 2 Dogs: Large Double Indoor Kennel with 3 Drawers and Dividers](https://serp.ly/amazon/Dog+Kennel?utm\_term=xl-wooden-dog-crate-for-2-dogs-large-double-indoor-kennel-with-3-drawers-and-dividers)
+### [XL Wooden Dog Crate for 2 Dogs: Large Double Indoor Kennel with 3 Drawers and Dividers](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=xl-wooden-dog-crate-for-2-dogs-large-double-indoor-kennel-with-3-drawers-and-dividers)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=xl-wooden-dog-crate-for-2-dogs-large-double-indoor-kennel-with-3-drawers-and-dividers"><img alt="xl-dog-crate-furniture-for-2-dogs-large-wooden-dog-kennel-with-3-drawers-indoor-wooden-double-dog-ca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xl-dog-crate-furniture-for-2-dogs-large-wooden-dog-kennel-with-3-drawers-indoor-wooden-double-dog-ca-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=xl-wooden-dog-crate-for-2-dogs-large-double-indoor-kennel-with-3-drawers-and-dividers"><img alt="xl-dog-crate-furniture-for-2-dogs-large-wooden-dog-kennel-with-3-drawers-indoor-wooden-double-dog-ca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xl-dog-crate-furniture-for-2-dogs-large-wooden-dog-kennel-with-3-drawers-indoor-wooden-double-dog-ca-1/h=540,fit=pad,background=black"/></a></div>
 
 As a pet owner, I recently discovered the convenience of our XL dog crate furniture. Made for medium-sized dogs or multi-dog households, this crate stands out with its ability to turn into two rooms with partitions or even create separate spaces for each dog using curtains. The versatility doesn't stop there; if you only have one large dog, simply remove the divider and let them have the entire space. 
 
 But the true standout feature of this crate is its appearance. Not only does it function great as a dog kennel, but it can also double as a stylish TV or display stand, adding a touch of class to any home. While there may be some cons to consider, overall, the XL dog crate furniture has proven to be a handy addition to my daily life. 
 
 
-### [TK Dog Kennels: Heavy Duty Backless Kennel Runs for Sale](https://serp.ly/amazon/Dog+Kennel?utm\_term=tk-dog-kennels-heavy-duty-backless-kennel-runs-for-sale)
+### [TK Dog Kennels: Heavy Duty Backless Kennel Runs for Sale](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=tk-dog-kennels-heavy-duty-backless-kennel-runs-for-sale)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=tk-dog-kennels-heavy-duty-backless-kennel-runs-for-sale"><img alt="tk-heavy-duty-backless-indoor-outdoor-multi-dog-kennel-runs-for-sale-4-run-kennel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tk-heavy-duty-backless-indoor-outdoor-multi-dog-kennel-runs-for-sale-4-run-kennel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=tk-dog-kennels-heavy-duty-backless-kennel-runs-for-sale"><img alt="tk-heavy-duty-backless-indoor-outdoor-multi-dog-kennel-runs-for-sale-4-run-kennel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tk-heavy-duty-backless-indoor-outdoor-multi-dog-kennel-runs-for-sale-4-run-kennel-1/h=540,fit=pad,background=black"/></a></div>
 
 This heavy-duty indoor-outdoor dog kennel run is a top-notch choice for dog enthusiasts who desire extra large dog run kennels. Featuring a 3-sided design, these kennels are perfect for both residential and commercial settings. 
 
@@ -201,18 +201,18 @@ Crafted with welded wire materials, these runs are built to last a lifetime, pro
 Get ready to impress your dogs with this top-quality kennel system! 
 
 
-### [Lyromix Large Outdoor Heavy Duty Dog Kennel Chain Link Pet Playpen with UV & Waterproof Roof](https://serp.ly/amazon/Dog+Kennel?utm\_term=lyromix-large-outdoor-heavy-duty-dog-kennel-chain-link-pet-playpen-with-uv-waterproof-roof)
+### [Lyromix Large Outdoor Heavy Duty Dog Kennel Chain Link Pet Playpen with UV & Waterproof Roof](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=lyromix-large-outdoor-heavy-duty-dog-kennel-chain-link-pet-playpen-with-uv-waterproof-roof)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=lyromix-large-outdoor-heavy-duty-dog-kennel-chain-link-pet-playpen-with-uv-waterproof-roof"><img alt="lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=lyromix-large-outdoor-heavy-duty-dog-kennel-chain-link-pet-playpen-with-uv-waterproof-roof"><img alt="lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Lyromix Large Dog Kennel, a versatile and spacious outdoor haven for your beloved large breed dog. This sturdy kennel boasts a number of upgrades, such as a thicker wire mesh and a more secure lock, ensuring both durability and safety. 
 
 The large dimensions, measuring 7.5\*7.5\*5.6ft, provide plenty of play and exercise space for your dog, while the waterproof and UV-protected cover ensures they can enjoy it in any weather condition. The easy assembly process and height customization options make this kennel a perfect choice for any outdoor area. 
 
 
-### [Wooden Dog Crate Furniture with 2-Drawers and Divider - Black](https://serp.ly/amazon/Dog+Kennel?utm\_term=wooden-dog-crate-furniture-with-2-drawers-and-divider-black)
+### [Wooden Dog Crate Furniture with 2-Drawers and Divider - Black](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=wooden-dog-crate-furniture-with-2-drawers-and-divider-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=wooden-dog-crate-furniture-with-2-drawers-and-divider-black"><img alt="wiawg-black-large-dog-crate-furniture-wood-dog-crate-kennel-with-2-drawers-and-divider-heavy-duty-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wiawg-black-large-dog-crate-furniture-wood-dog-crate-kennel-with-2-drawers-and-divider-heavy-duty-do-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=wooden-dog-crate-furniture-with-2-drawers-and-divider-black"><img alt="wiawg-black-large-dog-crate-furniture-wood-dog-crate-kennel-with-2-drawers-and-divider-heavy-duty-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wiawg-black-large-dog-crate-furniture-wood-dog-crate-kennel-with-2-drawers-and-divider-heavy-duty-do-1/h=540,fit=pad,background=black"/></a></div>
 
 As an avid dog lover, I recently came across the WIAWG Black Large Dog Crate Furniture, and I must say, it's a game-changer for large dog owners or families with multiple dogs. The crate is spacious and sturdy, which is perfect for our playful and energetic medium to large-sized fur babies. 
 
@@ -221,9 +221,9 @@ What I particularly love about this crate is its versatility. With the option to
 Not only does the crate serve its purpose well, but its sleek and sophisticated design also adds a touch of elegance to any room. As a responsible dog owner, I appreciate the durability and safety it provides, knowing that my dogs are comfortable and secure while I'm away. However, one downside I noticed is that the assembly process can be a bit time-consuming, but it's a small price to pay for such a functional and stylish dog crate. 
 
 
-### [Vibrant Life 42" Metal Wire Dog Kennel for Large Dogs up to 90 lbs](https://serp.ly/amazon/Dog+Kennel?utm\_term=vibrant-life-42-metal-wire-dog-kennel-for-large-dogs-up-to-90-lbs)
+### [Vibrant Life 42" Metal Wire Dog Kennel for Large Dogs up to 90 lbs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=vibrant-life-42-metal-wire-dog-kennel-for-large-dogs-up-to-90-lbs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=vibrant-life-42-metal-wire-dog-kennel-for-large-dogs-up-to-90-lbs"><img alt="vibrant-life-double-door-metal-wire-dog-crate-with-leak-proof-pan-and-divider42-inch-size-one-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vibrant-life-double-door-metal-wire-dog-crate-with-leak-proof-pan-and-divider42-inch-size-one-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=vibrant-life-42-metal-wire-dog-kennel-for-large-dogs-up-to-90-lbs"><img alt="vibrant-life-double-door-metal-wire-dog-crate-with-leak-proof-pan-and-divider42-inch-size-one-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vibrant-life-double-door-metal-wire-dog-crate-with-leak-proof-pan-and-divider42-inch-size-one-size-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the double door Vibrant Life Metal Wire Dog Crate for my 30 lb Goldendoodle, and I must say, it has exceeded my expectations. The bright colors make it visually appealing and the sleek design is easy to clean, as the floor is removable and can be hosed down. The 5-Point Locking System provides a secure fit, ensuring that my dog stays in his designated area. 
 
@@ -234,9 +234,9 @@ However, a downside that has become apparent over the past few months is that th
 Overall, the Vibrant Life Double Door Metal Wire Dog Crate is a well-built, easy-to-clean, and versatile option for pet parents. Just be sure to watch out for any instability on the lower level to prevent any accidental stumbles during your pup's time in the crate. 
 
 
-### [Heavy-Duty Dog Kennel for Large and Medium Dogs](https://serp.ly/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-for-large-and-medium-dogs)
+### [Heavy-Duty Dog Kennel for Large and Medium Dogs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-for-large-and-medium-dogs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-for-large-and-medium-dogs"><img alt="71-in-large-dog-crate-furniture-for-2-dogs-heavy-duty-wooden-dog-kennel-with-trays-and-divider-for-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/71-in-large-dog-crate-furniture-for-2-dogs-heavy-duty-wooden-dog-kennel-with-trays-and-divider-for-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-for-large-and-medium-dogs"><img alt="71-in-large-dog-crate-furniture-for-2-dogs-heavy-duty-wooden-dog-kennel-with-trays-and-divider-for-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/71-in-large-dog-crate-furniture-for-2-dogs-heavy-duty-wooden-dog-kennel-with-trays-and-divider-for-l-1/h=540,fit=pad,background=black"/></a></div>
 
 This substantial dog crate is designed to accommodate two large or medium-sized dogs, providing each pet with their own separate space. Crafted from high-quality and durable wooden materials, the crate is well-ventilated, with no gaps left for escape and ample room for your canine companions to freely move around. 
 
@@ -247,9 +247,9 @@ While some may argue that the weightiness of the crate may make it slightly diff
 Overall, this sturdy dog crate, with its thoughtful features and design, is a reliable and aesthetically pleasing option for pet owners with medium to large-sized dogs. Not only does it provide your pets with a secure and comfortable space, but it also blends harmoniously into your home, perfect in a family seeking a practical and stylish solution for their furry friends. 
 
 
-### [PawHut Furniture-Style Dog Crate for Medium Pets](https://serp.ly/amazon/Dog+Kennel?utm\_term=pawhut-furniture-style-dog-crate-for-medium-pets)
+### [PawHut Furniture-Style Dog Crate for Medium Pets](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=pawhut-furniture-style-dog-crate-for-medium-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=pawhut-furniture-style-dog-crate-for-medium-pets"><img alt="pawhut-furniture-style-dog-crate-with-openable-top-big-dog-crate-end-table-puppy-crate-for-medium-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-furniture-style-dog-crate-with-openable-top-big-dog-crate-end-table-puppy-crate-for-medium-do-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=pawhut-furniture-style-dog-crate-for-medium-pets"><img alt="pawhut-furniture-style-dog-crate-with-openable-top-big-dog-crate-end-table-puppy-crate-for-medium-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-furniture-style-dog-crate-with-openable-top-big-dog-crate-end-table-puppy-crate-for-medium-do-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the versatile PawHut furniture-style dog crate, designed for medium-sized canines. This sturdy creation is a true multitasker, acting as a comfy crate for your pets, a side table for everyday essentials, and even a handy storage cabinet. The steel frame and particle board base ensure unwavering stability, perfect for accommodating heavy loads or keeping bulky items secure. 
 
@@ -258,18 +258,18 @@ The easily accessible, lockable double doors provide a sense of security for you
 Standing at 12 cm in height, 98 cm in length, 60 cm in width, and weighing 19 kg, this durable dog kennel is a reliable addition to any household. Users have praised the PawHut customer service and the prompt replacement of any issues found with the product's packaging. This convenient, sturdy, and multipurpose kennel is a top choice for dog owners seeking a pet-friendly and practical solution for their busy homes. 
 
 
-### [JINTANGLI Large Pet-Friendly Metal Kennel for Heavy-Duty Dogs](https://serp.ly/amazon/Dog+Kennel?utm\_term=jintangli-large-pet-friendly-metal-kennel-for-heavy-duty-dogs)
+### [JINTANGLI Large Pet-Friendly Metal Kennel for Heavy-Duty Dogs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=jintangli-large-pet-friendly-metal-kennel-for-heavy-duty-dogs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=jintangli-large-pet-friendly-metal-kennel-for-heavy-duty-dogs"><img alt="jintangli-pet-heavy-duty-dog-crate-cage-kennel-roof-large-strong-metal-playpen-for-large-medium-dogs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jintangli-pet-heavy-duty-dog-crate-cage-kennel-roof-large-strong-metal-playpen-for-large-medium-dogs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=jintangli-large-pet-friendly-metal-kennel-for-heavy-duty-dogs"><img alt="jintangli-pet-heavy-duty-dog-crate-cage-kennel-roof-large-strong-metal-playpen-for-large-medium-dogs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jintangli-pet-heavy-duty-dog-crate-cage-kennel-roof-large-strong-metal-playpen-for-large-medium-dogs-1/h=540,fit=pad,background=black"/></a></div>
 
 The JINTANGLI Pet's Heavy Duty Dog Crate Cage Kennel is as reliable as a sturdy fortress, providing a secure and spacious shelter for large and medium-sized canine companions. With a 45-inch roof, your pets have ample room to move around. Four strong locks ensure their protection, giving you peace of mind. It comes with an exceptional multi-layer finish that is durable and resistant to rust and corrosion, even when exposed to outdoor elements. Additionally, the top of the crate can be conveniently opened, transforming the space into a fun playpen for your furry friends.
 
 This particular crate stands out due to its removable metal pan and floor. This design simplifies the cleaning process, making it easier for you to maintain your pet's living space in a hygienic condition. Constructed from robust steel with a protective coating, both trays are resistant to staining, corrosion, and odor retention. Another practical feature is the crate's four caster wheels that can be locked, ensuring stability and security. Despite its heavy-duty appearance, it's surprisingly user-friendly, making it a standout among dog crates.
 
 
-### [Homey Pet Inc Gold Dog Kennel with Included Floor Grid](https://serp.ly/amazon/Dog+Kennel?utm\_term=homey-pet-inc-gold-dog-kennel-with-included-floor-grid)
+### [Homey Pet Inc Gold Dog Kennel with Included Floor Grid](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=homey-pet-inc-gold-dog-kennel-with-included-floor-grid)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=homey-pet-inc-gold-dog-kennel-with-included-floor-grid"><img alt="homey-pet-inc-gold-color-dog-crate-with-or-without-floor-grid-30-w-grid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/homey-pet-inc-gold-color-dog-crate-with-or-without-floor-grid-30-w-grid-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=homey-pet-inc-gold-dog-kennel-with-included-floor-grid"><img alt="homey-pet-inc-gold-color-dog-crate-with-or-without-floor-grid-30-w-grid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/homey-pet-inc-gold-color-dog-crate-with-or-without-floor-grid-30-w-grid-1/h=540,fit=pad,background=black"/></a></div>
 
 As a pet owner, I recognize the significance of creating a secure and cozy zone for my beloved furry companion. Therefore, I was extremely excited to put the Homey Pet Inc Gold-colored Dog Crate to the test.
 
@@ -286,9 +286,9 @@ However, prior to purchasing this crate, it's advisable to verify the size speci
 In conclusion, I would wholeheartedly endorse the Homey Pet Inc Gold-colored Dog Crate for anyone looking for a strong, comfy, and hassle-free crate for their pet.
 
 
-### [MAHANCRIS Decorative Wooden Dog Kennel](https://serp.ly/amazon/Dog+Kennel?utm\_term=mahancris-decorative-wooden-dog-kennel)
+### [MAHANCRIS Decorative Wooden Dog Kennel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=mahancris-decorative-wooden-dog-kennel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=mahancris-decorative-wooden-dog-kennel"><img alt="mahancris-dog-crate-furniture-wooden-dog-kennel-for-small-medium-dogs-heavy-duty-dog-cage-with-locka-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mahancris-dog-crate-furniture-wooden-dog-kennel-for-small-medium-dogs-heavy-duty-dog-cage-with-locka-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=mahancris-decorative-wooden-dog-kennel"><img alt="mahancris-dog-crate-furniture-wooden-dog-kennel-for-small-medium-dogs-heavy-duty-dog-cage-with-locka-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mahancris-dog-crate-furniture-wooden-dog-kennel-for-small-medium-dogs-heavy-duty-dog-cage-with-locka-1/h=540,fit=pad,background=black"/></a></div>
 
 For the past month, I've been using the MAHANCRIS dog crate furniture in my living room. At first, I was skeptical about the mix of functionality and decor, but it has become a game-changer for both my home and dog's comfort. 
 
@@ -299,54 +299,54 @@ Another bonus is the side door—I can easily switch its placement to suit my ro
 What stood out for me was the cozy and private space provided for my dog. With the crate's modern design, I feel confident my pup is safe and comfortable when using this wooden dog kennel as a nest. I highly recommend this dog kennel for small to medium-sized dogs, ensuring both you and your pup will be satisfied with its functionality and style. 
 
 
-### [PawHut Dog Kennel End Table: Stylish Crate with Extra Storage for Medium Sized Pets](https://serp.ly/amazon/Dog+Kennel?utm\_term=pawhut-dog-kennel-end-table-stylish-crate-with-extra-storage-for-medium-sized-pets)
+### [PawHut Dog Kennel End Table: Stylish Crate with Extra Storage for Medium Sized Pets](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=pawhut-dog-kennel-end-table-stylish-crate-with-extra-storage-for-medium-sized-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=pawhut-dog-kennel-end-table-stylish-crate-with-extra-storage-for-medium-sized-pets"><img alt="pawhut-furniture-style-dog-crate-end-table-with-extra-storage-space-large-tabletop-and-lockable-door-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-furniture-style-dog-crate-end-table-with-extra-storage-space-large-tabletop-and-lockable-door-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=pawhut-dog-kennel-end-table-stylish-crate-with-extra-storage-for-medium-sized-pets"><img alt="pawhut-furniture-style-dog-crate-end-table-with-extra-storage-space-large-tabletop-and-lockable-door-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-furniture-style-dog-crate-end-table-with-extra-storage-space-large-tabletop-and-lockable-door-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across this PawHut Furniture Style Dog Crate End Table, and I must say, it exceeded my expectations. Not only does it look great as a piece of furniture, but it also provides ample storage space for my dog and all the accessories he needs. The adjustable shelf ensures my pup has enough room to play and the lockable door keeps everything secure when I'm not around. 
 
 The tabletop is perfect for placing treats or toys, and its large size accommodates more items. While it may be a bit heavy to move around, the quality and practicality make up for it. Overall, this dog kennel is a stylish and functional addition to any home with a medium-sized dog. 
 
 
-### [Portable Vibrant Life Extra Small Pet Kennel for Pets Up to 10 lbs](https://serp.ly/amazon/Dog+Kennel?utm\_term=portable-vibrant-life-extra-small-pet-kennel-for-pets-up-to-10-lbs)
+### [Portable Vibrant Life Extra Small Pet Kennel for Pets Up to 10 lbs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=portable-vibrant-life-extra-small-pet-kennel-for-pets-up-to-10-lbs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=portable-vibrant-life-extra-small-pet-kennel-for-pets-up-to-10-lbs"><img alt="vibrant-life-pet-kennel-for-dogs-hard-sided-pet-carrier-xs-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vibrant-life-pet-kennel-for-dogs-hard-sided-pet-carrier-xs-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=portable-vibrant-life-extra-small-pet-kennel-for-pets-up-to-10-lbs"><img alt="vibrant-life-pet-kennel-for-dogs-hard-sided-pet-carrier-xs-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vibrant-life-pet-kennel-for-dogs-hard-sided-pet-carrier-xs-each-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the comfort and security of your pet's personal den with the Vibrant Life Extra Small Pet Kennel. Ideal for pups and felines up to 10 pounds, 7 inches tall, and 15 inches long, this portable carrier boasts heavy-duty plastic and steel wire construction for robustness. Its easy-to-operate wire door, equipped with squeeze latches, ensures your furry friend stays safely inside while enjoying ventilation with 360-degree visibility. 
 
 Setting it up is a breeze thanks to included instructions, overlapping beltways, and door-pull barriers that can be secured with bolt and wingnut fasteners for added strength. The kennel's compact size meets most airline cargo specifications, making it perfect for safe travel. With a wide array of sizes, find the perfect fit for your pet companion. 
 
 
-### [XL Dog Crate End Table with Drawers](https://serp.ly/amazon/Dog+Kennel?utm\_term=xl-dog-crate-end-table-with-drawers)
+### [XL Dog Crate End Table with Drawers](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=xl-dog-crate-end-table-with-drawers)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=xl-dog-crate-end-table-with-drawers"><img alt="xl-dog-crate-furniture-41-heavy-duty-dog-kennel-with-2-drawers-end-table-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xl-dog-crate-furniture-41-heavy-duty-dog-kennel-with-2-drawers-end-table-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=xl-dog-crate-end-table-with-drawers"><img alt="xl-dog-crate-furniture-41-heavy-duty-dog-kennel-with-2-drawers-end-table-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xl-dog-crate-furniture-41-heavy-duty-dog-kennel-with-2-drawers-end-table-1/h=540,fit=pad,background=black"/></a></div>
 
 The XL Dog Crate Furniture from YITAHOME not only provides a stylish and functional upgrade for your pet but also offers a multi-purpose solution for your living space. With its 41" Heavy Duty Dog Kennel, you can use it as a side table or coffee table, conveniently storing dog food in the 2 drawers. This piece of furniture also features metal guardrails, four hooks for hanging lightweight items, and wire mesh for durability and comfort. 
 
 While it may be a slightly heavier option for small spaces, its strong build can support up to 110lb, making it a solid investment for your pet and your home's aesthetic. 
 
 
-### [Gunner G1 Small Size Dog Kennel: Tan, Durable, and Safe](https://serp.ly/amazon/Dog+Kennel?utm\_term=gunner-g1-small-size-dog-kennel-tan-durable-and-safe)
+### [Gunner G1 Small Size Dog Kennel: Tan, Durable, and Safe](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=gunner-g1-small-size-dog-kennel-tan-durable-and-safe)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=gunner-g1-small-size-dog-kennel-tan-durable-and-safe"><img alt="gunner-g1-small-size-dog-kennel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gunner-g1-small-size-dog-kennel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=gunner-g1-small-size-dog-kennel-tan-durable-and-safe"><img alt="gunner-g1-small-size-dog-kennel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gunner-g1-small-size-dog-kennel-1/h=540,fit=pad,background=black"/></a></div>
 
 Running with the big dogs: Gunner Kennels G1TM Small is here, and it offers peace of mind for pet owners. Engineered with the same high-quality materials and precision as their larger G1TM series, the Small model is designed for dedicated pet owners who prioritize their dog's safety. 
 
 This compact kennel is a dream for owners of small to medium-sized dogs, boasting a durable and stylish design. With a 4-star crash test rating from the Center for Pet Safety, it is the ideal travel companion for your furry friend. 
 
 
-### [Comfortable Dog Kennel for Secure and Easy Travel](https://serp.ly/amazon/Dog+Kennel?utm\_term=comfortable-dog-kennel-for-secure-and-easy-travel)
+### [Comfortable Dog Kennel for Secure and Easy Travel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=comfortable-dog-kennel-for-secure-and-easy-travel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=comfortable-dog-kennel-for-secure-and-easy-travel"><img alt="everyyay-going-places-pet-kennel-40-l-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/everyyay-going-places-pet-kennel-40-l-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=comfortable-dog-kennel-for-secure-and-easy-travel"><img alt="everyyay-going-places-pet-kennel-40-l-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/everyyay-going-places-pet-kennel-40-l-large-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover the convenience and safety of the EveryYay Going Places Pet Kennel, designed for your dog's comfort during travels. Its sturdy construction and easy setup offer a secure environment for your furry friend, complete with a ventilated design for optimal airflow. 
 
 The easy-grip handle and seatbelt slot add a touch of convenience, perfect for on-the-go travels. However, some users have reported issues with the product's durability and reliability, so be cautious and ensure it meets your needs before making a purchase. 
 
 
-### [Bestpet Large Size Dog Crates for Large Dogs](https://serp.ly/amazon/Dog+Kennel?utm\_term=bestpet-large-size-dog-crates-for-large-dogs)
+### [Bestpet Large Size Dog Crates for Large Dogs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=bestpet-large-size-dog-crates-for-large-dogs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=bestpet-large-size-dog-crates-for-large-dogs"><img alt="bestpet-2430364248-inch-dog-crates-for-large-dogs-folding-mental-wire-crates-dog-kennels-outdoor-and-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-2430364248-inch-dog-crates-for-large-dogs-folding-mental-wire-crates-dog-kennels-outdoor-and-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=bestpet-large-size-dog-crates-for-large-dogs"><img alt="bestpet-2430364248-inch-dog-crates-for-large-dogs-folding-mental-wire-crates-dog-kennels-outdoor-and-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-2430364248-inch-dog-crates-for-large-dogs-folding-mental-wire-crates-dog-kennels-outdoor-and-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest for the perfect dog crate for my large and energetic Golden Retriever, I stumbled upon the Bestpet dog foldable crate. With rounded corners for extra safety and enough space for my pup to comfortably move around, it seemed to be a promising choice. 
 
@@ -359,9 +359,9 @@ However, there were a couple of minor drawbacks I encountered. The crate arrived
 Despite the minor issues, the Bestpet dog crate has proven to be a great investment for my furry friend. It provides a secure environment and is easy to maintain, making it a worthy addition to any large dog owner's household. 
 
 
-### [Elegant Portable Dog Kennel with Removable Tray](https://serp.ly/amazon/Dog+Kennel?utm\_term=elegant-portable-dog-kennel-with-removable-tray)
+### [Elegant Portable Dog Kennel with Removable Tray](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=elegant-portable-dog-kennel-with-removable-tray)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=elegant-portable-dog-kennel-with-removable-tray"><img alt="mcombo-dog-crate-furniture-with-removable-tray-solid-wood-1256-1279-1295-white-and-grey-39-6-inch-x--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mcombo-dog-crate-furniture-with-removable-tray-solid-wood-1256-1279-1295-white-and-grey-39-6-inch-x--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=elegant-portable-dog-kennel-with-removable-tray"><img alt="mcombo-dog-crate-furniture-with-removable-tray-solid-wood-1256-1279-1295-white-and-grey-39-6-inch-x--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mcombo-dog-crate-furniture-with-removable-tray-solid-wood-1256-1279-1295-white-and-grey-39-6-inch-x--1/h=540,fit=pad,background=black"/></a></div>
 
 This dog crate is an elegant piece that serves both as a functional kennel and a stylish furniture piece. Its portable design makes it a breeze to move around, making it suitable for various settings. The crate requires no assembly, and with its all-locks updated, you can be assured it's safe and secure for your furry friend. With increased security features, your pet won't be able to slip through the bars or escape the crate. 
 
@@ -370,9 +370,9 @@ As a multi-functional piece, the crate also doubles as an end table, side table,
 While this dog crate is a popular choice among pet owners, some users have expressed concerns about the material's quality, emphasizing that it may not be suitable for larger or more aggressive dogs. Additionally, some users found the crate to have an unpleasant odor when first received. Overall, if you're seeking a functional and stylish crate that can also serve as a piece of furniture, this dog kennel might be the perfect choice for you, provided you consider its limitations for larger dogs and potential for an unpleasant smell. 
 
 
-### [Large Dog Crate with Adjustable Feeder and Waterproof Pad](https://serp.ly/amazon/Dog+Kennel?utm\_term=large-dog-crate-with-adjustable-feeder-and-waterproof-pad)
+### [Large Dog Crate with Adjustable Feeder and Waterproof Pad](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=large-dog-crate-with-adjustable-feeder-and-waterproof-pad)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=large-dog-crate-with-adjustable-feeder-and-waterproof-pad"><img alt="roomtec-furniture-style-large-dog-crate-with-360-adjustable-raised-feeder-for-dogs-with-2-stainless--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roomtec-furniture-style-large-dog-crate-with-360-adjustable-raised-feeder-for-dogs-with-2-stainless--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=large-dog-crate-with-adjustable-feeder-and-waterproof-pad"><img alt="roomtec-furniture-style-large-dog-crate-with-360-adjustable-raised-feeder-for-dogs-with-2-stainless--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roomtec-furniture-style-large-dog-crate-with-360-adjustable-raised-feeder-for-dogs-with-2-stainless--1/h=540,fit=pad,background=black"/></a></div>
 
 This spacious dog crate boasts impressive dimensions, making it an ideal choice for large dogs. Crafted with high-quality materials, it features a robust steel tube structure that provides durability and strength - a standout feature among other dog crates on the market. Not only does it serve as a secure home for dogs, but it also doubles as an elegant side table, offering extra storage space for pet supplies and keeping your living space organized. 
 
@@ -381,9 +381,9 @@ With 360 degrees of swivel and adjustability, the feeder ensures your dog's dige
 Designed for indoor use, this crate is suitable for medium-sized dogs and is a great deal, shipping quickly and arriving in excellent condition. Users have praised its quality and affordability, making it an impressive addition to any home with a furry friend. 
 
 
-### [Lyromix Heavy-Duty Outdoor Dog Cage with UV & Waterproof Roof](https://serp.ly/amazon/Dog+Kennel?utm\_term=lyromix-heavy-duty-outdoor-dog-cage-with-uv-waterproof-roof)
+### [Lyromix Heavy-Duty Outdoor Dog Cage with UV & Waterproof Roof](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=lyromix-heavy-duty-outdoor-dog-cage-with-uv-waterproof-roof)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=lyromix-heavy-duty-outdoor-dog-cage-with-uv-waterproof-roof"><img alt="lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=lyromix-heavy-duty-outdoor-dog-cage-with-uv-waterproof-roof"><img alt="lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lyromix-large-dog-kennel-outdoor-heavy-duty-outdoor-dog-kennel-chain-link-dog-cage-dog-playpen-dogs--1/h=540,fit=pad,background=black"/></a></div>
 
 The Lyromix Large Dog Kennel isn't just a typical kennel for your dogs; it's a well-built, durable, and functional oasis for your large breeds. With dimensions of 10ft x 10ft x 7ft, it provides a spacious area for your dogs to play, run, and exercise in a comfortable environment, ensuring their freedom and happiness. The kennel is made up of full galvanized tubes, adding to its strength and durability, with a thickness of 1mm that is not easily bent, offering effective protection for your dogs. 
 
@@ -392,9 +392,9 @@ The edges of the mesh are wrapped together in a sturdy structure, preventing loo
 Assembling the kennel is a breeze with thorough instructions provided. It's truly a high-quality option for anyone looking for an outdoor playpen or kennel for their large dogs, offering a comfortable and safe space for their beloved pets. 
 
 
-### [Heavy-Duty Dog Crate with Storage and Anti-Chew Design](https://serp.ly/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-crate-with-storage-and-anti-chew-design)
+### [Heavy-Duty Dog Crate with Storage and Anti-Chew Design](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-crate-with-storage-and-anti-chew-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=heavy-duty-dog-crate-with-storage-and-anti-chew-design"><img alt="gdlf-dog-crate-furniture-style-indoor-heavy-duty-kennel-with-storage-and-anti-chew-41inch-int-dims-4" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gdlf-dog-crate-furniture-style-indoor-heavy-duty-kennel-with-storage-and-anti-chew-41inch-int-dims-4/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=heavy-duty-dog-crate-with-storage-and-anti-chew-design"><img alt="gdlf-dog-crate-furniture-style-indoor-heavy-duty-kennel-with-storage-and-anti-chew-41inch-int-dims-4" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gdlf-dog-crate-furniture-style-indoor-heavy-duty-kennel-with-storage-and-anti-chew-41inch-int-dims-4/h=540,fit=pad,background=black"/></a></div>
 
 This sturdy, heavy-duty dog crate is a fantastic addition to any home. The cage body is made of stronger steel tubing, making it more durable and resistant to chewing. The crate also includes additional storage space, perfect for storing your dog's items or other household clutter. The large countertop and high-strength construction make it suitable for use as a TV stand. 
 
@@ -405,9 +405,9 @@ The crate is suitable for large dogs, with an interior measurement of 39.4"W x 2
 Note that this is not a toy for children, and it should not be used for play purposes. Always measure your pet's size before purchasing a crate to ensure the correct fit. Overall, this is a well-designed and sturdy crate that will provide both your dog and you with peace of mind. 
 
 
-### [Heavy Duty Dog Kennel with Removable Tray and Double Door Lock](https://serp.ly/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-with-removable-tray-and-double-door-lock)
+### [Heavy Duty Dog Kennel with Removable Tray and Double Door Lock](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-with-removable-tray-and-double-door-lock)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-with-removable-tray-and-double-door-lock"><img alt="hiwokk-48-inch-heavy-duty-indestructible-dog-crate-steel-escape-proof-indoor-double-door-high-anxiet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hiwokk-48-inch-heavy-duty-indestructible-dog-crate-steel-escape-proof-indoor-double-door-high-anxiet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-with-removable-tray-and-double-door-lock"><img alt="hiwokk-48-inch-heavy-duty-indestructible-dog-crate-steel-escape-proof-indoor-double-door-high-anxiet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hiwokk-48-inch-heavy-duty-indestructible-dog-crate-steel-escape-proof-indoor-double-door-high-anxiet-1/h=540,fit=pad,background=black"/></a></div>
 
 As a dog owner, I was on the lookout for a sturdy and reliable dog crate for my large breed. The Hiwokk Heavy Duty Indestructible Dog Crate quickly piqued my interest with its strong joint welds and indestructible steel tubes. 
 
@@ -422,9 +422,9 @@ In terms of drawbacks, the crate's size might be a bit of a tight fit for extra-
 Overall, the Hiwokk Heavy Duty Indestructible Dog Crate is a solid choice for pet owners looking for a secure and easy-to-use solution for their dogs. It's perfect for indoor use and provides great value for the price. 
 
 
-### [Lucky Dog Stay Series Steel Grey Villa Kennel](https://serp.ly/amazon/Dog+Kennel?utm\_term=lucky-dog-stay-series-steel-grey-villa-kennel)
+### [Lucky Dog Stay Series Steel Grey Villa Kennel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=lucky-dog-stay-series-steel-grey-villa-kennel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=lucky-dog-stay-series-steel-grey-villa-kennel"><img alt="lucky-dog-stay-series-steel-grey-villa-kennel-4-ft-x-8-ft-x-6-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-stay-series-steel-grey-villa-kennel-4-ft-x-8-ft-x-6-ft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=lucky-dog-stay-series-steel-grey-villa-kennel"><img alt="lucky-dog-stay-series-steel-grey-villa-kennel-4-ft-x-8-ft-x-6-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-stay-series-steel-grey-villa-kennel-4-ft-x-8-ft-x-6-ft-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate in pet comfort and protection with the Lucky Dog STAY Series Kennel. Designed with a sleek style and durable frame, it's an excellent addition to any outdoor space. 
 
@@ -435,18 +435,18 @@ Easy to assemble with no tools required, this kennel is perfect for pets of all 
 Say goodbye to safety concerns and hello to a comfy, stylish kennel for your dog. 
 
 
-### [Diggs Revol Spacious Dog Crate](https://serp.ly/amazon/Dog+Kennel?utm\_term=diggs-revol-spacious-dog-crate)
+### [Diggs Revol Spacious Dog Crate](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=diggs-revol-spacious-dog-crate)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=diggs-revol-spacious-dog-crate"><img alt="diggs-revol-28-l-x-20-w-x-21-h-dog-crate-petsmart-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diggs-revol-28-l-x-20-w-x-21-h-dog-crate-petsmart-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=diggs-revol-spacious-dog-crate"><img alt="diggs-revol-28-l-x-20-w-x-21-h-dog-crate-petsmart-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diggs-revol-28-l-x-20-w-x-21-h-dog-crate-petsmart-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Diggs Revol 28" Dog Crate for my pup, and it has made a world of difference in his comfort and training. The garage-style side door provides an open, welcoming feel for my dog, and the ceiling hatch allows for easy cleaning and access. The crate's collapsible design also makes it a breeze to transport and store when needed. 
 
 However, I do want to mention that one of the downsides is that this crate does not meet airline travel requirements. Additionally, it's essential to exercise caution while your dog is using the crate due to potential chewing or biting hazards. Make sure to supervise your pet and any children around the crate to ensure their safety. Overall, I'm happy with my purchase and see the benefits of the Revol Dog Crate for my furry friend. 
 
 
-### [Habitat 'n Home Espresso Small Pet Crate](https://serp.ly/amazon/Dog+Kennel?utm\_term=habitat-n-home-espresso-small-pet-crate)
+### [Habitat 'n Home Espresso Small Pet Crate](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=habitat-n-home-espresso-small-pet-crate)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=habitat-n-home-espresso-small-pet-crate"><img alt="habitat-n-home-innplace-ii-pet-crate-espresso-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/habitat-n-home-innplace-ii-pet-crate-espresso-small-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=habitat-n-home-espresso-small-pet-crate"><img alt="habitat-n-home-innplace-ii-pet-crate-espresso-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/habitat-n-home-innplace-ii-pet-crate-espresso-small-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Habitat 'n Home InnPlace II Pet Crate - a versatile and eco-friendly solution for your furry friends. This pet crate doubles as an attractive end table, adding a touch of sophistication to any room in your home. Made from ecoFLEX, a proprietary material that combines reclaimed wood and plastic, this dog crate boasts a stylish espresso finish that effortlessly blends in with your decor. 
 
@@ -455,9 +455,9 @@ Setting up the InnPlace II Pet Crate is a breeze, thanks to its no-tool assembly
 The InnPlace II Pet Crate comes with a one-year manufacturer warranty, giving you peace of mind and confidence in your purchase. The front door latches securely, making it difficult for your pet to accidentally escape. If you're looking for a stylish and sturdy home for your furry friend, the Habitat 'n Home InnPlace II Pet Crate is worth considering. 
 
 
-### [Lucky Dog Uptown 60548 72"H x 24"W x 39.4"D Outdoor Pet Kennel](https://serp.ly/amazon/Dog+Kennel?utm\_term=lucky-dog-uptown-60548-72h-x-24w-x-39-4d-outdoor-pet-kennel)
+### [Lucky Dog Uptown 60548 72"H x 24"W x 39.4"D Outdoor Pet Kennel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=lucky-dog-uptown-60548-72h-x-24w-x-39-4d-outdoor-pet-kennel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=lucky-dog-uptown-60548-72h-x-24w-x-39-4d-outdoor-pet-kennel"><img alt="lucky-dog-52h-x-48w-x-48l-pet-resort-kennel-with-cover-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-52h-x-48w-x-48l-pet-resort-kennel-with-cover-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=lucky-dog-uptown-60548-72h-x-24w-x-39-4d-outdoor-pet-kennel"><img alt="lucky-dog-52h-x-48w-x-48l-pet-resort-kennel-with-cover-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-52h-x-48w-x-48l-pet-resort-kennel-with-cover-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lucky Dog Uptown Kennel boasts a welded wire design, providing sturdy construction for your furry companions. As your pet's safety is taken seriously in this product, the manufacturer has included attractive features such as a waterproof cover and security latches. The easy assembly and lightweight design make it effortless to transport, ensuring pet parents can take their pets for outdoor adventures under a covered environment. 
 
@@ -466,27 +466,27 @@ Despite its robust characteristics, this kennel should be reserved for smaller p
 Overall, the Lucky Dog Kennel is an attractive and secure choice for pet owners in need of a portable, safe haven for their little ones. 
 
 
-### [Heavy Duty Dog Kennel with Water-Resistant Cover](https://serp.ly/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-with-water-resistant-cover)
+### [Heavy Duty Dog Kennel with Water-Resistant Cover](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=heavy-duty-dog-kennel-with-water-resistant-cover)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-with-water-resistant-cover"><img alt="bestpet-welded-wire-dog-kennel-heavy-duty-playpen-included-a-roof-water-resistant-cover-4x4x4-4" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-welded-wire-dog-kennel-heavy-duty-playpen-included-a-roof-water-resistant-cover-4x4x4-4/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=heavy-duty-dog-kennel-with-water-resistant-cover"><img alt="bestpet-welded-wire-dog-kennel-heavy-duty-playpen-included-a-roof-water-resistant-cover-4x4x4-4" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-welded-wire-dog-kennel-heavy-duty-playpen-included-a-roof-water-resistant-cover-4x4x4-4/h=540,fit=pad,background=black"/></a></div>
 
 This Bestpet Welded Wire Dog Kennel is a heavy-duty playpen designed for indoor and outdoor use, ensuring a safe and comfortable environment for your furry companion. The steel frame and water-resistant cover provide protection from all kinds of weather. With dimensions of 4.4' H x 4' L x 4' W, this kennel accommodates most breeds, offering both security and ample space. 
 
 The product also includes a roof to keep your pet dry and cool during sunny days or warm during chilly nights. The Bestpet Welded Wire Dog Kennel is a perfect solution for pet owners looking for a reliable and versatile kennel to keep their pets happy and safe. 
 
 
-### [VEIKOUS Outdoor Dog Kennel with Rotating Feeder and Stainless Steel Bowls](https://serp.ly/amazon/Dog+Kennel?utm\_term=veikous-outdoor-dog-kennel-with-rotating-feeder-and-stainless-steel-bowls)
+### [VEIKOUS Outdoor Dog Kennel with Rotating Feeder and Stainless Steel Bowls](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=veikous-outdoor-dog-kennel-with-rotating-feeder-and-stainless-steel-bowls)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=veikous-outdoor-dog-kennel-with-rotating-feeder-and-stainless-steel-bowls"><img alt="veikous-4-5-ft-x-4-5-ft-dog-kennel-outdoor-with-rotating-feeding-door-stainless-bowls-and-upgraded-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/veikous-4-5-ft-x-4-5-ft-dog-kennel-outdoor-with-rotating-feeding-door-stainless-bowls-and-upgraded-p-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=veikous-outdoor-dog-kennel-with-rotating-feeder-and-stainless-steel-bowls"><img alt="veikous-4-5-ft-x-4-5-ft-dog-kennel-outdoor-with-rotating-feeding-door-stainless-bowls-and-upgraded-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/veikous-4-5-ft-x-4-5-ft-dog-kennel-outdoor-with-rotating-feeding-door-stainless-bowls-and-upgraded-p-1/h=540,fit=pad,background=black"/></a></div>
 
 The VEIKOUS outdoor dog kennel offers a spacious and comfortable living area for your furry friend. With a waterproof polyester roof and easy assembly, you can rest assured knowing your pet is protected from harsh weather conditions. The expandable design ensures the perfect fit for dogs of varying sizes, while the rotating feeding door adds convenience during meals. 
 
 The sturdy non-toxic steel construction provides durability against chewers, making this the perfect outdoor haven for your pet. Although some customers have mentioned issues with the directions and door latch, overall, the VEIKOUS dog kennel is a reliable and convenient option for pet owners. 
 
 
-### [Easy-to-Assemble Large Pet Dog Kennel for Comfort and Weather Resistance](https://serp.ly/amazon/Dog+Kennel?utm\_term=easy-to-assemble-large-pet-dog-kennel-for-comfort-and-weather-resistance)
+### [Easy-to-Assemble Large Pet Dog Kennel for Comfort and Weather Resistance](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=easy-to-assemble-large-pet-dog-kennel-for-comfort-and-weather-resistance)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=easy-to-assemble-large-pet-dog-kennel-for-comfort-and-weather-resistance"><img alt="bestpet-dog-house-for-small-medium-and-large-dogs-plastic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-dog-house-for-small-medium-and-large-dogs-plastic-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=easy-to-assemble-large-pet-dog-kennel-for-comfort-and-weather-resistance"><img alt="bestpet-dog-house-for-small-medium-and-large-dogs-plastic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-dog-house-for-small-medium-and-large-dogs-plastic-1/h=540,fit=pad,background=black"/></a></div>
 
 Using this dog house in my backyard, I noticed its generous dimensions of 36 inches long, 27 inches wide, and 26 inches high accommodate dogs up to 100 pounds comfortably. What stood out to me is the double air vents, which keep the house nicely ventilated, allowing fresh air circulation and preventing overheating during hot summer days. 
 
@@ -495,9 +495,9 @@ On a colder day, the dog house offers warmth with its heat-insulating materials,
 One issue I faced was the floor being made of a hard plastic, which may not be comfortable for my dog. I ended up finding a suitable mat to add, but ideally, the dog house should include an option for a comfortable floor. Despite this minor issue, I find the product to be a great value and a reliable shelter for my dog. 
 
 
-### [Midwest iCrate Single Door Dog Crate: Durable, Easy to Set Up, and Adjustable for Growing Pets](https://serp.ly/amazon/Dog+Kennel?utm\_term=midwest-icrate-single-door-dog-crate-durable-easy-to-set-up-and-adjustable-for-growing-pets)
+### [Midwest iCrate Single Door Dog Crate: Durable, Easy to Set Up, and Adjustable for Growing Pets](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=midwest-icrate-single-door-dog-crate-durable-easy-to-set-up-and-adjustable-for-growing-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=midwest-icrate-single-door-dog-crate-durable-easy-to-set-up-and-adjustable-for-growing-pets"><img alt="midwest-dog-single-door-i-crate-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/midwest-dog-single-door-i-crate-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=midwest-icrate-single-door-dog-crate-durable-easy-to-set-up-and-adjustable-for-growing-pets"><img alt="midwest-dog-single-door-i-crate-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/midwest-dog-single-door-i-crate-black-1/h=540,fit=pad,background=black"/></a></div>
 
 This convenient iCrate Single Door Folding Dog Crate is designed to provide safety, security, and comfort for your furry friend. Its quick and easy set up is perfect for pet owners on the go, while its multiple size options ensure the perfect fit for your pet. 
 
@@ -506,18 +506,18 @@ The durable construction and sturdy slide bolt latches make it an ideal choice f
 Overall, it makes a great choice for pet owners who prioritize their pet's safety, comfort, and well-being. 
 
 
-### [Collapsible Dog Kennel by Boots & Barkley](https://serp.ly/amazon/Dog+Kennel?utm\_term=collapsible-dog-kennel-by-boots-barkley)
+### [Collapsible Dog Kennel by Boots & Barkley](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=collapsible-dog-kennel-by-boots-barkley)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=collapsible-dog-kennel-by-boots-barkley"><img alt="wire-collapsible-dog-crate-m-black-boots-barkley-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wire-collapsible-dog-crate-m-black-boots-barkley-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=collapsible-dog-kennel-by-boots-barkley"><img alt="wire-collapsible-dog-crate-m-black-boots-barkley-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wire-collapsible-dog-crate-m-black-boots-barkley-1/h=540,fit=pad,background=black"/></a></div>
 
 The Boots & Barkley Wire Collapsible Dog Crate was a game-changer for my dog's comfort and our living situation. This sturdy crate, designed for medium-sized dogs, has made our lives easier with its flexible, metal frame and easy assembly. The well-ventilated space and collapsible nature make it perfect for pet owners like me who need convenience while ensuring their dog's safety. Its divider panel helped us accommodate our growing puppy without any fuss. One of my favorite things about this crate is its removable plastic floor tray, which makes it a cinch to clean up. 
 
 However, there were a couple of drawbacks, especially when it came to maintaining and storing the crate. Although the latched door gives my dog a sense of security, I found it a bit difficult to open while using the handle. Additionally, while the crate was easy to set up initially, folding it back down required a bit of muscle. The handle's flimsy construction also made it challenging to carry around. Overall, I believe the Boots & Barkley Wire Collapsible Dog Crate is a good investment for pet owners seeking a practical solution for crate training. 
 
 
-### [French Door Dog Crate End Table for Small Dogs](https://serp.ly/amazon/Dog+Kennel?utm\_term=french-door-dog-crate-end-table-for-small-dogs)
+### [French Door Dog Crate End Table for Small Dogs](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=french-door-dog-crate-end-table-for-small-dogs)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=french-door-dog-crate-end-table-for-small-dogs"><img alt="pawhut-dog-crate-end-table-with-triple-doors-wooden-dog-crate-furniture-indoor-use-puppy-crate-with--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-dog-crate-end-table-with-triple-doors-wooden-dog-crate-furniture-indoor-use-puppy-crate-with--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=french-door-dog-crate-end-table-for-small-dogs"><img alt="pawhut-dog-crate-end-table-with-triple-doors-wooden-dog-crate-furniture-indoor-use-puppy-crate-with--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pawhut-dog-crate-end-table-with-triple-doors-wooden-dog-crate-furniture-indoor-use-puppy-crate-with--1/h=540,fit=pad,background=black"/></a></div>
 
 The PawHut dog crate end table brought a new sense of style and practicality to my home. Its versatility allowed it to function as a dog crate, nightstand, or end table – perfect for my small pup. 
 
@@ -526,9 +526,9 @@ The wooden kennel had a sturdy frame that fit my dog perfectly. The elegant Fren
 However, I noticed that my dog was able to chew through the wooden bars and escape, making it not chew-proof. Overall, the table had an appealing design, but its functionality may not be ideal for all situations. 
 
 
-### [Stylish Dog Crate End Table by HOOBRO](https://serp.ly/amazon/Dog+Kennel?utm\_term=stylish-dog-crate-end-table-by-hoobro)
+### [Stylish Dog Crate End Table by HOOBRO](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=stylish-dog-crate-end-table-by-hoobro)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=stylish-dog-crate-end-table-by-hoobro"><img alt="hoobro-dog-crate-furniture-dog-crate-table-decorative-dog-kennel-with-drawer-indoor-pet-crate-end-ta-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hoobro-dog-crate-furniture-dog-crate-table-decorative-dog-kennel-with-drawer-indoor-pet-crate-end-ta-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=stylish-dog-crate-end-table-by-hoobro"><img alt="hoobro-dog-crate-furniture-dog-crate-table-decorative-dog-kennel-with-drawer-indoor-pet-crate-end-ta-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hoobro-dog-crate-furniture-dog-crate-table-decorative-dog-kennel-with-drawer-indoor-pet-crate-end-ta-1/h=540,fit=pad,background=black"/></a></div>
 
 As a new pet owner, I was on the lookout for a stylish and practical home for my little pup. Hoobro's dog crate furniture came as an excellent solution, offering a perfect combination of fashion and function. The sleek, steel-tube design provided a modern touch to any indoor space, while the hidden drawer offered ample storage space for treats and essentials. 
 
@@ -537,18 +537,18 @@ The generous size of the crate, measuring almost 24 inches in length and 20 inch
 Overall, the Hoobro dog crate furniture met all my expectations and provided the fashionable touch my home had been lacking, without compromising my pup's wellbeing. Despite the extra weight, I'd highly recommend this crate to dog owners looking for a stylish and practical solution for their pets. 
 
 
-### [GDLF Indoor Double Dog Crate with Divider, Brown](https://serp.ly/amazon/Dog+Kennel?utm\_term=gdlf-indoor-double-dog-crate-with-divider-brown)
+### [GDLF Indoor Double Dog Crate with Divider, Brown](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=gdlf-indoor-double-dog-crate-with-divider-brown)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=gdlf-indoor-double-dog-crate-with-divider-brown"><img alt="gdlf-double-dog-crate-with-divider-for-1-or-2-dogs-indoor-kennel-cage-int-dims-36-2wx24-5dx21h-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gdlf-double-dog-crate-with-divider-for-1-or-2-dogs-indoor-kennel-cage-int-dims-36-2wx24-5dx21h-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=gdlf-indoor-double-dog-crate-with-divider-brown"><img alt="gdlf-double-dog-crate-with-divider-for-1-or-2-dogs-indoor-kennel-cage-int-dims-36-2wx24-5dx21h-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gdlf-double-dog-crate-with-divider-for-1-or-2-dogs-indoor-kennel-cage-int-dims-36-2wx24-5dx21h-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 This pet-friendly GDLF Double Dog Crate with Divider is a real winner for pet owners. The crate's robust construction is one of its standout features, featuring a sturdy steel tube structure instead of flimsy wire. And with the added anti-chew design, your furry friends can have a safe and durable space to roam. 
 
 This double door crate is perfect for housing two dogs or simply separating them for more individual room and comfort. The adjustable feet ensure that the crate stays stable on uneven floors, while the two lockable doors make for easy access in and out. Whether you're looking for a functional kennel or a stylish addition to your home, this indoor dog crate is sure to impress. 
 
 
-### [Antique White Dog Crate with Adjustable Latch and Removable Table Top](https://serp.ly/amazon/Dog+Kennel?utm\_term=antique-white-dog-crate-with-adjustable-latch-and-removable-table-top)
+### [Antique White Dog Crate with Adjustable Latch and Removable Table Top](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=antique-white-dog-crate-with-adjustable-latch-and-removable-table-top)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=antique-white-dog-crate-with-adjustable-latch-and-removable-table-top"><img alt="new-age-pet-innplace-dog-crate-antique-white-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-age-pet-innplace-dog-crate-antique-white-small-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=antique-white-dog-crate-with-adjustable-latch-and-removable-table-top"><img alt="new-age-pet-innplace-dog-crate-antique-white-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-age-pet-innplace-dog-crate-antique-white-small-1/h=540,fit=pad,background=black"/></a></div>
 
 The New Age Pet InnPlace Dog Crate in Antique White Small is a versatile and stylish addition to any household. Made from ecoFLEX material, this crate is not only sustainable but also built to last. Its small size makes it perfect for doggos up to 20 lbs, ensuring a comfortable fit. 
 
@@ -561,9 +561,9 @@ The removable tabletop and its non-fade color are definite plus points, but the 
 In conclusion, the New Age Pet InnPlace Dog Crate in Antique White Small is a pet-friendly and aesthetically pleasing option, ideal for smaller dogs. Its eco-friendly nature and multipurpose functionality add to its appeal, but the quality of its materials and locking system may require careful consideration. 
 
 
-### [Boldbone Large Dog Crate: Heavy Duty, High Anxiety Kennel with Removable Crate](https://serp.ly/amazon/Dog+Kennel?utm\_term=boldbone-large-dog-crate-heavy-duty-high-anxiety-kennel-with-removable-crate)
+### [Boldbone Large Dog Crate: Heavy Duty, High Anxiety Kennel with Removable Crate](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=boldbone-large-dog-crate-heavy-duty-high-anxiety-kennel-with-removable-crate)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=boldbone-large-dog-crate-heavy-duty-high-anxiety-kennel-with-removable-crate"><img alt="boldbone-54-48-38-inch-heavy-duty-indestructible-and-escape-proof-dog-crate-cage-kennel-for-large-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boldbone-54-48-38-inch-heavy-duty-indestructible-and-escape-proof-dog-crate-cage-kennel-for-large-do-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=boldbone-large-dog-crate-heavy-duty-high-anxiety-kennel-with-removable-crate"><img alt="boldbone-54-48-38-inch-heavy-duty-indestructible-and-escape-proof-dog-crate-cage-kennel-for-large-do-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boldbone-54-48-38-inch-heavy-duty-indestructible-and-escape-proof-dog-crate-cage-kennel-for-large-do-1/h=540,fit=pad,background=black"/></a></div>
 
 This dog crate, designed for large breeds, offers a variety of benefits to both pet owners and their furry friends. One standout feature is its heavy-duty construction, featuring upgraded steel materials that make it durable and indestructible. The crate is escape-proof, thanks to four sturdy locks, which provides added safety for your pet. Moving the crate around is also a cinch, thanks to four 360-degree rolling casters. 
 
@@ -574,9 +574,9 @@ The crate is suitable for various scenarios, including keeping your large dog sa
 This crate, despite few minor issues reported, such as the fit potentially being too small for larger dogs or the locks on the top hatch not always lining up, has proven to be high-quality and sturdy, with several pet owners complimenting its functionality, durability, and convenient features. Overall, this heavy-duty dog crate offers an excellent solution for pet owners with large dogs who require a robust and reliable escape-proof housing solution. 
 
 
-### [Lucky Dog CL 41028EZ 2-in-1 Galvanized Steel Pet Kennel](https://serp.ly/amazon/Dog+Kennel?utm\_term=lucky-dog-cl-41028ez-2-in-1-galvanized-steel-pet-kennel)
+### [Lucky Dog CL 41028EZ 2-in-1 Galvanized Steel Pet Kennel](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=lucky-dog-cl-41028ez-2-in-1-galvanized-steel-pet-kennel)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=lucky-dog-cl-41028ez-2-in-1-galvanized-steel-pet-kennel"><img alt="lucky-dog-cl-41028ez-2-in-1-galvanized-steel-chain-link-kennel-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-cl-41028ez-2-in-1-galvanized-steel-chain-link-kennel-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=lucky-dog-cl-41028ez-2-in-1-galvanized-steel-pet-kennel"><img alt="lucky-dog-cl-41028ez-2-in-1-galvanized-steel-chain-link-kennel-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lucky-dog-cl-41028ez-2-in-1-galvanized-steel-chain-link-kennel-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lucky Dog 2-in-1 Galvanized Steel Chain Link Kennel is designed to provide your furry friend with a spacious, safe, and secure area to play and relax. With its easy setup for one person and durable powder-coated steel frame, this kennel is perfect to suit your outdoor pet needs. 
 
@@ -587,9 +587,9 @@ One of the standout features of the Lucky Dog kennel is its flexibility to accom
 While some reviewers have expressed concerns about the ease of assembly and the kennel's durability, many are satisfied with the product's functionality and price. Overall, the Lucky Dog Galvanized Steel Chain Link Kennel is a convenient and affordable solution for pet owners looking to provide their furry friends with a safe and spacious outdoor play area. 
 
 
-### [EcoFlex Dog Crate with Stainless Steel Latch and Brushed Steel Spindles](https://serp.ly/amazon/Dog+Kennel?utm\_term=ecoflex-dog-crate-with-stainless-steel-latch-and-brushed-steel-spindles)
+### [EcoFlex Dog Crate with Stainless Steel Latch and Brushed Steel Spindles](https://serp.ly/@outrun/amazon/Dog+Kennel?utm\_term=ecoflex-dog-crate-with-stainless-steel-latch-and-brushed-steel-spindles)
 
-<div class="image"><a href="https://serp.ly/amazon/Dog+Kennel?utm_term=ecoflex-dog-crate-with-stainless-steel-latch-and-brushed-steel-spindles"><img alt="new-age-pet-ecoflex-dog-crate-antique-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-age-pet-ecoflex-dog-crate-antique-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Dog+Kennel?utm_term=ecoflex-dog-crate-with-stainless-steel-latch-and-brushed-steel-spindles"><img alt="new-age-pet-ecoflex-dog-crate-antique-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-age-pet-ecoflex-dog-crate-antique-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I was initially drawn to the elegant design of the New Age Pet EcoFlex Dog Crate. As an antique white piece, it blended seamlessly in our home while still serving as a functional pet essential. The eco-friendly construction was a great perk, as it's made of a non-toxic recycled plastic-wood polymer composite material that doesn't warp, crack or split. 
 
@@ -609,7 +609,7 @@ Selecting the perfect dog kennel is essential to provide your pet with comfort, 
 
 The size and material of the kennel should be considered for optimal comfort and durability. For optimal comfort, choose a kennel with enough space for your dog to stand, sit, lie down, and stretch out comfortably. The material should be sturdy and weather-resistant, preventing damage from harsh environmental conditions. Common materials include plastic, metal, and wood. 
 
-<div><a href="https://serp.ly/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-2/h=540,fit=pad,background=black" alt="Dog-Kennel-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-2/h=540,fit=pad,background=black" alt="Dog-Kennel-2" height="540"></a></div>
 
 
 ### Consideration #2: Portability
@@ -621,7 +621,7 @@ If you plan on traveling with your dog or frequently need to relocate the kennel
 
 Proper ventilation is essential for your pet's safety and well-being. A kennel with multiple air vents on all sides allows ample airflow, preventing your dog from breathing in stale air. Look for kennels with mesh walls, which can also promote transparency for better visibility and interaction with your pet. 
 
-<div><a href="https://serp.ly/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-3/h=540,fit=pad,background=black" alt="Dog-Kennel-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-3/h=540,fit=pad,background=black" alt="Dog-Kennel-3" height="540"></a></div>
 
 
 ### Consideration #4: Design
@@ -631,7 +631,7 @@ The kennel's design should be visually appealing and complement your home's inte
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-4/h=540,fit=pad,background=black" alt="Dog-Kennel-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-4/h=540,fit=pad,background=black" alt="Dog-Kennel-4" height="540"></a></div>
 
 
 ### What is the purpose of a dog kennel?
@@ -647,7 +647,7 @@ Several factors should be taken into consideration when purchasing a dog kennel.
 
 Additionally, the kennel should be easy to clean and maintain. It should have a locking mechanism to secure the kennel and prevent dogs from escaping or unwanted intrusion. Other considerations may include insulation to keep the kennel cool in summer and warm in winter, as well as ventilation to ensure proper airflow. 
 
-<div><a href="https://serp.ly/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-5/h=540,fit=pad,background=black" alt="Dog-Kennel-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-5/h=540,fit=pad,background=black" alt="Dog-Kennel-5" height="540"></a></div>
 
 
 ### Are there different types of dog kennels?
@@ -663,7 +663,7 @@ Routine cleaning and maintenance are crucial to ensure a hygienic and safe envir
 
 It's also important to inspect the kennel regularly for any signs of wear or damage, such as frayed wires or rusty metal components. If any issues are found, they should be addressed promptly to prevent potential hazards or breakdowns. Proper maintenance will not only keep your pet comfortable and healthy, but it will also extend the life of your kennel. 
 
-<div><a href="https://serp.ly/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-6/h=540,fit=pad,background=black" alt="Dog-Kennel-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Dog+Kennel"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dog-Kennel-6/h=540,fit=pad,background=black" alt="Dog-Kennel-6" height="540"></a></div>
 
 
 ### Can I use my dog's crate as a portable kennel?

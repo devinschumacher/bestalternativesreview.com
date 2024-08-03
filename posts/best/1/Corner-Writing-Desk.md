@@ -14,9 +14,9 @@ Welcome to our roundup of the top Corner Writing Desks on the market! These desk
 ## Reviews
 
 
-### [Curvy Cherry Corner Desk for Stylish Office Layout](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=curvy-cherry-corner-desk-for-stylish-office-layout)
+### [Curvy Cherry Corner Desk for Stylish Office Layout](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=curvy-cherry-corner-desk-for-stylish-office-layout)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=curvy-cherry-corner-desk-for-stylish-office-layout"><img alt="urbanpro-48w-corner-desk-in-hansen-cherry-and-galaxy-engineered-wood-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/urbanpro-48w-corner-desk-in-hansen-cherry-and-galaxy-engineered-wood-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=curvy-cherry-corner-desk-for-stylish-office-layout"><img alt="urbanpro-48w-corner-desk-in-hansen-cherry-and-galaxy-engineered-wood-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/urbanpro-48w-corner-desk-in-hansen-cherry-and-galaxy-engineered-wood-1/h=540,fit=pad,background=black"/></a></div>
 
 The UrbanPro 48W Corner Desk, available in Hansen Cherry and Galaxy finishes, is the perfect addition to your small office. Its maximized design utilizes a corner for efficient space, creating a comfortable curved work area. 
 
@@ -25,9 +25,9 @@ The C-Leg design ensures ample legroom, while the thermally fused laminate surfa
 This corner desk easily allows for configuration, and you can expand your work surface with coordinating desks. With thoughtful design, endless configuration options, and a variety of two-tone finishes, this desk is sure to enhance your workspace's style and functionality. 
 
 
-### [Stylish Corner Writing Desk in Cherry Wood](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=stylish-corner-writing-desk-in-cherry-wood)
+### [Stylish Corner Writing Desk in Cherry Wood](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=stylish-corner-writing-desk-in-cherry-wood)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=stylish-corner-writing-desk-in-cherry-wood"><img alt="corner-writing-desk-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/corner-writing-desk-cherry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=stylish-corner-writing-desk-in-cherry-wood"><img alt="corner-writing-desk-cherry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/corner-writing-desk-cherry-1/h=540,fit=pad,background=black"/></a></div>
 
 The Corner Writing Desk Cherry, a compact and elegant addition to your home office, boasts a thoughtful design that makes the most of every available inch. Constructed from solid wood, MDF, and wood veneer, this desk provides an ample surface for your laptop and any office essentials. The built-in drawer and lower shelves offer convenient storage for books, knick-knacks, and stationery. However, users have mentioned that the MDF base may have some durability issues, as one customer experienced the front of the drawer falling off after just a few weeks in use. 
 
@@ -36,9 +36,9 @@ Boasting a rating of 4.3 from over 3,000 reviews, the Corner Writing Desk Cherry
 Overall, the Corner Writing Desk Cherry is a well-crafted and functional piece of furniture that adds both style and functionality to any home office or small space. While there may be a few minor imperfections to overcome, the majority of customers are satisfied with their purchase and would undoubtedly recommend this desk to others seeking a compact and elegant solution for their work space. 
 
 
-### [Belleze Spacious White Corner Desk with Hutch and Shelf](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=belleze-spacious-white-corner-desk-with-hutch-and-shelf)
+### [Belleze Spacious White Corner Desk with Hutch and Shelf](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=belleze-spacious-white-corner-desk-with-hutch-and-shelf)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=belleze-spacious-white-corner-desk-with-hutch-and-shelf"><img alt="belleze-corner-desk-with-hutch-compact-home-office-desk-with-display-shelf-and-drawer-space-saving-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/belleze-corner-desk-with-hutch-compact-home-office-desk-with-display-shelf-and-drawer-space-saving-w-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=belleze-spacious-white-corner-desk-with-hutch-and-shelf"><img alt="belleze-corner-desk-with-hutch-compact-home-office-desk-with-display-shelf-and-drawer-space-saving-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/belleze-corner-desk-with-hutch-compact-home-office-desk-with-display-shelf-and-drawer-space-saving-w-1/h=540,fit=pad,background=black"/></a></div>
 
 This Belleze Corner Desk truly stands out, boasting a sleek design that blends Mid-Century Modern and contemporary elements. The striking gold handle trim adds a touch of elegance, while the wooden crossed legs bring a rustic charm to the piece. You can choose between a crisp white or a rich brown finish, making it a versatile addition to your home. 
 
@@ -53,9 +53,9 @@ Lastly, this desk comes equipped with a built-in charging station for your elect
 Overall, the Belleze Corner Desk is a fantastic choice for anyone seeking a stylish and functional addition to their home office or living space. 
 
 
-### [Adam's Bargain Shop L-Shaped Computer Desk with Power Outlets: Perfect for Small Office Spaces](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=adams-bargain-shop-l-shaped-computer-desk-with-power-outlets-perfect-for-small-office-spaces)
+### [Adam's Bargain Shop L-Shaped Computer Desk with Power Outlets: Perfect for Small Office Spaces](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=adams-bargain-shop-l-shaped-computer-desk-with-power-outlets-perfect-for-small-office-spaces)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=adams-bargain-shop-l-shaped-computer-desk-with-power-outlets-perfect-for-small-office-spaces"><img alt="71-inches-l-shaped-computer-desk-with-power-outlets-adamsbargainshop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/71-inches-l-shaped-computer-desk-with-power-outlets-adamsbargainshop-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=adams-bargain-shop-l-shaped-computer-desk-with-power-outlets-perfect-for-small-office-spaces"><img alt="71-inches-l-shaped-computer-desk-with-power-outlets-adamsbargainshop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/71-inches-l-shaped-computer-desk-with-power-outlets-adamsbargainshop-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on this 71-inch L-shaped computer desk from Adam's Bargain Shop and boy, I'm impressed! The desk is a perfect blend of style and functionality. The powder-coated metal base and modern design give it a sleek and professional look, while the white finish adds a touch of elegance to any office space. 
 
@@ -66,9 +66,9 @@ However, assembling the desk was a bit of a challenge. I had to enlist the help 
 Overall, this desk is a great buy if you're on the hunt for an affordable, stylish, and functional option for your home or office. Just make sure you have a friend to help with assembly! 
 
 
-### [Rustic Corner Desk for Home Office and Gaming](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=rustic-corner-desk-for-home-office-and-gaming)
+### [Rustic Corner Desk for Home Office and Gaming](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=rustic-corner-desk-for-home-office-and-gaming)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=rustic-corner-desk-for-home-office-and-gaming"><img alt="banti-l-shaped-desk-with-hutch-58-inch-corner-computer-desk-with-drawerhome-office-gaming-table-work-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/banti-l-shaped-desk-with-hutch-58-inch-corner-computer-desk-with-drawerhome-office-gaming-table-work-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=rustic-corner-desk-for-home-office-and-gaming"><img alt="banti-l-shaped-desk-with-hutch-58-inch-corner-computer-desk-with-drawerhome-office-gaming-table-work-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/banti-l-shaped-desk-with-hutch-58-inch-corner-computer-desk-with-drawerhome-office-gaming-table-work-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try the BANTI L Shaped Desk with Hutch. First impressions were great; the rustic brown finish added a touch of elegance to my home office. The modern design style, with its clean lines and minimalist appeal, truly enhanced the overall aesthetic. 
 
@@ -79,9 +79,9 @@ Despite the convenience of all this storage, I must admit that the desk was a bi
 Overall, the BANTI L Shaped Desk with Hutch proved to be a functional and stylish addition to my home office. It not only looked great but also offered practical storage solutions and excellent stability. Despite the minor assembly hiccup, the pros easily outweighed the cons, making it a wise choice for anyone looking for a versatile and attractive desk. 
 
 
-### [White Corner Desk from Urban Outfitters](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=white-corner-desk-from-urban-outfitters)
+### [White Corner Desk from Urban Outfitters](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=white-corner-desk-from-urban-outfitters)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=white-corner-desk-from-urban-outfitters"><img alt="mia-corner-desk-in-white-at-urban-outfitters-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mia-corner-desk-in-white-at-urban-outfitters-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=white-corner-desk-from-urban-outfitters"><img alt="mia-corner-desk-in-white-at-urban-outfitters-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mia-corner-desk-in-white-at-urban-outfitters-1/h=540,fit=pad,background=black"/></a></div>
 
 Upgrade your workspace with the Mia Corner Desk, now available at Urban Outfitters. This desk perfectly complements any space with its streamlined design, reminiscent of the classic campaign style. The desk boasts an ample tabletop and two shelves to keep your essentials neat and tidy, enhanced by a pull-out keyboard tray and rose gold drawer pull. 
 
@@ -90,9 +90,9 @@ Plus, it comes equipped with a sleek desktop grommet to keep your cords organize
 With its practical features and stylish design, this desk is sure to elevate your work or study space impressively. 
 
 
-### [Curved Corner Desk for Gaming and Study Space](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=curved-corner-desk-for-gaming-and-study-space)
+### [Curved Corner Desk for Gaming and Study Space](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=curved-corner-desk-for-gaming-and-study-space)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=curved-corner-desk-for-gaming-and-study-space"><img alt="l-shaped-desk-computer-corner-desk-l-shaped-home-office-desk-large-gaming-desk-sturdy-writing-desk-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-shaped-desk-computer-corner-desk-l-shaped-home-office-desk-large-gaming-desk-sturdy-writing-desk-w-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=curved-corner-desk-for-gaming-and-study-space"><img alt="l-shaped-desk-computer-corner-desk-l-shaped-home-office-desk-large-gaming-desk-sturdy-writing-desk-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-shaped-desk-computer-corner-desk-l-shaped-home-office-desk-large-gaming-desk-sturdy-writing-desk-w-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine a gaming desk designed for ultimate efficiency, with an L-shaped configuration that provides ample workspace for all your daily essentials. This modern gaming desk, the Soges L-shaped Corner Computer Desk, boasts a sturdy and durable construction, built with high-quality P2 MDF boards and thick metal frames. 
 
@@ -101,18 +101,18 @@ Not only does it offer a stable and wobble-free experience, but it also features
 Standout features include a PC holder that allows for maximum space utilization, a metal frame that is 1.5 times thicker than standard office desks for added rigidity, and an adjustable foot pad system to maintain balance on uneven surfaces. So whether you're a serious gamer, a dedicated writer, or simply looking for a functional and stylish corner workstation, this gaming desk is the perfect choice. 
 
 
-### [BYBLIGHT Lanita Black Particle Board L-Shaped Writing Desk with 4 Drawers](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=byblight-lanita-black-particle-board-l-shaped-writing-desk-with-4-drawers)
+### [BYBLIGHT Lanita Black Particle Board L-Shaped Writing Desk with 4 Drawers](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=byblight-lanita-black-particle-board-l-shaped-writing-desk-with-4-drawers)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=byblight-lanita-black-particle-board-l-shaped-writing-desk-with-4-drawers"><img alt="byblight-lanita-59-in-l-shaped-black-particle-board-4-drawer-computer-desk-reversible-corner-office--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/byblight-lanita-59-in-l-shaped-black-particle-board-4-drawer-computer-desk-reversible-corner-office--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=byblight-lanita-black-particle-board-l-shaped-writing-desk-with-4-drawers"><img alt="byblight-lanita-59-in-l-shaped-black-particle-board-4-drawer-computer-desk-reversible-corner-office--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/byblight-lanita-59-in-l-shaped-black-particle-board-4-drawer-computer-desk-reversible-corner-office--1/h=540,fit=pad,background=black"/></a></div>
 
 This sleek L-shaped black particle board desk from BYBLIGHT, the Lanita 59, is an excellent choice for those looking to maximize their corner office space while staying organized. Its spacious top surface provides ample room for your computer, notepads, folders, CPU, and even that much-needed cup of coffee. The 2-tier open shelves and 4 drawers offer ample storage to keep your desktop clutter-free. 
 
 However, be aware that assembly is required for this desk. And while it's great for home use, make sure to consider other factors if looking for a desk suitable for commercial settings. With its stylish black color and versatile design, the Lanita 59 is a sturdy writing table that would make a great addition to any workspace. 
 
 
-### [Clean Choice Glossy White L-Shaped Corner Writing Desk with 2 Drawers and 1 Cabinet](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=clean-choice-glossy-white-l-shaped-corner-writing-desk-with-2-drawers-and-1-cabinet)
+### [Clean Choice Glossy White L-Shaped Corner Writing Desk with 2 Drawers and 1 Cabinet](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=clean-choice-glossy-white-l-shaped-corner-writing-desk-with-2-drawers-and-1-cabinet)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=clean-choice-glossy-white-l-shaped-corner-writing-desk-with-2-drawers-and-1-cabinet"><img alt="clean-choice-72-x-72-in-l-shaped-corner-2-drawers-1-cabinet-metal-legs-reversible-computer-desk-glos-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clean-choice-72-x-72-in-l-shaped-corner-2-drawers-1-cabinet-metal-legs-reversible-computer-desk-glos-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=clean-choice-glossy-white-l-shaped-corner-writing-desk-with-2-drawers-and-1-cabinet"><img alt="clean-choice-72-x-72-in-l-shaped-corner-2-drawers-1-cabinet-metal-legs-reversible-computer-desk-glos-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clean-choice-72-x-72-in-l-shaped-corner-2-drawers-1-cabinet-metal-legs-reversible-computer-desk-glos-1/h=540,fit=pad,background=black"/></a></div>
 
 Transform your office nook or a small corner into a comfortable workspace with the Clean Choice L-Shaped Computer Desk. Its spacious 72x72 inch desk features a chic glossy white laminate finish in a modern and glamorous style. 
 
@@ -123,9 +123,9 @@ The design not only saves space but also blends seamlessly with the overall aest
 With its corner-friendly size and versatile features, this Clean Choice L-Shaped Computer Desk is a perfect addition to your office setup. 
 
 
-### [L Shaped Office Desk for a Comfortable Workspace](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=l-shaped-office-desk-for-a-comfortable-workspace)
+### [L Shaped Office Desk for a Comfortable Workspace](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=l-shaped-office-desk-for-a-comfortable-workspace)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=l-shaped-office-desk-for-a-comfortable-workspace"><img alt="l-shaped-desk-with-led-lights-and-hutch-and-power-outlet-for-home-office-66-9-corner-computer-table--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-shaped-desk-with-led-lights-and-hutch-and-power-outlet-for-home-office-66-9-corner-computer-table--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=l-shaped-office-desk-for-a-comfortable-workspace"><img alt="l-shaped-desk-with-led-lights-and-hutch-and-power-outlet-for-home-office-66-9-corner-computer-table--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-shaped-desk-with-led-lights-and-hutch-and-power-outlet-for-home-office-66-9-corner-computer-table--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the wonder of having a dedicated home office space with the L-Shaped Desk equipped with LED lights, a hutch, and a power outlet. As someone who loves a bit of aesthetics in their work setup, this desk was a breath of fresh air - quite literally, thanks to the optional LED lights that add a cozy, warm glow. 
 
@@ -139,18 +139,18 @@ Overall, this L-Shaped Desk has been a game-changer in my home office setup. Its
 
 
 ### [Bestier L-Shaped Corner Desk: 
-95.2" Reversible, Storage-Ready Computer Table for Home Office](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=bestier-l-shaped-corner-desk-95-2-reversible-storage-ready-computer-table-for-home-office)
+95.2" Reversible, Storage-Ready Computer Table for Home Office](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=bestier-l-shaped-corner-desk-95-2-reversible-storage-ready-computer-table-for-home-office)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=bestier-l-shaped-corner-desk-95-2-reversible-storage-ready-computer-table-for-home-office"><img alt="bestier-l-shaped-desk-95-2-inch-reversible-corner-computer-desk-with-shelves-2-person-long-table-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestier-l-shaped-desk-95-2-inch-reversible-corner-computer-desk-with-shelves-2-person-long-table-for-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=bestier-l-shaped-corner-desk-95-2-reversible-storage-ready-computer-table-for-home-office"><img alt="bestier-l-shaped-desk-95-2-inch-reversible-corner-computer-desk-with-shelves-2-person-long-table-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestier-l-shaped-desk-95-2-inch-reversible-corner-computer-desk-with-shelves-2-person-long-table-for-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bestier L-Shaped Desk is an innovative piece of office furniture that offers flexibility and functionality. With two different configurations available, users can choose between a 59.5" corner desk or a 95.5" double long desk, depending on their needs. This versatile design makes full use of corner space and provides sufficient room for two people working together. The desk's sleek industrial style complements any home or office setting, while providing ample space for two monitors, a computer, a printer, and assorted items. The desk's three cable holes ensure that the desk is a perfect fit for both home and office needs. Additionally, it comes with flexible storage shelves that can be installed on either side of the desk. 
 
 Crafted with a metal frame and P2 Class Wood certified by CARB, the desk is built to last. Its sturdy construction and adjustable footpads ensure stability and durability, even on uneven floors or carpets. The rustic brown wood grain melamine surface is waterproof, scratch-resistant, and easy to clean. With its adjustable height, this desk can cater to any user's needs. The desk also comes with a straightforward manual and labeled parts that make assembly a breeze. This desk is an excellent choice for those looking for a combination of style, functionality, and affordability. 
 
 
-### [TMS WM840096 Antique Blue Rustic Corner Writing Desk](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=tms-wm840096-antique-blue-rustic-corner-writing-desk)
+### [TMS WM840096 Antique Blue Rustic Corner Writing Desk](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=tms-wm840096-antique-blue-rustic-corner-writing-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=tms-wm840096-antique-blue-rustic-corner-writing-desk"><img alt="tms-wm840096-ellen-corner-writing-desk-antique-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tms-wm840096-ellen-corner-writing-desk-antique-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=tms-wm840096-antique-blue-rustic-corner-writing-desk"><img alt="tms-wm840096-ellen-corner-writing-desk-antique-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tms-wm840096-ellen-corner-writing-desk-antique-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I found myself in need of a stylish yet functional desk for my home office. On a recommendation from a friend, I decided to order the TMS Ellen Corner Writing Desk in the antique blue finish. Upon receiving the package, I instantly noticed the rich, blue hue and admired its rustic charm. 
 
@@ -163,9 +163,9 @@ However, I did encounter a bit of frustration during the assembly process. Altho
 Despite the minor inconvenience, I found the TMS Ellen Corner Writing Desk to be a great addition to my home office setup. Its unique blend of style, functionality, and organization made it a worthwhile purchase. Though a few adjustments could be made to improve the process, I am pleased with my overall experience and would recommend this desk to others in search of the perfect home office companion. 
 
 
-### [L-Shaped Computer Desk with Monitor Shelf and LED Strip Lighting](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=l-shaped-computer-desk-with-monitor-shelf-and-led-strip-lighting)
+### [L-Shaped Computer Desk with Monitor Shelf and LED Strip Lighting](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=l-shaped-computer-desk-with-monitor-shelf-and-led-strip-lighting)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=l-shaped-computer-desk-with-monitor-shelf-and-led-strip-lighting"><img alt="rolanstar-computer-desk-with-file-drawer-68-l-shaped-computer-corner-desk-with-power-outlet-led-stri-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-computer-desk-with-file-drawer-68-l-shaped-computer-corner-desk-with-power-outlet-led-stri-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=l-shaped-computer-desk-with-monitor-shelf-and-led-strip-lighting"><img alt="rolanstar-computer-desk-with-file-drawer-68-l-shaped-computer-corner-desk-with-power-outlet-led-stri-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-computer-desk-with-file-drawer-68-l-shaped-computer-corner-desk-with-power-outlet-led-stri-1/h=540,fit=pad,background=black"/></a></div>
 
 Working from home just got a whole lot better with the Rolanstar 68-inch L-shaped computer desk. With its spacious desktop and printer rack, this desk has plenty of room for all your office essentials. 
 
@@ -174,9 +174,9 @@ The file cabinet keeps things nice and tidy, while the 4 outlets and 2 USB ports
 Just remember, the file cabinet can only be installed on the right side. Overall, if you're looking for a functional, modern work station, this one fits the bill. 
 
 
-### [Merax Multi-Functional Home Office Corner Desk](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=merax-multi-functional-home-office-corner-desk)
+### [Merax Multi-Functional Home Office Corner Desk](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=merax-multi-functional-home-office-corner-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=merax-multi-functional-home-office-corner-desk"><img alt="merax-black-l-shaped-corner-desk-with-shelves-and-storage-rotating-5-tier-bookcase-multi-functional--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/merax-black-l-shaped-corner-desk-with-shelves-and-storage-rotating-5-tier-bookcase-multi-functional--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=merax-multi-functional-home-office-corner-desk"><img alt="merax-black-l-shaped-corner-desk-with-shelves-and-storage-rotating-5-tier-bookcase-multi-functional--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/merax-black-l-shaped-corner-desk-with-shelves-and-storage-rotating-5-tier-bookcase-multi-functional--1/h=540,fit=pad,background=black"/></a></div>
 
 This versatile corner desk offers plenty of storage and convenience for both home and office use. Its contemporary design features a sleek black finish and smooth stainless steel accents that create a clean, chic look while also providing durability and resistance to dust and water. 
 
@@ -185,18 +185,18 @@ The desk can be easily assembled and adjusted to fit your space, whether you pre
 The 5-tier bookcase allows you to organize and display your favorite books, artwork, and office supplies, saving you valuable space. And, with its multiple uses, this desk is an excellent investment for both your home and professional life. 
 
 
-### [Realspace Blonde Ash Magellan Corner Desk](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=realspace-blonde-ash-magellan-corner-desk)
+### [Realspace Blonde Ash Magellan Corner Desk](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=realspace-blonde-ash-magellan-corner-desk)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=realspace-blonde-ash-magellan-corner-desk"><img alt="realspace-blonde-ash-magellan-59w-l-shape-corner-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/realspace-blonde-ash-magellan-59w-l-shape-corner-desk-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=realspace-blonde-ash-magellan-corner-desk"><img alt="realspace-blonde-ash-magellan-59w-l-shape-corner-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/realspace-blonde-ash-magellan-59w-l-shape-corner-desk-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got myself a Realspace Magellan 59L-shaped corner desk in blonde ash, and I must say, I'm quite impressed with its style and functionality. The paper laminate finish and leatherette inlay surface give it a professional look, while the slide-out keyboard tray makes it incredibly convenient to use. The three box drawers provide ample storage space for my office essentials, and the L-shape design fits perfectly in my corner, saving me a good amount of space. 
 
 However, there were a few things that left me a bit underwhelmed. Firstly, the assembly process was a bit of a hurdle, and I wish it had come with more detailed instructions. Secondly, I've noticed some peeling on the laminate surface after a few months of use, which is a bit disappointing given the quality I was expecting. Lastly, while the desk itself is quite sturdy, the drawers and door don't feel as well-made as I hoped they would, and they're a bit difficult to open and close smoothly. Overall, though, the Realspace Magellan 59L-shaped corner desk has been a satisfactory addition to my home office setup. 
 
 
-### [Modern L-Shaped Computer Desk with LED Lights & Storage Shelf](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=modern-l-shaped-computer-desk-with-led-lights-storage-shelf)
+### [Modern L-Shaped Computer Desk with LED Lights & Storage Shelf](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=modern-l-shaped-computer-desk-with-led-lights-storage-shelf)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=modern-l-shaped-computer-desk-with-led-lights-storage-shelf"><img alt="rolanstar-l-shaped-gaming-desk-with-led-lights-power-outlets-56-computer-desk-with-full-monitor-stan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-l-shaped-gaming-desk-with-led-lights-power-outlets-56-computer-desk-with-full-monitor-stan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=modern-l-shaped-computer-desk-with-led-lights-storage-shelf"><img alt="rolanstar-l-shaped-gaming-desk-with-led-lights-power-outlets-56-computer-desk-with-full-monitor-stan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rolanstar-l-shaped-gaming-desk-with-led-lights-power-outlets-56-computer-desk-with-full-monitor-stan-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out this L-shaped Rolanstar gaming desk with LED lights and power outlets, and let me tell you, it's been a game-changer for me. The rustic brown and black color scheme adds a touch of elegance to my gaming area, while the particle board material makes it sturdy without weighing too much. 
 
@@ -207,9 +207,9 @@ While setting it up, I did notice that the assembly instructions could have been
 Overall, this Rolanstar L-shaped gaming desk exceeded my expectations and has become a reliable companion for my daily gaming sessions. The modern design, plenty of space, and sturdy construction have definitely made this a worthwhile investment. 
 
 
-### [SEDETA Spacious L-Shaped Corner Desk for Home Office](https://serp.ly/amazon/Corner+Writing+Desk?utm\_term=sedeta-spacious-l-shaped-corner-desk-for-home-office)
+### [SEDETA Spacious L-Shaped Corner Desk for Home Office](https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm\_term=sedeta-spacious-l-shaped-corner-desk-for-home-office)
 
-<div class="image"><a href="https://serp.ly/amazon/Corner+Writing+Desk?utm_term=sedeta-spacious-l-shaped-corner-desk-for-home-office"><img alt="sedeta-l-shaped-computer-desk-63-desk-with-storage-shelves-keyboard-tray-monitor-stand-and-headphone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sedeta-l-shaped-computer-desk-63-desk-with-storage-shelves-keyboard-tray-monitor-stand-and-headphone-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Corner+Writing+Desk?utm_term=sedeta-spacious-l-shaped-corner-desk-for-home-office"><img alt="sedeta-l-shaped-computer-desk-63-desk-with-storage-shelves-keyboard-tray-monitor-stand-and-headphone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sedeta-l-shaped-computer-desk-63-desk-with-storage-shelves-keyboard-tray-monitor-stand-and-headphone-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently upgraded my home office with the SEDETA L-Shaped Computer Desk. This desk is not only functional but also stylish, blending perfectly with my industrial-themed decor. 
 

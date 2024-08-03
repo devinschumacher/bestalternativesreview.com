@@ -14,9 +14,9 @@ Unleash your creativity with our top picks of metal pencils! These durable, styl
 ## Reviews
 
 
-### [Sun-Star Metacil Metal Pencils](https://serp.ly/amazon/Metal+Pencils?utm\_term=sun-star-metacil-metal-pencils)
+### [Sun-Star Metacil Metal Pencils](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=sun-star-metacil-metal-pencils)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=sun-star-metacil-metal-pencils"><img alt="sun-star-metacil-metal-pencil-metallic-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-metallic-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=sun-star-metacil-metal-pencils"><img alt="sun-star-metacil-metal-pencil-metallic-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-metallic-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 Last month, I stumbled upon the Sun-Star Metacil Metal Pencil and decided to give it a try. I was intrigued by its metallic blue exterior and the fact that it was made of a special alloy that contained graphite. The moment I started writing with it, I was impressed by its durability and smoothness. It was as if the pencil had a life of its own, and the words just flowed effortlessly. 
 
@@ -27,9 +27,9 @@ However, there were a few downsides. The pencil was quite heavy compared to trad
 Overall, the Sun-Star Metacil Metal Pencil has become a staple in my drawing kit. Its unique features and durability make it a worthwhile investment. It may not be perfect, but it has certainly made my life easier when it comes to drafting and sketching. 
 
 
-### [Nitecore NTP40 Titanium Alloy Mechanical Pencil: Portable and Durable](https://serp.ly/amazon/Metal+Pencils?utm\_term=nitecore-ntp40-titanium-alloy-mechanical-pencil-portable-and-durable)
+### [Nitecore NTP40 Titanium Alloy Mechanical Pencil: Portable and Durable](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=nitecore-ntp40-titanium-alloy-mechanical-pencil-portable-and-durable)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=nitecore-ntp40-titanium-alloy-mechanical-pencil-portable-and-durable"><img alt="nitecore-ntp40-titanium-alloy-mechanical-pencil-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nitecore-ntp40-titanium-alloy-mechanical-pencil-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=nitecore-ntp40-titanium-alloy-mechanical-pencil-portable-and-durable"><img alt="nitecore-ntp40-titanium-alloy-mechanical-pencil-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nitecore-ntp40-titanium-alloy-mechanical-pencil-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Nitecore NTP40 Titanium Alloy Mechanical Pencil in silver, and it's been a game-changer in my daily life. This pencil is a work of art, with its sleek design, smooth writing, and robust construction. The titanium alloy body feels both light and sturdy, with a satisfying heft in hand. 
 
@@ -40,9 +40,9 @@ One of my favorite features is the 26 loops of anti-skid threads on the body, wh
 While the price may be higher than some plastic mechanical pencils, the durability and premium features of the Nitecore NTP40 Titanium Alloy Mechanical Pencil make it worth the investment. It's a stylish and practical addition to any EDC gear, and I don't think I'll ever go back to a regular pencil again. 
 
 
-### [Penco Drafting Writer Mechanical Pencil - Sleek 0.5mm Silver](https://serp.ly/amazon/Metal+Pencils?utm\_term=penco-drafting-writer-mechanical-pencil-sleek-0-5mm-silver)
+### [Penco Drafting Writer Mechanical Pencil - Sleek 0.5mm Silver](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=penco-drafting-writer-mechanical-pencil-sleek-0-5mm-silver)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=penco-drafting-writer-mechanical-pencil-sleek-0-5mm-silver"><img alt="penco-drafting-writer-mechanical-pencil-0-5mm-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/penco-drafting-writer-mechanical-pencil-0-5mm-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=penco-drafting-writer-mechanical-pencil-sleek-0-5mm-silver"><img alt="penco-drafting-writer-mechanical-pencil-0-5mm-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/penco-drafting-writer-mechanical-pencil-0-5mm-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 A few months ago, I stumbled upon the Penco Drafting Writer, a mechanical pencil that instantly caught my eye. I'm not big on stationery, but I have a newfound appreciation for this compact, lightweight, yet functional tool. The size of the package was compact and easy to hold, and the aluminum body felt sturdy in my hand. I was particularly intrigued by the needlepoint tip, which dispensed a 0.5mm HB lead. 
 
@@ -51,27 +51,27 @@ When I started using the pencil, I immediately noticed that it was surprisingly 
 However, one thing stood in my way – the lead would often shatter when I pressed too hard. Although they were easy to fix, the frequency of this issue was a little annoying. Overall, I appreciate the simplicity and high quality of this mechanical pencil. Its compactness, ease of use, and lightweight design make the Penco Drafting Writer an excellent choice for anyone in need of a reliable pencil. 
 
 
-### [Sleek Stainless Steel Parker Jotter Chrome Trim Mechanical Pencil 0.5mm](https://serp.ly/amazon/Metal+Pencils?utm\_term=sleek-stainless-steel-parker-jotter-chrome-trim-mechanical-pencil-0-5mm)
+### [Sleek Stainless Steel Parker Jotter Chrome Trim Mechanical Pencil 0.5mm](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=sleek-stainless-steel-parker-jotter-chrome-trim-mechanical-pencil-0-5mm)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=sleek-stainless-steel-parker-jotter-chrome-trim-mechanical-pencil-0-5mm"><img alt="parker-jotter-stainless-steel-chrome-trim-mechanical-pencil-0-5mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/parker-jotter-stainless-steel-chrome-trim-mechanical-pencil-0-5mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=sleek-stainless-steel-parker-jotter-chrome-trim-mechanical-pencil-0-5mm"><img alt="parker-jotter-stainless-steel-chrome-trim-mechanical-pencil-0-5mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/parker-jotter-stainless-steel-chrome-trim-mechanical-pencil-0-5mm-1/h=540,fit=pad,background=black"/></a></div>
 
 This Parker Jotter pen offers a modern twist on a classic design, making it an iconic accessory for anyone who values the time spent organizing their thoughts on paper. With a stainless steel barrel, high-shine trims, and an arrowhead clip, this pen has a stylish, practical appeal. 
 
 Its signature retractable design is both functional and satisfying, offering a smooth, dark, and precise writing experience. This versatile pen is perfect for gift-giving, making it a go-to choice for graduates, first-time job seekers, or anyone who appreciates the authenticity of a classic design. 
 
 
-### [Kaweco Steel Sport Mechanical Pencil: Minimalist, Durable & Stylish Pocket Pen for Sketching and Drawing](https://serp.ly/amazon/Metal+Pencils?utm\_term=kaweco-steel-sport-mechanical-pencil-minimalist-durable-stylish-pocket-pen-for-sketching-and-drawing)
+### [Kaweco Steel Sport Mechanical Pencil: Minimalist, Durable & Stylish Pocket Pen for Sketching and Drawing](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=kaweco-steel-sport-mechanical-pencil-minimalist-durable-stylish-pocket-pen-for-sketching-and-drawing)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=kaweco-steel-sport-mechanical-pencil-minimalist-durable-stylish-pocket-pen-for-sketching-and-drawing"><img alt="kaweco-steel-sport-mechanical-pencil-0-7-mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kaweco-steel-sport-mechanical-pencil-0-7-mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=kaweco-steel-sport-mechanical-pencil-minimalist-durable-stylish-pocket-pen-for-sketching-and-drawing"><img alt="kaweco-steel-sport-mechanical-pencil-0-7-mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kaweco-steel-sport-mechanical-pencil-0-7-mm-1/h=540,fit=pad,background=black"/></a></div>
 
 Using the Kaweco Steel Sport mechanical pencil for a while, I have to say it brings a fresh twist to my daily sketching routine. The sleek stainless steel finish is quite a looker, and the solid-feeling build makes me feel confident about taking it on-the-go. The 0.7mm line width is a great choice for drawing intricate details, and the reliable push mechanism means I'll never have to worry about dulling refills when I'm on the move. 
 
 One little drawback I noticed is that I had to purchase the lead refills separately, which was a small inconvenience. However, the Kaweco's sturdy design, smooth writing experience, and its perfect compact size make up for any minor issues. Overall, I'd highly recommend the Kaweco Steel Sport mechanical pencil for those seeking a high-quality and stylish pen that's perfect for both daily use and more creative endeavors. 
 
 
-### [Full Metal Luxurious Jacket Pineider Pencil](https://serp.ly/amazon/Metal+Pencils?utm\_term=full-metal-luxurious-jacket-pineider-pencil)
+### [Full Metal Luxurious Jacket Pineider Pencil](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=full-metal-luxurious-jacket-pineider-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=full-metal-luxurious-jacket-pineider-pencil"><img alt="pineider-full-metal-jacket-pencil-midnight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pineider-full-metal-jacket-pencil-midnight-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=full-metal-luxurious-jacket-pineider-pencil"><img alt="pineider-full-metal-jacket-pencil-midnight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pineider-full-metal-jacket-pencil-midnight-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Pineider Full Metal Jacket Pencil is a sleek and sophisticated choice for anyone looking for a stylish mechanical pencil. The midnight black hue gives the pencil an elegant touch, perfect for those who appreciate a luxury feel in their stationery. One of the top features that stood out to me is the twist action extension of the lead, which is both practical and a pleasure to use. 
 
@@ -80,9 +80,9 @@ While the pencil is fitted with 0.5mm HB leads, I found that the lead could some
 The true shining point of this pencil is the presentation it comes in; the luxury Pineider gift box adds a touch of elegance to any gift or stationery collection. Overall, the Pineider Full Metal Jacket Pencil is a stylish and practical choice that I would definitely recommend to anyone looking for a high-quality mechanical pencil. 
 
 
-### [Durable Metacil Metal Pencil for Long-Lasting Writing](https://serp.ly/amazon/Metal+Pencils?utm\_term=durable-metacil-metal-pencil-for-long-lasting-writing)
+### [Durable Metacil Metal Pencil for Long-Lasting Writing](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=durable-metacil-metal-pencil-for-long-lasting-writing)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=durable-metacil-metal-pencil-for-long-lasting-writing"><img alt="sun-star-metacil-metal-pencil-metallic-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-metallic-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=durable-metacil-metal-pencil-for-long-lasting-writing"><img alt="sun-star-metacil-metal-pencil-metallic-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-metallic-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sun-Star Metacil Metal Pencil is a unique writing instrument with a metallic gray finish. Its innovative metal core allows for both writing and erasing without tiring your hand, as it can withstand significant lead wear and last for long periods of time without needing to be sharpened. 
 
@@ -93,9 +93,9 @@ However, a few drawbacks should be considered, such as the need to find an erase
 Overall, the Sun-Star Metacil Metal Pencil is an intriguing and highly functional writing instrument that is sure to impress those who appreciate its unique metallic appearance and performance. With a rating of 4.8 out of 5, it has earned a solid reputation amongst its users, making it a worthy addition to any stationery enthusiast's collection. 
 
 
-### [Sapphire Blue Caran d'Ache Mechanical Pencil](https://serp.ly/amazon/Metal+Pencils?utm\_term=sapphire-blue-caran-dache-mechanical-pencil)
+### [Sapphire Blue Caran d'Ache Mechanical Pencil](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=sapphire-blue-caran-dache-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=sapphire-blue-caran-dache-mechanical-pencil"><img alt="caran-dache-844-metal-sapphire-blue-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caran-dache-844-metal-sapphire-blue-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=sapphire-blue-caran-dache-mechanical-pencil"><img alt="caran-dache-844-metal-sapphire-blue-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/caran-dache-844-metal-sapphire-blue-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 The Caran d'Ache 844 mechanical pencil, or simply "Blue, " has become my go-to writing instrument. The sleek sapphire blue body is a standout among the sea of black plastic pens, adding a touch of style to my daily routine. 
 
@@ -108,9 +108,9 @@ However, there are a couple of drawbacks to this mechanical pencil. The first is
 In conclusion, the Caran d'Ache 844 mechanical pencil, or "Blue, " has become my preferred writing tool, offering a sleek design, solid durability, and a comfortable writing experience. It's a small but significant luxury in my daily life, and I highly recommend it for anyone in search of a stylish and functional writing instrument. 
 
 
-### [Stylish Metal Mechanical Pencils for Easy Writing and Drawing](https://serp.ly/amazon/Metal+Pencils?utm\_term=stylish-metal-mechanical-pencils-for-easy-writing-and-drawing)
+### [Stylish Metal Mechanical Pencils for Easy Writing and Drawing](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=stylish-metal-mechanical-pencils-for-easy-writing-and-drawing)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=stylish-metal-mechanical-pencils-for-easy-writing-and-drawing"><img alt="mr-pen-mechanical-pencil-metal-0-7mm-2-pack-drafting-pencil-metal-mechanical-pencils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-mechanical-pencil-metal-0-7mm-2-pack-drafting-pencil-metal-mechanical-pencils-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=stylish-metal-mechanical-pencils-for-easy-writing-and-drawing"><img alt="mr-pen-mechanical-pencil-metal-0-7mm-2-pack-drafting-pencil-metal-mechanical-pencils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-mechanical-pencil-metal-0-7mm-2-pack-drafting-pencil-metal-mechanical-pencils-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mr. Pen mechanical pencil is a sleek and professional option for drafting and technical drawing. With its 2 pack featuring 0.7mm lead and 4 spare erasers, this minimalist, all-metal design provides a comfortable grip and a professional appearance. 
 
@@ -119,9 +119,9 @@ Its retractable closure ensures a secure and convenient lead advancement, making
 Despite its small eraser, the Mr. Pen is a reliable and practical choice for a wide range of writing needs. 
 
 
-### [Koh-I-Noor 5358 Metal Mechanical Pencils Set with Pencil Sharpener and Clip - Mine Thickness 3.2 mm - Black and Silver](https://serp.ly/amazon/Metal+Pencils?utm\_term=koh-i-noor-5358-metal-mechanical-pencils-set-with-pencil-sharpener-and-clip-mine-thickness-3-2-mm-black-and-silver)
+### [Koh-I-Noor 5358 Metal Mechanical Pencils Set with Pencil Sharpener and Clip - Mine Thickness 3.2 mm - Black and Silver](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=koh-i-noor-5358-metal-mechanical-pencils-set-with-pencil-sharpener-and-clip-mine-thickness-3-2-mm-black-and-silver)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=koh-i-noor-5358-metal-mechanical-pencils-set-with-pencil-sharpener-and-clip-mine-thickness-3-2-mm-black-and-silver"><img alt="koh-i-noor-5358-metal-mechanical-pencils-with-a-pencil-sharpener-and-clip-set-of-2-mine-thickness-3--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/koh-i-noor-5358-metal-mechanical-pencils-with-a-pencil-sharpener-and-clip-set-of-2-mine-thickness-3--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=koh-i-noor-5358-metal-mechanical-pencils-set-with-pencil-sharpener-and-clip-mine-thickness-3-2-mm-black-and-silver"><img alt="koh-i-noor-5358-metal-mechanical-pencils-with-a-pencil-sharpener-and-clip-set-of-2-mine-thickness-3--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/koh-i-noor-5358-metal-mechanical-pencils-with-a-pencil-sharpener-and-clip-set-of-2-mine-thickness-3--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Koh-I-Noor 5358 set of two metal mechanical pencils a whirl, and I must say, they lived up to my expectations. The silver and black finish gives these pencils a sleek and professional look. The set includes two pencils, which is perfect for keeping as a spare or sharing with a colleague. 
 
@@ -132,9 +132,9 @@ As a fan of Koh-I-Noor Hardtmuth, I found that this set of mechanical pencils up
 The pencils themselves are 90 mm long and have a diameter of 12.8 cm, which feels just right in the hand. I appreciated that they were comfortable to use, especially during long drawing sessions. Overall, the Koh-I-Noor 5358 set of two metal mechanical pencils is a worthy addition to any stationery collection and a reliable choice for artists and writers alike. 
 
 
-### [Industrial-Grade Metacil Metal Pencil in Navy](https://serp.ly/amazon/Metal+Pencils?utm\_term=industrial-grade-metacil-metal-pencil-in-navy)
+### [Industrial-Grade Metacil Metal Pencil in Navy](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=industrial-grade-metacil-metal-pencil-in-navy)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=industrial-grade-metacil-metal-pencil-in-navy"><img alt="sun-star-metacil-metal-pencil-navy-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-navy-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=industrial-grade-metacil-metal-pencil-in-navy"><img alt="sun-star-metacil-metal-pencil-navy-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sun-star-metacil-metal-pencil-navy-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sun-Star Metacil Metal Pencil in Navy is a unique writing instrument that offers a satisfying experience for those who appreciate quality. Made from a special alloy containing graphite, this pencil provides a durable core that allows for long-lasting writing. The metal target ensures smooth gliding on paper, while the erasable core mimics a regular pencil's erasability without any hassle. 
 
@@ -147,9 +147,9 @@ The metal pencil's construction adds a touch of sophistication, making it a styl
 In conclusion, the Sun-Star Metacil Metal Pencil in Navy is a well-built, ergonomic, and eco-friendly writing instrument that offers a smooth and enjoyable writing experience. Its versatility makes it suitable for various applications, including drafting, sketching, and note-taking. Despite minor drawbacks, the pencil's pros far outweigh the cons, making it a valuable investment for anyone in search of a high-quality writing instrument. 
 
 
-### [Nicpro 6-Piece Art Metal Drafting Pencil Set with 2mm Graphite Lead Holders (2B HB 2H)](https://serp.ly/amazon/Metal+Pencils?utm\_term=nicpro-6-piece-art-metal-drafting-pencil-set-with-2mm-graphite-lead-holders-2b-hb-2h)
+### [Nicpro 6-Piece Art Metal Drafting Pencil Set with 2mm Graphite Lead Holders (2B HB 2H)](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=nicpro-6-piece-art-metal-drafting-pencil-set-with-2mm-graphite-lead-holders-2b-hb-2h)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=nicpro-6-piece-art-metal-drafting-pencil-set-with-2mm-graphite-lead-holders-2b-hb-2h"><img alt="nicpro-6pcs-art-mechanical-pencils-set-3-pcs-metal-drafting-pencil-0-5-mm-0-7-mm-0-9-mm-and-3-pcs-2m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nicpro-6pcs-art-mechanical-pencils-set-3-pcs-metal-drafting-pencil-0-5-mm-0-7-mm-0-9-mm-and-3-pcs-2m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=nicpro-6-piece-art-metal-drafting-pencil-set-with-2mm-graphite-lead-holders-2b-hb-2h"><img alt="nicpro-6pcs-art-mechanical-pencils-set-3-pcs-metal-drafting-pencil-0-5-mm-0-7-mm-0-9-mm-and-3-pcs-2m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nicpro-6pcs-art-mechanical-pencils-set-3-pcs-metal-drafting-pencil-0-5-mm-0-7-mm-0-9-mm-and-3-pcs-2m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nicpro 6pcs Art Mechanical Pencils Set is a versatile collection of drafting pencils, featuring both metal and graphite lead holders. Ideal for artists, professionals, teachers, and students alike, these mechanical pencils cater to a range of tasks from writing and drafting to sketching and engineering. The set comes with 6 different pencils, each equipped with leads ranging from 0.5mm to 2.0mm and varying in degree of hardness. 
 
@@ -158,9 +158,9 @@ One of the standout features of this set is the brass mechanism, which ensures p
 Additionally, the product comes with a variety of accessories, including 3 erasers, 6 cap eraser refills, 2 lead sharpeners, and a convenient storage case. Ideal for both beginners and experienced users, the Nicpro 6pcs Art Mechanical Pencils Set offers a range of high-quality, durable options for all your writing and sketching needs. 
 
 
-### [Lamy Logo Brushed Stainless Steel Mechanical Pencil](https://serp.ly/amazon/Metal+Pencils?utm\_term=lamy-logo-brushed-stainless-steel-mechanical-pencil)
+### [Lamy Logo Brushed Stainless Steel Mechanical Pencil](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=lamy-logo-brushed-stainless-steel-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=lamy-logo-brushed-stainless-steel-mechanical-pencil"><img alt="stainless-steel-lamy-logo-brushed-mechanical-pencil-0-7mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stainless-steel-lamy-logo-brushed-mechanical-pencil-0-7mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=lamy-logo-brushed-stainless-steel-mechanical-pencil"><img alt="stainless-steel-lamy-logo-brushed-mechanical-pencil-0-7mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stainless-steel-lamy-logo-brushed-mechanical-pencil-0-7mm-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the brushed stainless steel Lamy Logo mechanical pencil, and it has become my go-to writing instrument in no time. The brushed finish gives it a premium look and feel, while the sturdy build makes it perfect for daily use. 
 
@@ -169,9 +169,9 @@ One aspect that stood out for me is the 0.7mm lead, which delivers a smooth and 
 However, one downside I noticed is that the pencil tends to roll around on a desk due to its weight, so I often have to be cautious when I set it down. Despite this small inconvenience, the brushed stainless steel Lamy Logo mechanical pencil has been a fantastic addition to my daily routine. 
 
 
-### [Pentel Orenz Metal Grip 0.3mm Gold Mechanical Pencil](https://serp.ly/amazon/Metal+Pencils?utm\_term=pentel-orenz-metal-grip-0-3mm-gold-mechanical-pencil)
+### [Pentel Orenz Metal Grip 0.3mm Gold Mechanical Pencil](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=pentel-orenz-metal-grip-0-3mm-gold-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=pentel-orenz-metal-grip-0-3mm-gold-mechanical-pencil"><img alt="pentel-orenz-metal-grip-mechanical-pencil-0-3mm-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pentel-orenz-metal-grip-mechanical-pencil-0-3mm-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=pentel-orenz-metal-grip-0-3mm-gold-mechanical-pencil"><img alt="pentel-orenz-metal-grip-mechanical-pencil-0-3mm-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pentel-orenz-metal-grip-mechanical-pencil-0-3mm-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 In my pursuit of finding a comfortable and reliable mechanical pencil, I stumbled upon the Pentel Orenz Metal Grip Mechanical Pencil. After using it for a while, I found it to be a unique and effective solution to the common annoyances of using pencils. 
 
@@ -180,18 +180,18 @@ The first thing that struck me was the ergonomic design of the pencil, with a me
 However, there were a couple of minor drawbacks. I noticed that the eraser refill was not included in the package, which I found slightly inconvenient. Additionally, the pencil had only one sheet of packaging paper, which is something I would have appreciated more. Overall, the Pentel Orenz Metal Grip Mechanical Pencil has proven to be a trustworthy companion in my writing journey, and I would highly recommend it to anyone in search of a comfortable grip and a good writing experience. 
 
 
-### [Silver Chromagraphic Mechanical Pencil by All Metal - Precise Writing](https://serp.ly/amazon/Metal+Pencils?utm\_term=silver-chromagraphic-mechanical-pencil-by-all-metal-precise-writing)
+### [Silver Chromagraphic Mechanical Pencil by All Metal - Precise Writing](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=silver-chromagraphic-mechanical-pencil-by-all-metal-precise-writing)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=silver-chromagraphic-mechanical-pencil-by-all-metal-precise-writing"><img alt="all-metal-chromagraphic-mechanical-pencil-9mm-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/all-metal-chromagraphic-mechanical-pencil-9mm-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=silver-chromagraphic-mechanical-pencil-by-all-metal-precise-writing"><img alt="all-metal-chromagraphic-mechanical-pencil-9mm-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/all-metal-chromagraphic-mechanical-pencil-9mm-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 The All Metal Chromagraphic Mechanical Pencil with a line size of 0.9mm offers a smooth writing experience. The silver-toned metal body is durable and resistant to wear and tear, ensuring it lasts for a long time. 
 
 Its retractable feature keeps the pencil tip clean, while the non-slip grip provides a comfortable handle for right-handed users. The degree indicator helps with precision, and the eraser under the cap is handy for corrections. It's perfect for drawing and writing, making it a versatile tool for creatives. 
 
 
-### [Mr. Pen Premium Metal Mechanical Pencil Set](https://serp.ly/amazon/Metal+Pencils?utm\_term=mr-pen-premium-metal-mechanical-pencil-set)
+### [Mr. Pen Premium Metal Mechanical Pencil Set](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=mr-pen-premium-metal-mechanical-pencil-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=mr-pen-premium-metal-mechanical-pencil-set"><img alt="mr-pen-metal-mechanical-pencil-set-0-7mm-3-pack-0-7-mechanical-pencils-mechanical-pencil-7-sketching-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-0-7mm-3-pack-0-7-mechanical-pencils-mechanical-pencil-7-sketching-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=mr-pen-premium-metal-mechanical-pencil-set"><img alt="mr-pen-metal-mechanical-pencil-set-0-7mm-3-pack-0-7-mechanical-pencils-mechanical-pencil-7-sketching-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-0-7mm-3-pack-0-7-mechanical-pencils-mechanical-pencil-7-sketching-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mr. Pen Metal Mechanical Pencil Set is a top-notch choice for all your writing and sketching needs. With 3 premium 0.7mm mechanical pencils, each crafted for precision and ease, this set is truly a must-have for every sketching enthusiast. 
 
@@ -202,18 +202,18 @@ This metal pencil set is perfect for students, professionals, and artists alike,
 However, it's essential to note that some users might find the set a bit heavy for extended use. Overall, the Mr. Pen Metal Mechanical Pencil Set is an excellent investment ideal for those who require precision, ease, and durability in their writing and sketching tools. 
 
 
-### [Pacific Arc Chromagraph Stainless Steel Mechanical Pencil](https://serp.ly/amazon/Metal+Pencils?utm\_term=pacific-arc-chromagraph-stainless-steel-mechanical-pencil)
+### [Pacific Arc Chromagraph Stainless Steel Mechanical Pencil](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=pacific-arc-chromagraph-stainless-steel-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=pacific-arc-chromagraph-stainless-steel-mechanical-pencil"><img alt="pacific-arc-chromagraph-metal-mechanical-pencil-5-mm-silver-barrel-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pacific-arc-chromagraph-metal-mechanical-pencil-5-mm-silver-barrel-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=pacific-arc-chromagraph-stainless-steel-mechanical-pencil"><img alt="pacific-arc-chromagraph-metal-mechanical-pencil-5-mm-silver-barrel-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pacific-arc-chromagraph-metal-mechanical-pencil-5-mm-silver-barrel-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 Elevate your drawing skills with the Pacific Arc Chromagraph Metal Mechanical Pencil. The sleek, durable stainless steel body ensures long-lasting usage, while the knurled grip allows for a comfortable, secure hold. The precise line size of 0.5mm makes it perfect for artists, architects, and engineers alike, creating detailed and intricate designs. 
 
 The pencil features a refillable eraser and a pocket clip for convenient carrying, along with a sharpener incorporated within the cap. Although the metal body may not be preferred by some for everyday use, the Pacific Arc Chromagraph's durability offers excellent quality, making it a top choice for both precision and style. 
 
 
-### [Metal Mechanical Pencil Set with Refills for Smooth Writing](https://serp.ly/amazon/Metal+Pencils?utm\_term=metal-mechanical-pencil-set-with-refills-for-smooth-writing)
+### [Metal Mechanical Pencil Set with Refills for Smooth Writing](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=metal-mechanical-pencil-set-with-refills-for-smooth-writing)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=metal-mechanical-pencil-set-with-refills-for-smooth-writing"><img alt="mr-pen-metal-mechanical-pencils-set-with-lead-and-eraser-refills-3-pack-1-3-mm-mechanical-pencil-met-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencils-set-with-lead-and-eraser-refills-3-pack-1-3-mm-mechanical-pencil-met-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=metal-mechanical-pencil-set-with-refills-for-smooth-writing"><img alt="mr-pen-metal-mechanical-pencils-set-with-lead-and-eraser-refills-3-pack-1-3-mm-mechanical-pencil-met-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencils-set-with-lead-and-eraser-refills-3-pack-1-3-mm-mechanical-pencil-met-1/h=540,fit=pad,background=black"/></a></div>
 
 Enhance your drawing and writing experience with the Mr. Pen mechanical pencil set, featuring a sleek metal design and perfect for all skill levels. With this set, you'll receive three 1.3 mm pencils, three standard erasers, and both lead and eraser refills for uninterrupted creativity. 
 
@@ -222,9 +222,9 @@ The reliable and sturdy lead provides a smooth writing experience, allowing you 
 The ergonomic design ensures comfort for both left and right-handed users, making it a great choice for art enthusiasts and office workers alike. 
 
 
-### [Mr. Pen Premium Drafting and Sketching Pencils](https://serp.ly/amazon/Metal+Pencils?utm\_term=mr-pen-premium-drafting-and-sketching-pencils)
+### [Mr. Pen Premium Drafting and Sketching Pencils](https://serp.ly/@outrun/amazon/Metal+Pencils?utm\_term=mr-pen-premium-drafting-and-sketching-pencils)
 
-<div class="image"><a href="https://serp.ly/amazon/Metal+Pencils?utm_term=mr-pen-premium-drafting-and-sketching-pencils"><img alt="mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-0-3-0-5-0-7-0-9-2mm-drafting-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-0-3-0-5-0-7-0-9-2mm-drafting-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Metal+Pencils?utm_term=mr-pen-premium-drafting-and-sketching-pencils"><img alt="mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-0-3-0-5-0-7-0-9-2mm-drafting-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-0-3-0-5-0-7-0-9-2mm-drafting-1/h=540,fit=pad,background=black"/></a></div>
 
 This metal mechanical pencil set is perfect for all, from architects and artists to professionals, students, and teachers. The minimalistic all-metal design gives it a professional look and a comfortable grip for writing. 
 

@@ -14,27 +14,27 @@ Black pencils are a classic writing tool, perfect for sketching or taking notes.
 ## Reviews
 
 
-### [Faber-Castell PITT Black Pencil - Rich, Smudge-Proof and Water-Resistant Art Pencils](https://serp.ly/amazon/Black+Pencils?utm\_term=faber-castell-pitt-black-pencil-rich-smudge-proof-and-water-resistant-art-pencils)
+### [Faber-Castell PITT Black Pencil - Rich, Smudge-Proof and Water-Resistant Art Pencils](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=faber-castell-pitt-black-pencil-rich-smudge-proof-and-water-resistant-art-pencils)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=faber-castell-pitt-black-pencil-rich-smudge-proof-and-water-resistant-art-pencils"><img alt="faber-castell-pitt-oil-pencil-soft-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faber-castell-pitt-oil-pencil-soft-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=faber-castell-pitt-black-pencil-rich-smudge-proof-and-water-resistant-art-pencils"><img alt="faber-castell-pitt-oil-pencil-soft-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faber-castell-pitt-oil-pencil-soft-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Faber-Castell Pitt Black Pencils and was thoroughly impressed with the smooth blending and rich black pigment they provide. With 5 different degrees of softness to choose from, they offer a versatile range for various drawing and shading techniques. I found the pencils to be long-lasting and resistant to smudging, making them perfect for both professional artists and beginners. 
 
 One aspect I particularly enjoyed was their ability to create deep, dark shadows and highlights, adding dimension and depth to my artwork. However, I noticed that they can be a bit challenging to sharpen, as they tend to break halfway when using an electric sharpener. Overall, I believe the Faber-Castell Pitt Black Pencils are a must-have addition to any artist's toolkit and have become my go-to choice for creating stunning, detailed drawings. 
 
 
-### [Uni Kuru Toga Black Mechanical Pencil 0.3 mm](https://serp.ly/amazon/Black+Pencils?utm\_term=uni-kuru-toga-black-mechanical-pencil-0-3-mm)
+### [Uni Kuru Toga Black Mechanical Pencil 0.3 mm](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=uni-kuru-toga-black-mechanical-pencil-0-3-mm)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=uni-kuru-toga-black-mechanical-pencil-0-3-mm"><img alt="uni-kuru-toga-mechanical-pencil-0-3-mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-mechanical-pencil-0-3-mm-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=uni-kuru-toga-black-mechanical-pencil-0-3-mm"><img alt="uni-kuru-toga-mechanical-pencil-0-3-mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-mechanical-pencil-0-3-mm-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As a writer, I always appreciate the perfect strokes on paper, and the Uni Kuru Toga Mechanical Pencil, 0.3 mm, Black, is my new go-to for just that. While writing, it keeps the core sharp, eliminating the hassle of chisel edges that often come with mechanical pencils. The unique auto-rotate feature ensures the lead stays fresh and sharp for longer, and I can rely on this pencil for all my writing needs, be it journal entries or scribbling notes. 
 
 The only downside I've come across is the fragility of the pencil's plastic body. Despite the ergonomic design, it doesn't seem as sturdy as other mechanical pencils. I've found the clip and lead to be quite functional, leading to a comfortable and reliable writing experience. Overall, the Uni Kuru Toga Mechanical Pencil is a must-have for those seeking perfect penmanship and a consistent, sharp writing experience. 
 
 
-### [Uni Kuru Toga Black Mechanical Pencil - Smooth Writing Experience](https://serp.ly/amazon/Black+Pencils?utm\_term=uni-kuru-toga-black-mechanical-pencil-smooth-writing-experience)
+### [Uni Kuru Toga Black Mechanical Pencil - Smooth Writing Experience](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=uni-kuru-toga-black-mechanical-pencil-smooth-writing-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=uni-kuru-toga-black-mechanical-pencil-smooth-writing-experience"><img alt="uni-kuru-toga-mechanical-pencil-pipe-slide-0-5-mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-mechanical-pencil-pipe-slide-0-5-mm-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=uni-kuru-toga-black-mechanical-pencil-smooth-writing-experience"><img alt="uni-kuru-toga-mechanical-pencil-pipe-slide-0-5-mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-mechanical-pencil-pipe-slide-0-5-mm-black-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first tried the Uni Kuru Toga Pipe Slide mechanical pencil, I was immediately intrigued by its unique rotation mechanism. The core turns little by little with every stroke, giving me sharper and thinner lines. This feature really stood out, as it allowed for more precise writing in my notebooks. 
 
@@ -45,9 +45,9 @@ In my daily life, I found this mechanical pencil to be quite comfortable to hold
 Overall, using the Uni Kuru Toga Pipe Slide mechanical pencil has been a rewarding experience. With its unique core rotation mechanism and protective pipe slide system, it offers a level of precision and reliability that is truly unmatched. It may not be perfect, but its pros far outweigh the cons, making it a worthy choice for anyone in need of a high-quality mechanical pencil that is worth every penny. 
 
 
-### [Leuchtturm1917 Black Graphite Pencil for Smooth Writing](https://serp.ly/amazon/Black+Pencils?utm\_term=leuchtturm1917-black-graphite-pencil-for-smooth-writing)
+### [Leuchtturm1917 Black Graphite Pencil for Smooth Writing](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=leuchtturm1917-black-graphite-pencil-for-smooth-writing)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=leuchtturm1917-black-graphite-pencil-for-smooth-writing"><img alt="leuchtturm1917-graphite-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leuchtturm1917-graphite-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=leuchtturm1917-black-graphite-pencil-for-smooth-writing"><img alt="leuchtturm1917-graphite-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leuchtturm1917-graphite-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Leuchtturm1917 Graphite Pencil is a must-have for all sketching enthusiasts. I recently tried one in black and I must say, it was a game-changer for my daily doodling. The pencil is perfectly sized, with a sturdy length of 18 cm, making it ideal for even the most intricate designs. 
 
@@ -58,18 +58,18 @@ The sleek, hexagonal barrel not only looks great but also fits neatly into the p
 However, there was one small downside - no eraser. But honestly, it's a minor issue that doesn't detract from the overall experience of using this stunning pencil. 
 
 
-### [Heavy Weight Pencil for Improved Handwriting and Comfort](https://serp.ly/amazon/Black+Pencils?utm\_term=heavy-weight-pencil-for-improved-handwriting-and-comfort)
+### [Heavy Weight Pencil for Improved Handwriting and Comfort](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=heavy-weight-pencil-for-improved-handwriting-and-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=heavy-weight-pencil-for-improved-handwriting-and-comfort"><img alt="the-pencil-grip-heavy-weight-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-pencil-grip-heavy-weight-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=heavy-weight-pencil-for-improved-handwriting-and-comfort"><img alt="the-pencil-grip-heavy-weight-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-pencil-grip-heavy-weight-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently given the Pencil Grip Heavy Weight Pencil a try, and I must say it has revolutionized my writing experience. This ergonomic pencil, with its weighted design, is not only comfortable to hold but also helps alleviate my hand strain and fatigue. The patented grip provides great support, making it super easy to manage daily writing tasks. 
 
 One of the standout features of this pencil is the weight it offers - it makes writing effortless and keeps my hand muscles relaxed. However, the size of the pencil is one drawback that took some getting used to. Overall, the Pencil Grip Heavy Weight Pencil has become my go-to writing utensil, and it's well worth the investment for anyone suffering from hand strain or simply looking to improve their handwriting. 
 
 
-### [U Brands Cambria Black Mechanical Pencils: Classic Design, Smooth Writing Experience](https://serp.ly/amazon/Black+Pencils?utm\_term=u-brands-cambria-black-mechanical-pencils-classic-design-smooth-writing-experience)
+### [U Brands Cambria Black Mechanical Pencils: Classic Design, Smooth Writing Experience](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=u-brands-cambria-black-mechanical-pencils-classic-design-smooth-writing-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=u-brands-cambria-black-mechanical-pencils-classic-design-smooth-writing-experience"><img alt="u-brands-cambria-mechanical-pencils-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/u-brands-cambria-mechanical-pencils-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=u-brands-cambria-black-mechanical-pencils-classic-design-smooth-writing-experience"><img alt="u-brands-cambria-mechanical-pencils-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/u-brands-cambria-mechanical-pencils-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added U Brands Cambria Mechanical Pencils to my daily life, and I have to say, I'm quite impressed. The sleek, matte black exterior with metal accents adds a touch of elegance to my stationary collection. The medium-point 0.7mm lead writes smoothly, and the erasable lead allows for error-free corrections - perfect for keeping note-taking and journaling mistakes in check. 
 
@@ -78,9 +78,9 @@ What stood out most to me during my experience with these pencils is their sturd
 Despite its minor weaknesses, like the pencil's metal tip that tends to wiggle a bit while writing, these Cambria Mechanical Pencils from U Brands prove to be a reliable and stylish choice for all your writing occasions. With their refillable capabilities, smooth writing performance, and well-thought-out accessories, these pencils are definitely a worthwhile addition to anyone's pen collection. 
 
 
-### [Sleek Black Alpha-Gel Kuru Toga Pencil 0.5mm](https://serp.ly/amazon/Black+Pencils?utm\_term=sleek-black-alpha-gel-kuru-toga-pencil-0-5mm)
+### [Sleek Black Alpha-Gel Kuru Toga Pencil 0.5mm](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=sleek-black-alpha-gel-kuru-toga-pencil-0-5mm)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=sleek-black-alpha-gel-kuru-toga-pencil-0-5mm"><img alt="uni-alpha-gel-kuru-toga-pencil-0-5mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-alpha-gel-kuru-toga-pencil-0-5mm-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=sleek-black-alpha-gel-kuru-toga-pencil-0-5mm"><img alt="uni-alpha-gel-kuru-toga-pencil-0-5mm-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-alpha-gel-kuru-toga-pencil-0-5mm-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine a world where you can write effortlessly, without the frustration of uneven line widths or the annoyance of a broken pencil. That's exactly what this Uni Alpha-Gel Kuru Toga Pencil 0.5mm - Black promises, and let me tell you, it lives up to its promises. 
 
@@ -93,9 +93,9 @@ But, it's not all sunshine and rainbows. This pencil might be a bit heavy for so
 Overall, this pencil is a game-changer. If you're tired of fidgeting with your pencil, looking for an unbeatable grip, and longing for the perfect mix of comfort and performance, this Uni Alpha-Gel Kuru Toga Pencil 0.5mm - Black might just be your new best friend. 
 
 
-### [Premium Black Pencils for Smooth Writing Experience](https://serp.ly/amazon/Black+Pencils?utm\_term=premium-black-pencils-for-smooth-writing-experience)
+### [Premium Black Pencils for Smooth Writing Experience](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=premium-black-pencils-for-smooth-writing-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=premium-black-pencils-for-smooth-writing-experience"><img alt="ticonderoga-premium-black-pencils-2-24-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ticonderoga-premium-black-pencils-2-24-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=premium-black-pencils-for-smooth-writing-experience"><img alt="ticonderoga-premium-black-pencils-2-24-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ticonderoga-premium-black-pencils-2-24-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 As a writer, I'm always on the hunt for the perfect pen, and when I stumbled upon the Ticonderoga Premium Black Pencils, I was intrigued. Despite being initially drawn to their distinctive green and yellow ferrules, it was the pencil's performance that truly captivated me. 
 
@@ -108,9 +108,9 @@ One small negative point worth mentioning is the eraser. While it's definitely u
 Overall, I'd highly recommend the Ticonderoga Premium Black Pencils to anyone in need of a reliable, comfortable, and high-quality writing tool. Despite the occasional small drawback, the pros far outweigh the cons. 
 
 
-### [Personalized Black Pencils Set: 24 Pieces](https://serp.ly/amazon/Black+Pencils?utm\_term=personalized-black-pencils-set-24-pieces)
+### [Personalized Black Pencils Set: 24 Pieces](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=personalized-black-pencils-set-24-pieces)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=personalized-black-pencils-set-24-pieces"><img alt="24-pc-7-5-personalized-black-pencils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/24-pc-7-5-personalized-black-pencils-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=personalized-black-pencils-set-24-pieces"><img alt="24-pc-7-5-personalized-black-pencils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/24-pc-7-5-personalized-black-pencils-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the opportunity to use the Personalized Black Pencils and I must say, they were a hit! The first thing that caught my attention was the sleek and attractive finish. The black ink was crisp and clear, making it easy to read and write. The pencils were well-made and sturdy, perfect for both kids and adults. 
 
@@ -121,18 +121,18 @@ However, there were a couple of downsides to this product. The pencils rolled ea
 Overall, the Personalized Black Pencils are a fun and attractive way to add a personal touch to writing instruments. While they may not be perfect, they are certainly a great option for those looking to spice up their pencil collection. 
 
 
-### [Luxury Black Lacquer Mechanical Pencil by Scriveiner](https://serp.ly/amazon/Black+Pencils?utm\_term=luxury-black-lacquer-mechanical-pencil-by-scriveiner)
+### [Luxury Black Lacquer Mechanical Pencil by Scriveiner](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=luxury-black-lacquer-mechanical-pencil-by-scriveiner)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=luxury-black-lacquer-mechanical-pencil-by-scriveiner"><img alt="scriveiner-classic-black-lacquer-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scriveiner-classic-black-lacquer-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=luxury-black-lacquer-mechanical-pencil-by-scriveiner"><img alt="scriveiner-classic-black-lacquer-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scriveiner-classic-black-lacquer-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the elegance of luxury writing with the Scriveiner Classic Black Lacquer Mechanical Pencil. Crafted from brass and featuring a stunning black lacquer finish with 24 karat gold accents, this mechanical pencil exudes understated luxury. The Schmidt 0.7mm mechanism ensures smooth, precise writing and sketching, while the pencil's perfect balance and comfort make it a pleasure to use every day. 
 
 Presented in a beautiful gift box, the Scriveiner pencil is a perfect gift for various occasions, making it an ideal choice for Father's Day, Mother's Day, graduation, Christmas, or as a treat for yourself. With a hidden compartment for additional lead refills, this mechanical pencil is more than just a writing instrument; it's a statement of sophistication and class that will impress colleagues and loved ones alike. 
 
 
-### [Premium Drawing Pencils Set for Artists and Beginners - Black](https://serp.ly/amazon/Black+Pencils?utm\_term=premium-drawing-pencils-set-for-artists-and-beginners-black)
+### [Premium Drawing Pencils Set for Artists and Beginners - Black](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=premium-drawing-pencils-set-for-artists-and-beginners-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=premium-drawing-pencils-set-for-artists-and-beginners-black"><img alt="artskills-premium-drawing-pencils-2-5-mm-2b-2h-6b-hb-hardness-black-pack-of-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artskills-premium-drawing-pencils-2-5-mm-2b-2h-6b-hb-hardness-black-pack-of-9/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=premium-drawing-pencils-set-for-artists-and-beginners-black"><img alt="artskills-premium-drawing-pencils-2-5-mm-2b-2h-6b-hb-hardness-black-pack-of-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artskills-premium-drawing-pencils-2-5-mm-2b-2h-6b-hb-hardness-black-pack-of-9/h=540,fit=pad,background=black"/></a></div>
 
 Get your creative juices flowing with the Artskills Premium Drawing Pencils set. These high-quality pencils feature a range of hardness levels - 2H, HB, 2B, and 6B - allowing you to easily blend and create seamless gradients, perfect for adding depth and contrast to your masterpieces. 
 
@@ -143,18 +143,18 @@ Not only are these Artskills Premium Drawing Pencils great for individuals indul
 With a pack of 8 pencils, you'll never run out of leads when it matters the most. So, get your hands on these premium drawing pencils, and let your inner Vincent van Gogh shine through! 
 
 
-### [Express Pencils: 36-Pack Black Hexagon #2 Pencils](https://serp.ly/amazon/Black+Pencils?utm\_term=express-pencils-36-pack-black-hexagon-2-pencils)
+### [Express Pencils: 36-Pack Black Hexagon #2 Pencils](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=express-pencils-36-pack-black-hexagon-2-pencils)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=express-pencils-36-pack-black-hexagon-2-pencils"><img alt="black-hexagon-2-pencil-eraser-36-pack-express-pencils-tm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-hexagon-2-pencil-eraser-36-pack-express-pencils-tm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=express-pencils-36-pack-black-hexagon-2-pencils"><img alt="black-hexagon-2-pencil-eraser-36-pack-express-pencils-tm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-hexagon-2-pencil-eraser-36-pack-express-pencils-tm-1/h=540,fit=pad,background=black"/></a></div>
 
 The Black Hexagon #2 Pencil is a practical and stylish choice for anyone looking to make a statement with their stationery. With its soft and effective eraser, it's perfect for young artists to express their creativity at home, school, or even at events. 
 
 Made in the USA and PMA Approved, these non-toxic pencils feature a durable hexagonal shape that keeps them from rolling off your desk. Users have reported both positive and negative experiences with the product, citing broken pencils and difficulty staying sharpened as potential drawbacks. Overall, the Black Hexagon #2 Pencil is a solid choice for those seeking a classic, reliable pencil with an eye-catching design. 
 
 
-### [Distinctive Black Ambition Pencils by Faber-Castell](https://serp.ly/amazon/Black+Pencils?utm\_term=distinctive-black-ambition-pencils-by-faber-castell)
+### [Distinctive Black Ambition Pencils by Faber-Castell](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=distinctive-black-ambition-pencils-by-faber-castell)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=distinctive-black-ambition-pencils-by-faber-castell"><img alt="faber-castell-ambition-black-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faber-castell-ambition-black-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=distinctive-black-ambition-pencils-by-faber-castell"><img alt="faber-castell-ambition-black-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faber-castell-ambition-black-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience elegance and sophistication with the Faber-Castell Precious Resin Black, Twist pencil. This high-quality pencil boasts a slender, streamlined barrel fashioned from precious resin, ensuring comfort and style. 
 
@@ -163,27 +163,27 @@ The chrome-plated trimmings add a touch of sophistication to its already eye-cat
 It features a break-resistant 0.7mm lead for a smooth writing and drawing experience, along with a convenient replaceable white eraser. The pencil's spring-loaded chrome-plated clip offers a professional appearance while ensuring safety in your work or home setting. With its unique and luxurious design, the Faber-Castell Precious Resin, Twist pencil promises an unforgettable writing experience suitable for both casual and professional use. 
 
 
-### [Retro 51 Hex-O-Matic Black Mechanical Pencil](https://serp.ly/amazon/Black+Pencils?utm\_term=retro-51-hex-o-matic-black-mechanical-pencil)
+### [Retro 51 Hex-O-Matic Black Mechanical Pencil](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=retro-51-hex-o-matic-black-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=retro-51-hex-o-matic-black-mechanical-pencil"><img alt="retro-51-hex-o-matic-black-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/retro-51-hex-o-matic-black-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=retro-51-hex-o-matic-black-mechanical-pencil"><img alt="retro-51-hex-o-matic-black-mechanical-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/retro-51-hex-o-matic-black-mechanical-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 The Retro51 Hex-O-Matic Black Mechanical Pencil, with its 0.7mm graphite lead and attractive black design, is a versatile and sturdy tool perfect for both technical tasks and everyday jotting. Its faceted heavy metal barrel and textured knurled grip area provide both style and comfort, ensuring a non-slip handling experience. The pencil is constructed with a retractable metal sleeve for added safety and features a click-top cap to activate the lead. 
 
 Its eraser is conveniently located under the cap, making it a reliable choice for those looking for a high-quality mechanical pencil. With its durable build and exceptional writing performance, the Hex-O-Matic is sure to impress even the most discerning users. 
 
 
-### [Uni Kuru Toga 0.5mm Sleek Black Mechanical Pencil](https://serp.ly/amazon/Black+Pencils?utm\_term=uni-kuru-toga-0-5mm-sleek-black-mechanical-pencil)
+### [Uni Kuru Toga 0.5mm Sleek Black Mechanical Pencil](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=uni-kuru-toga-0-5mm-sleek-black-mechanical-pencil)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=uni-kuru-toga-0-5mm-sleek-black-mechanical-pencil"><img alt="uni-kuru-toga-0-5mm-mechanical-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-0-5mm-mechanical-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=uni-kuru-toga-0-5mm-sleek-black-mechanical-pencil"><img alt="uni-kuru-toga-0-5mm-mechanical-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uni-kuru-toga-0-5mm-mechanical-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
 
 This Uni Kuru Toga 0.5mm Mechanical Pencil in Black is a true Japanese innovation. Dubbed "Kuru Toga, " which means "auto-rotate pencil" in Japanese, this pencil stands out for its unique mechanism that rotates the lead by 9 degrees every time it is pushed against the paper. This clever design allows the pencil to maintain a sharp point at all times, eliminating the dreaded chisel edges that are prone to breaking. 
 
 What really sets this pencil apart is the smoothness with which it writes. Its performance is praised by a multitude of users who appreciate its consistent quality and dependable rotation mechanism. However, some have noted that the grip can be uncomfortable and would have preferred a metal body. Despite this minor drawback, the pencil's innovative design, comfortable ergonomics, and flawless writing experience make it a must-have tool for anyone who values sharpness and precision. 
 
 
-### [Ebony Sketching Pencil by Prismacolor - Perfect for Graphite Creations](https://serp.ly/amazon/Black+Pencils?utm\_term=ebony-sketching-pencil-by-prismacolor-perfect-for-graphite-creations)
+### [Ebony Sketching Pencil by Prismacolor - Perfect for Graphite Creations](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=ebony-sketching-pencil-by-prismacolor-perfect-for-graphite-creations)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=ebony-sketching-pencil-by-prismacolor-perfect-for-graphite-creations"><img alt="prismacolor-ebony-sketching-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prismacolor-ebony-sketching-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=ebony-sketching-pencil-by-prismacolor-perfect-for-graphite-creations"><img alt="prismacolor-ebony-sketching-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prismacolor-ebony-sketching-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of black pigmentation and precise detailing with the Prismacolor Ebony Sketching Pencil set. These high-quality drawing pencils are engineered to provide a remarkable drawing experience for artists of all skill levels. 
 
@@ -194,9 +194,9 @@ This versatile set is perfect for sketching, portrait and figure drawing, illust
 While some users have experienced occasional breakage, the majority finds the Prismacolor Ebony Sketching Pencils to be a reliable and essential tool for their artistic endeavors. So, if you're looking for a set of pencils that deliver rich, black lines and are backed by a reputable brand, look no further than this high-quality, cost-effective option. 
 
 
-### [Jerry's Artarama Jerry's Jumbo Jet Black Extra Soft Pencil for Smooth, Dark Lines](https://serp.ly/amazon/Black+Pencils?utm\_term=jerrys-artarama-jerrys-jumbo-jet-black-extra-soft-pencil-for-smooth-dark-lines)
+### [Jerry's Artarama Jerry's Jumbo Jet Black Extra Soft Pencil for Smooth, Dark Lines](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=jerrys-artarama-jerrys-jumbo-jet-black-extra-soft-pencil-for-smooth-dark-lines)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=jerrys-artarama-jerrys-jumbo-jet-black-extra-soft-pencil-for-smooth-dark-lines"><img alt="jerrys-artarama-jerrys-jumbo-jet-black-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jerrys-artarama-jerrys-jumbo-jet-black-pencil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=jerrys-artarama-jerrys-jumbo-jet-black-extra-soft-pencil-for-smooth-dark-lines"><img alt="jerrys-artarama-jerrys-jumbo-jet-black-pencil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jerrys-artarama-jerrys-jumbo-jet-black-pencil-1/h=540,fit=pad,background=black"/></a></div>
 
 Jerry's Jumbo Jet Black Extra Soft Pencil offers a delightful drawing experience with its voluminous 5.5mm lead, almost 50% larger than regular pencil leads. Made using oil-impregnated charcoal, this pencil ensures smooth application of thick, solid color with ease. 
 
@@ -205,9 +205,9 @@ Its size makes it perfect for confident drawing, especially for students, and it
 Available in a set of four colors, including black, sepia, white, and sanguine, these pencils are a great addition to any artist's collection. 
 
 
-### [Metacil Stylish Black Pencils](https://serp.ly/amazon/Black+Pencils?utm\_term=metacil-stylish-black-pencils)
+### [Metacil Stylish Black Pencils](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=metacil-stylish-black-pencils)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=metacil-stylish-black-pencils"><img alt="metacil-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/metacil-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=metacil-stylish-black-pencils"><img alt="metacil-pencil-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/metacil-pencil-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine using a pencil that doesn't need sharpening, because it's made of a special alloy containing graphite. That's right, a metal pencil! The core is made of alloy material, but it can be erased with a general eraser like a normal pencil. It's also ideal for drawing watercolors and illustrations since it doesn't bleed with water or water-based markers. 
 
@@ -218,9 +218,9 @@ But what really sets this pencil apart is its versatility. It's not just a great
 Overall, I'm really impressed with the Metacil Pencil Black. Its unique features make it a standout option for both writing and drawing. Sure, there's the occasional issue with the pencil being a bit too soft for some users, but overall, it's a worthy investment that will save you a lot of time and hassle in the long run. 
 
 
-### [Mr. Pen's Metal Mechanical Pencil Set - 5 Sizes, Black, Ideal for School and Office Use](https://serp.ly/amazon/Black+Pencils?utm\_term=mr-pens-metal-mechanical-pencil-set-5-sizes-black-ideal-for-school-and-office-use)
+### [Mr. Pen's Metal Mechanical Pencil Set - 5 Sizes, Black, Ideal for School and Office Use](https://serp.ly/@outrun/amazon/Black+Pencils?utm\_term=mr-pens-metal-mechanical-pencil-set-5-sizes-black-ideal-for-school-and-office-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Black+Pencils?utm_term=mr-pens-metal-mechanical-pencil-set-5-sizes-black-ideal-for-school-and-office-use"><img alt="mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-black-0-3-0-5-0-7-0-9-2mm-dr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-black-0-3-0-5-0-7-0-9-2mm-dr-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Black+Pencils?utm_term=mr-pens-metal-mechanical-pencil-set-5-sizes-black-ideal-for-school-and-office-use"><img alt="mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-black-0-3-0-5-0-7-0-9-2mm-dr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-pen-metal-mechanical-pencil-set-with-lead-and-eraser-refills-5-sizes-black-0-3-0-5-0-7-0-9-2mm-dr-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Mr. Pen mechanical pencil set - a versatile, high-quality tool perfect for everyday use. 
 
@@ -239,7 +239,7 @@ Welcome to our comprehensive buyer's guide for black pencils! This guide is aime
 When choosing a black pencil, several features should be taken into account, such as: 
 1. Lead hardness: Black pencils come in varying degrees of hardness, ranging from HB (hard) to 9B (very soft). Choose a pencil that provides the level of pressure sensitivity and darkness you require. Harder leads produce lighter lines while softer leads offer more versatility in line thickness and lightfastness. 
 
-<div><a href="https://serp.ly/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-2/h=540,fit=pad,background=black" alt="Black-Pencils-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-2/h=540,fit=pad,background=black" alt="Black-Pencils-2" height="540"></a></div>
 
 
 ### Considerations
@@ -253,7 +253,7 @@ Before purchasing a black pencil, consider the following factors:
 To get the most out of your black pencil, follow these tips: 
 1. Keep the pencil sharp: A sharpened pencil ensures a clean and precise line, so regularly use a sharpener or sharpening pencil for optimal performance. 2. Store pencils properly: Keep pencils from accidentally breaking by storing them in a pencil case or box, and avoid placing them in areas prone to temperature or humidity fluctuations. 
 
-<div><a href="https://serp.ly/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-3/h=540,fit=pad,background=black" alt="Black-Pencils-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-3/h=540,fit=pad,background=black" alt="Black-Pencils-3" height="540"></a></div>
 
 
 ### Where to Find Your Perfect Black Pencil
@@ -263,7 +263,7 @@ To find the perfect black pencil for your needs, browse through various statione
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-4/h=540,fit=pad,background=black" alt="Black-Pencils-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-4/h=540,fit=pad,background=black" alt="Black-Pencils-4" height="540"></a></div>
 
 
 ### What are the benefits of using a black pencil?
@@ -279,7 +279,7 @@ The most common black pencils available come in a range of grades, which dictate
 
 A harder pencil, such as a 1H, will produce lighter lines and is ideal for sharp geometric lines or fine details. On the other hand, a softer pencil, like a 90H, will produce darker lines and is suitable for blending and shading. For general drawing purposes, a mid-range grade like 3H or 4H is often recommended. 
 
-<div><a href="https://serp.ly/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-5/h=540,fit=pad,background=black" alt="Black-Pencils-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-5/h=540,fit=pad,background=black" alt="Black-Pencils-5" height="540"></a></div>
 
 
 ### What is the difference between a regular graphite pencil and a black pencil?
@@ -295,7 +295,7 @@ The shelf life of a black pencil can vary greatly depending on how it is stored 
 
 Additionally, continuous usage with heavy, frequent pressure can cause the graphite to break down faster, and the overall lifespan of the pencil may be shortened. To extend the shelf life of a black pencil, avoid applying extreme pressure when drawing and store it in a cool, dry place. Refrain from sharpening the pencil before use as this can also increase friction and wear on the graphite. 
 
-<div><a href="https://serp.ly/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-6/h=540,fit=pad,background=black" alt="Black-Pencils-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Black+Pencils"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Black-Pencils-6/h=540,fit=pad,background=black" alt="Black-Pencils-6" height="540"></a></div>
 
 
 ### What is the erasing property of black pencils?

@@ -14,9 +14,9 @@ Get ready to add some quirky and fun style to your collection with our roundup o
 ## Reviews
 
 
-### [LOL Surprise Miss Celebrate Fashion Doll with Confetti Accessories](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-miss-celebrate-fashion-doll-with-confetti-accessories)
+### [LOL Surprise Miss Celebrate Fashion Doll with Confetti Accessories](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-miss-celebrate-fashion-doll-with-confetti-accessories)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-miss-celebrate-fashion-doll-with-confetti-accessories"><img alt="lol-surprise-omg-present-surprise-series-2-fashion-doll-miss-celebrate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-present-surprise-series-2-fashion-doll-miss-celebrate-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-miss-celebrate-fashion-doll-with-confetti-accessories"><img alt="lol-surprise-omg-present-surprise-series-2-fashion-doll-miss-celebrate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-present-surprise-series-2-fashion-doll-miss-celebrate-1/h=540,fit=pad,background=black"/></a></div>
 
 As a doll enthusiast with a love for the LOL Surprise brand, I was thrilled to give the OMG Present Surprise Miss Celebrate doll a try. The product definitely lived up to my expectations in many ways and offered an exciting playtime experience for my daughter. From the stunning glitter outfit and accessories to the fun details on her outfit, this doll is a true celebration in action. 
 
@@ -27,18 +27,18 @@ On the downside, getting this doll to fit together was quite a challenge, which 
 In conclusion, the OMG Present Surprise Miss Celebrate doll is a fun addition to any LOL Surprise collection for those who appreciate unique and customizable fashion dolls. The doll's high quality, imaginative features, and extensive surprises make it an ideal gift for children looking to unleash their creativity. 
 
 
-### [Introducing Gracie Skates LOL Surprise Tweens Series 2 Fashion Doll](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=introducing-gracie-skates-lol-surprise-tweens-series-2-fashion-doll)
+### [Introducing Gracie Skates LOL Surprise Tweens Series 2 Fashion Doll](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=introducing-gracie-skates-lol-surprise-tweens-series-2-fashion-doll)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=introducing-gracie-skates-lol-surprise-tweens-series-2-fashion-doll"><img alt="lol-surprise-tweens-series-2-gracie-skates-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-2-gracie-skates-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=introducing-gracie-skates-lol-surprise-tweens-series-2-fashion-doll"><img alt="lol-surprise-tweens-series-2-gracie-skates-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-2-gracie-skates-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the magic of the LOL Surprise Tweens Series 2 with Gracie Skates, a skate-loving fashion doll who's all about the roller rink life. With her fun personality and a plethora of accessories, this doll offers hours of imaginative pretend play for kids age 4 and up. 
 
 Gracie Skates is the big sister to LOL Surprise's fan favorite, Baby Next Door, and comes with a special journal that brings her to life. These stylish, adorable dolls make the perfect gift for birthdays and special occasions, encouraging social play and hours of entertainment. Collect all four LOL Surprise Tween dolls and dive into the world of LOL surprises! 
 
 
-### [Lol Surprise Tweens: Stylish Fashion Dolls with 15 Surprises](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-stylish-fashion-dolls-with-15-surprises)
+### [Lol Surprise Tweens: Stylish Fashion Dolls with 15 Surprises](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-stylish-fashion-dolls-with-15-surprises)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-stylish-fashion-dolls-with-15-surprises"><img alt="lol-surprise-tweens-fashion-doll-freshest-with-15-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-fashion-doll-freshest-with-15-surprises-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-stylish-fashion-dolls-with-15-surprises"><img alt="lol-surprise-tweens-fashion-doll-freshest-with-15-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-fashion-doll-freshest-with-15-surprises-1/h=540,fit=pad,background=black"/></a></div>
 
 The LOL Surprise Tweens Fashion Doll is a delightful addition to any collector's lineup. Standing at a fashionable 15.2cm, this doll, named Freshest, boasts a range of stunning features. The doll's hair is meticulously styled, and her accessories are nothing short of dazzling. The reusable packaging that transforms into a bedroom playset is just the icing on the cake. The doll comes with 15 surprises in each box, ensuring that each unboxing experience is a new adventure. 
 
@@ -49,9 +49,9 @@ While all of these features make the LOL Surprise Tween Fashion Doll a must-have
 In conclusion, the LOL Surprise Tweens Fashion Doll is a fantastic choice for those looking to expand their collection of LOL dolls. Its unique features and fun surprises make it a popular choice for both parents and children alike. The only caveat is the occasional issue with the hands and belt falling off, which is minor compared to the overall experience of unboxing and playing with these delightful dolls. 
 
 
-### [L.O.L. Surprise! Mini Doll with Dance Moves and Stylish Outfits](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-mini-doll-with-dance-moves-and-stylish-outfits)
+### [L.O.L. Surprise! Mini Doll with Dance Moves and Stylish Outfits](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-mini-doll-with-dance-moves-and-stylish-outfits)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-mini-doll-with-dance-moves-and-stylish-outfits"><img alt="l-o-l-surprise-mini-move-groove-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-o-l-surprise-mini-move-groove-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-mini-doll-with-dance-moves-and-stylish-outfits"><img alt="l-o-l-surprise-mini-move-groove-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-o-l-surprise-mini-move-groove-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover a magical world of excitement with the L. O. L. Surprise! 
 
@@ -64,9 +64,9 @@ Surprise! Mini Move & Groove Fashion Doll is ready to roll with all the charm an
 But don't forget, these little dolls are best suited for young ones aged 4 years and above and are not recommended for those under the age of 36 months. 
 
 
-### [Lol Surprise Tweens Dance Doll Series 4 Ali Edition](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-dance-doll-series-4-ali-edition)
+### [Lol Surprise Tweens Dance Doll Series 4 Ali Edition](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-dance-doll-series-4-ali-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-dance-doll-series-4-ali-edition"><img alt="lol-surprise-tweens-series-4-ali-dance-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-4-ali-dance-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-dance-doll-series-4-ali-edition"><img alt="lol-surprise-tweens-series-4-ali-dance-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-4-ali-dance-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to the world of Lol Surprise Tweens Series 4 Ali Dance Fashion Doll, the ultimate surprise experience for kids! This fantastic fashion doll is perfect for those seeking quality products for their little ones. With Ali Dance as the main character, kids will be thrilled to discover 15 surprises along with her kickflips and tricks on her stylish purple skateboard. The doll's eloquent dance moves with her amazing pink top and skirt are sure to capture the audience's attention. 
 
@@ -75,9 +75,9 @@ Ali Dance boasts stunning features, beautiful hair, her own unique style, and co
 This adorable fashion doll is fun for kids of all ages and makes an ideal gift for birthdays, Christmas, or just a special treat. Get ready for endless hours of entertainment and imaginative play with your very own Lol Surprise Tweens Series 4 Ali Dance Fashion Doll! Your little ones will love the unboxing experience and the surprises that await them with every doll. 
 
 
-### [LOL Surprise Tweens Marilyn Star Fashion Doll Series 3](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-marilyn-star-fashion-doll-series-3)
+### [LOL Surprise Tweens Marilyn Star Fashion Doll Series 3](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-marilyn-star-fashion-doll-series-3)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-marilyn-star-fashion-doll-series-3"><img alt="lol-surprise-tweens-series-3-marilyn-star-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-3-marilyn-star-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-marilyn-star-fashion-doll-series-3"><img alt="lol-surprise-tweens-series-3-marilyn-star-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-3-marilyn-star-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the LOL Surprise Tween Series Marilyn Star fashion doll, a fabulous addition to any fashion-savvy kid's collection! As soon as I unboxed her, I was caught by surprise at the overwhelming charm of this doll. I'm a huge fan of the series 3 dolls, and Marilyn Star is no exception, packing 15 unique surprises - everything from stylish hair to matching accessories. 
 
@@ -90,9 +90,9 @@ However, there were some things that I noticed. While it was a delight to unpack
 Nevertheless, the overall experience with the Marilyn Star doll was fantastic. The attention to detail, her stunning features, and the immense fun that came with unboxing each surprise made it a worthwhile addition to my collection. So, if you're a kid who loves fashion, surprises, and a bit of glitz and glam, this doll is definitely for you! 
 
 
-### [LOL Surprise Tweens Series 2 Lexi Gurl Fashion Doll](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-series-2-lexi-gurl-fashion-doll)
+### [LOL Surprise Tweens Series 2 Lexi Gurl Fashion Doll](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-series-2-lexi-gurl-fashion-doll)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-series-2-lexi-gurl-fashion-doll"><img alt="lol-surprise-tweens-series-2-lexi-gurl-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-2-lexi-gurl-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-series-2-lexi-gurl-fashion-doll"><img alt="lol-surprise-tweens-series-2-lexi-gurl-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-2-lexi-gurl-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the LOL Surprise Tweens Series 2 Lexi Gurl Fashion Doll - the perfect addition to any young girl's collection. This mid-sized doll is filled with surprises, from her unique appearances to the little outfits and accessories she comes with. Standing at an inch taller than the standard LOL dolls, Lexi Gurl embodies the perfect balance between size and style. 
 
@@ -105,16 +105,16 @@ With a wide variety of colors, styles, and personalities, the Tweens Series 2 do
 In conclusion, the LOL Surprise Tweens Series 2 Lexi Gurl Fashion Doll is a delightful and surprising addition to any collection. With its charming looks, unique features, and endless possibilities, it's the perfect gift for any girl who loves to play, dream, and collect. 
 
 
-### [Lol Surprise OMG Swag Fashion Doll - Chic & Stylish Accessories](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-swag-fashion-doll-chic-stylish-accessories)
+### [Lol Surprise OMG Swag Fashion Doll - Chic & Stylish Accessories](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-swag-fashion-doll-chic-stylish-accessories)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-swag-fashion-doll-chic-stylish-accessories"><img alt="lol-surprise-omg-swag-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-swag-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-swag-fashion-doll-chic-stylish-accessories"><img alt="lol-surprise-omg-swag-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-swag-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare for a stylish surprise with the Lol Trend Alert High Fashion Doll, showcasing an array of exquisite fashions and accessories! With a fashionable diva that captivates your imagination and a dynamic doll that can be transformed from day to night, this high-quality doll is sure to make a splash. Discover a world of endless possibilities and unleash your creativity with this fabulous high-fashion doll and its fabulous array of glamourous outfits and accessories! 
 
 
-### [Lol Surprise! Curls Swap Fashion Doll Set](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-curls-swap-fashion-doll-set)
+### [Lol Surprise! Curls Swap Fashion Doll Set](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-curls-swap-fashion-doll-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-curls-swap-fashion-doll-set"><img alt="lol-surprise-tweens-surprise-swap-fashion-doll-curls-2-crimps-cora-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-surprise-swap-fashion-doll-curls-2-crimps-cora-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-curls-swap-fashion-doll-set"><img alt="lol-surprise-tweens-surprise-swap-fashion-doll-curls-2-crimps-cora-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-surprise-swap-fashion-doll-curls-2-crimps-cora-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready for some unstoppable fun with Lol Surprise! Tweens Surprise Swap Fashion Doll - Curls -2- Crimps Cora. This adorable doll comes complete with two unique looks and an endless possibility of styling options. The interchangeable head allows you to transform her hairstyle in a flash, giving her a whole new look every time you play. 
 
@@ -127,9 +127,9 @@ At approximately 17 cm tall, Cora makes a stylishly charming addition to any fas
 In summary, the Lol Surprise! Tweens Surprise Swap Fashion Doll - Curls -2- Crimps Cora is a unique and exciting addition to any toy collection, perfect for any young fashionista looking to keep up with the latest trends. With the endless styling options and the thrill of the 20+ surprises, Cora is sure to provide hours of entertainment. 
 
 
-### [Lol Surprise OMG Fashion Show Hair Edition Doll](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-hair-edition-doll)
+### [Lol Surprise OMG Fashion Show Hair Edition Doll](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-hair-edition-doll)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-hair-edition-doll"><img alt="lol-surprise-omg-fashion-show-hair-edition-lady-braids-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-hair-edition-lady-braids-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-hair-edition-doll"><img alt="lol-surprise-omg-fashion-show-hair-edition-lady-braids-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-hair-edition-lady-braids-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 This Lol Surprise doll is a fashionista's dream, boasting of long flowy hair that is perfect for braiding and creating unique styles. Lady Braids comes with Magic Mousse, allowing you to style her hair into countless looks without the need for heat. But, be prepared for a little disappointment as the Magic Mousse is not available separately and can only be used for four hairstyles before it runs out. 
 
@@ -142,9 +142,9 @@ Just a heads up, the packaging could be a little better as it can create a lot o
 In conclusion, Lady Braids is a must-have addition to the Lol Surprise collection. With an endless array of hairstyles, it has captured the hearts of both children and adults alike. Despite the Magic Mousse being a one-time use, the overall satisfaction of the doll makes up for it. A perfect gift for any doll enthusiast! 
 
 
-### [Lol Surprise: Queendom Collection 9 Surprise Sized Dolls](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-queendom-collection-9-surprise-sized-dolls)
+### [Lol Surprise: Queendom Collection 9 Surprise Sized Dolls](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-queendom-collection-9-surprise-sized-dolls)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-queendom-collection-9-surprise-sized-dolls"><img alt="lol-surprise-queens-dolls-with-9-surprises-doll-fashions-royal-accessories-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-queens-dolls-with-9-surprises-doll-fashions-royal-accessories-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-queendom-collection-9-surprise-sized-dolls"><img alt="lol-surprise-queens-dolls-with-9-surprises-doll-fashions-royal-accessories-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-queens-dolls-with-9-surprises-doll-fashions-royal-accessories-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lol Surprise Tot Queens Doll with 9 Surprises is a delightful and colorful plaything for kids. I received one as a gift and was instantly captivated by the glut of surprises you can unbox, ranging from fashions to majestic accessories. The ball itself, which transforms into a wearable tiara, felt slightly underwhelming, but overall, it's a fun and engaging way for kids to interact and develop their imagination. 
 
@@ -153,9 +153,9 @@ One highlight that stood out was the surprise color-change feature when the doll
 Despite its minor drawbacks, providing hours of playtime with its siblings and friends, these dolls make for great, surpriseladen gifts for special occasions. 
 
 
-### [Lol Surprise OMG Speedster Fashion Doll](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-speedster-fashion-doll)
+### [Lol Surprise OMG Speedster Fashion Doll](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-speedster-fashion-doll)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-speedster-fashion-doll"><img alt="lol-surprise-omg-speedster-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-speedster-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-speedster-fashion-doll"><img alt="lol-surprise-omg-speedster-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-speedster-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 Speedster, the ideal choice for those seeking top-quality products for their little ones. Get ready to dance your way to the stars with Cosmic Nova, a re-release of the beloved Cosmic Queen character. 
 
@@ -164,9 +164,9 @@ Experience endless hours of imaginative play as you explore the cosmos and rock 
 Not only do they provide hours of social play with siblings and friends, but they also help develop the imagination. 
 
 
-### [Lol Surprise OMG Queens Runway Diva Fashion Doll: 20 Surprises for Ages 3+](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-queens-runway-diva-fashion-doll-20-surprises-for-ages-3)
+### [Lol Surprise OMG Queens Runway Diva Fashion Doll: 20 Surprises for Ages 3+](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-queens-runway-diva-fashion-doll-20-surprises-for-ages-3)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-queens-runway-diva-fashion-doll-20-surprises-for-ages-3"><img alt="lol-surprise-omg-queens-runway-diva-fashion-doll-with-20-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-queens-runway-diva-fashion-doll-with-20-surprises-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-queens-runway-diva-fashion-doll-20-surprises-for-ages-3"><img alt="lol-surprise-omg-queens-runway-diva-fashion-doll-with-20-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-queens-runway-diva-fashion-doll-with-20-surprises-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I stumbled upon the Runway Diva Queen, a Lol Surprise OMG toy that stole my heart. It was a delight to unbox the 20 surprises hidden within - accessories, clothes, shoes, and even a hairbrush - that accompanied her on her fashion journey. 
 
@@ -175,27 +175,27 @@ Standing at just 30.5 cm, the doll is the perfect size for little hands to play 
 The overall quality of the Runway Diva Queen is top-notch, making it a worthwhile addition to their collection. My daughter loves the various surprises she uncovers every time she plays with it. My only critique is that she wishes there was more choice in the characters that come with the doll set. Nonetheless, our experience with this Runway Diva Queen has been positive, leaving us excited to see what other surprises Lol Surprise OMG has in store! 
 
 
-### [Lol Surprise OMG Movie Magic Fashion Dolls Tough Dude & Pink Chick 2 Pack](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-movie-magic-fashion-dolls-tough-dude-pink-chick-2-pack)
+### [Lol Surprise OMG Movie Magic Fashion Dolls Tough Dude & Pink Chick 2 Pack](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-movie-magic-fashion-dolls-tough-dude-pink-chick-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-movie-magic-fashion-dolls-tough-dude-pink-chick-2-pack"><img alt="lol-surprise-omg-movie-magic-2-pack-fashion-dolls-tough-dude-pink-chick-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-movie-magic-2-pack-fashion-dolls-tough-dude-pink-chick-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-movie-magic-fashion-dolls-tough-dude-pink-chick-2-pack"><img alt="lol-surprise-omg-movie-magic-2-pack-fashion-dolls-tough-dude-pink-chick-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-movie-magic-2-pack-fashion-dolls-tough-dude-pink-chick-1/h=540,fit=pad,background=black"/></a></div>
 
 Lol Surprise OMG Movie Magic 2 Pack Fashion Dolls, featuring the dynamic duo of Tough Dude and Pink Chick, have recently become my favorite addition to my collection. The dolls are beautifully designed, and their pre-styled hair adds a playful touch to each of their unique personalities. What stood out to me most is the packaging, which doubles as a reusable playset and theater. I love the idea of using the box to give my kids hours of imaginative playtime, showcasing their creativity and making the experience even more enjoyable. 
 
 One thing I did notice was that the dolls' outfits were slightly less durable than I had hoped. However, this was quickly overshadowed by the countless hours of fun and entertainment my kids have derived from these Movie Magic 2 Packs. Overall, the high-quality materials, endless hours of imaginative play, and the unique concept make this product a standout in our collection. 
 
 
-### [LOL Surprise Tweens Emma Fashion Doll: Be-Tween, Reusable Packaging, and 15 Surprises](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-emma-fashion-doll-be-tween-reusable-packaging-and-15-surprises)
+### [LOL Surprise Tweens Emma Fashion Doll: Be-Tween, Reusable Packaging, and 15 Surprises](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-tweens-emma-fashion-doll-be-tween-reusable-packaging-and-15-surprises)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-emma-fashion-doll-be-tween-reusable-packaging-and-15-surprises"><img alt="lol-surprise-tweens-series-3-emma-emo-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-3-emma-emo-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-tweens-emma-fashion-doll-be-tween-reusable-packaging-and-15-surprises"><img alt="lol-surprise-tweens-series-3-emma-emo-fashion-doll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-tweens-series-3-emma-emo-fashion-doll-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lol Surprise Tweens Series 3 Emma Emo Fashion Doll is a unique addition to any doll collection. With a height of 10 inches, this doll is perfect for little hands to play with. Emma Emo boasts vibrant colors and a fierce outfit that both children and adults appreciate. The doll comes with accessories and a journal, adding to the excitement upon unboxing. 
 
 However, some customers were disappointed with the number of surprise elements included, with only three surprises found inside. Additionally, the box design could be more appealing to potential buyers. Overall, the Lol Surprise Tweens Series 3 Emma Emo Fashion Doll provides a delightful surprise and a fun addition to any doll lover's collection. 
 
 
-### [Lol Surprise Omg Fashion Show LaRose Doll Set](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-larose-doll-set)
+### [Lol Surprise Omg Fashion Show LaRose Doll Set](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-larose-doll-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-larose-doll-set"><img alt="lol-surprise-omg-fashion-show-larose-fashion-doll-style-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-larose-fashion-doll-style-edition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-larose-doll-set"><img alt="lol-surprise-omg-fashion-show-larose-fashion-doll-style-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-larose-fashion-doll-style-edition-1/h=540,fit=pad,background=black"/></a></div>
 
 Oh, if you've ever seen these Lol Surprise Omg fashion dolls, they're the ultimate fashion statement for young kids. LaRose, here, is an absolute boss on the runway, and her love for styling means she's always up for a new look. 
 
@@ -210,9 +210,9 @@ The only thing I'm not quite sold on is the durability. With so many tiny pieces
 Other than that, you're looking at a solid product that your child will surely love. So, if you're planning a fashion show and need a doll to join in on the fun, your search ends right here with LaRose. Remember, you're not just buying a toy, you're giving a kid a world of fashion to explore. 
 
 
-### [Lol Surprise Omg Pose Fashion Doll: Discover Her Multiple Surprises](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-pose-fashion-doll-discover-her-multiple-surprises)
+### [Lol Surprise Omg Pose Fashion Doll: Discover Her Multiple Surprises](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-pose-fashion-doll-discover-her-multiple-surprises)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-pose-fashion-doll-discover-her-multiple-surprises"><img alt="lol-surprise-omg-pose-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-pose-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-pose-fashion-doll-discover-her-multiple-surprises"><img alt="lol-surprise-omg-pose-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-pose-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine walking into a magical wonderland where fashion and fun collide. That's exactly what you get with the LOL Surprise OMG Pose Fashion Doll. This doll is not just a toy, it's a ticket to a world of imagination and style that can be held in the palm of your hand. As soon as I opened the box, I was greeted with a whirlwind of excitement and surprise. 
 
@@ -227,9 +227,9 @@ In terms of the toys themselves, they are of great quality and detail. They make
 Overall, the LOL Surprise OMG Pose Fashion Doll is like a hidden treasure waiting to be discovered. It's vibrant, stylish, and a whole lot of fun. It's a perfect additions to the collection for kids of all ages, sparking their creativity and imagination. 
 
 
-### [L.O.L. Surprise Wildflower Fashion Doll with Multiple Surprises](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-wildflower-fashion-doll-with-multiple-surprises)
+### [L.O.L. Surprise Wildflower Fashion Doll with Multiple Surprises](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-wildflower-fashion-doll-with-multiple-surprises)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-wildflower-fashion-doll-with-multiple-surprises"><img alt="lol-surprise-omg-wildflower-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-wildflower-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-wildflower-fashion-doll-with-multiple-surprises"><img alt="lol-surprise-omg-wildflower-fashion-doll-with-multiple-surprises-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-wildflower-fashion-doll-with-multiple-surprises-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet Wildflower, the new addition to the L. O. L. Surprise OMG series. With her playful personality and endless surprises, I couldn't help but be excited to see what she had to offer. Upon opening the doll, I was greeted by her stunning pink floral outfit and intricate, articulated body parts. The attention to detail in her hair and accessories truly sets her apart from other dolls. 
 
@@ -240,9 +240,9 @@ I appreciated the quality and durability of Wildflower, making her a perfect pla
 Overall, the L. O. L. Surprise OMG Wildflower Fashion Doll is an amazing addition to any doll collection. With her captivating appearance and plethora of surprises, she is sure to bring joy and excitement to any young (or young at heart) doll enthusiast. 
 
 
-### [L.O.L. Surprise! Sunshine Makeover Dolls for Fashion Lovers](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-sunshine-makeover-dolls-for-fashion-lovers)
+### [L.O.L. Surprise! Sunshine Makeover Dolls for Fashion Lovers](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=l-o-l-surprise-sunshine-makeover-dolls-for-fashion-lovers)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-sunshine-makeover-dolls-for-fashion-lovers"><img alt="l-o-l-surprise-omg-sunshine-makeover-color-change-fashion-doll-sunrise-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-o-l-surprise-omg-sunshine-makeover-color-change-fashion-doll-sunrise-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=l-o-l-surprise-sunshine-makeover-dolls-for-fashion-lovers"><img alt="l-o-l-surprise-omg-sunshine-makeover-color-change-fashion-doll-sunrise-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/l-o-l-surprise-omg-sunshine-makeover-color-change-fashion-doll-sunrise-1/h=540,fit=pad,background=black"/></a></div>
 
 Sunrise, the radiant surprise from the L. O. L. Surprise! Omg Sunshine Makeover Color Change Fashion Doll series, is a delightful addition to any doll collection. This vibrant and captivating doll is designed for little ones aged 4 years and above and is equipped to light up any room with her enchanting features. The Sunshine Makeover series takes color-changing to a whole new level, allowing the user to see the magic unfold right before their eyes. 
 
@@ -253,9 +253,9 @@ This unique L. O. L. doll is not only visually stunning, but she's also crafted 
 Sunrise is truly an attractive and fun surprise, and her well-crafted design will make her a cherished companion to any child who loves colorful, imaginative, and interactive play. Be sure to check the product details when ordering to ensure you receive the correct design, as they are sent randomly according to stock availability. 
 
 
-### [LOL Surprise OMG Fashion Show Twist Queen Fashion Doll - Hair Edition](https://serp.ly/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition)
+### [LOL Surprise OMG Fashion Show Twist Queen Fashion Doll - Hair Edition](https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm\_term=lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition"><img alt="lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls?utm_term=lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition"><img alt="lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lol-surprise-omg-fashion-show-twist-queen-fashion-doll-hair-edition-1/h=540,fit=pad,background=black"/></a></div>
 
 Wow, the Lol Surprise Omg Fashion Show Twist Queen Doll definitely added some excitement and fun at home! The doll comes with unique styling tools and accessories that make creating different hairstyles so much easier and enjoyable. My little one enjoyed experimenting with various hairstyles and hosting backyard fashion shows for her friends. 
 
@@ -275,7 +275,7 @@ When it comes to Lol Fashion Dolls, there are several important factors to consi
 
 Lol Fashion Dolls come in various sizes and scales. The most common size for these dolls is 11 inches tall, which falls within the 1:6 or 6-inch scale. This scale is popular because it allows for more detailed fashion dolls without being too large or cumbersome. When considering the size and scale, think about the space available in your home and the personal preferences of the collector or child who will be playing with the doll. 
 
-<div><a href="https://serp.ly/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-2/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-2/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-2" height="540"></a></div>
 
 
 ### Feature 2: Articulation
@@ -287,7 +287,7 @@ Articulation refers to the range of movement a doll has in its joints. Lol Fashi
 
 Lol Fashion Dolls often come with a variety of accessories, such as clothing items, shoes, and sometimes even custom-made outfits. Some dolls may also include additional features like wigs or standalone furniture pieces. When purchasing a Lol Fashion Doll, consider the quality and range of accessories that come with the package. This can be particularly important for collectors who are looking to build up a wardrobe of fashionable dolls and outfits. 
 
-<div><a href="https://serp.ly/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-3/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-3/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-3" height="540"></a></div>
 
 
 ### Consideration: Safety
@@ -297,7 +297,7 @@ Safety is an important factor to consider when purchasing Lol Fashion Dolls, esp
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-4/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-4/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-4" height="540"></a></div>
 
 
 ### What are Lol Fashion Dolls?
@@ -313,7 +313,7 @@ Lol Fashion Dolls are intended for children aged six and above, as they feature 
 
 Learning about body types, fashion trends, and personal expression through these dolls also makes Lol Fashion Dolls valuable educational toys for children. Enthusiasts of all ages can appreciate their unique designs and quality, making them a popular choice for those with an interest in fashion and collection items.
 
-<div><a href="https://serp.ly/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-5/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-5/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-5" height="540"></a></div>
 
 
 ### What are the different types of Lol Fashion Dolls available?
@@ -329,7 +329,7 @@ Lol Fashion Dolls offer complete customization options, enabling users to create
 
 Explore the numerous online communities and tutorials where users share customization ideas and styling tips for their Lol Fashion Dolls. Purchase additional clothing and accessories from various retailers, both online and in-store, to further personalize your dolls.
 
-<div><a href="https://serp.ly/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-6/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lol+Fashion+Dolls"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lol-Fashion-Dolls-6/h=540,fit=pad,background=black" alt="Lol-Fashion-Dolls-6" height="540"></a></div>
 
 
 ### What is the average price range for Lol Fashion Dolls?

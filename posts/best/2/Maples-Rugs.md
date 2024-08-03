@@ -14,9 +14,9 @@ Get cozy with our top picks of Maples Rugs – the perfect addition to any room 
 ## Reviews
 
 
-### [Maples Tribal Design Tufted Accent Rug in Red/Gold](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-tribal-design-tufted-accent-rug-in-red-gold)
+### [Maples Tribal Design Tufted Accent Rug in Red/Gold](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-tribal-design-tufted-accent-rug-in-red-gold)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-tribal-design-tufted-accent-rug-in-red-gold"><img alt="maples-tribal-design-tufted-accent-rug-red-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-tribal-design-tufted-accent-rug-red-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-tribal-design-tufted-accent-rug-in-red-gold"><img alt="maples-tribal-design-tufted-accent-rug-red-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-tribal-design-tufted-accent-rug-red-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the Maples Tribal Design Tufted Accent Rug in red and gold, and I must say, it has exceeded my expectations. The vibrant colors and intricate geometric pattern instantly brought life to my living space. 
 
@@ -29,9 +29,9 @@ However, there were a couple of cons as well. Although the rug is skid-resistant
 Overall, the Maples Tribal Design Tufted Accent Rug has been a fantastic addition to my home. Its combination of style, durability, and ease of maintenance has made it a worthwhile investment. 
 
 
-### [Maples Rugs Fleur Contemporary Runner Rug for Entryway - Non-Slip](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-fleur-contemporary-runner-rug-for-entryway-non-slip)
+### [Maples Rugs Fleur Contemporary Runner Rug for Entryway - Non-Slip](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-fleur-contemporary-runner-rug-for-entryway-non-slip)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-fleur-contemporary-runner-rug-for-entryway-non-slip"><img alt="maples-rugs-fleur-contemporary-motif-hallway-entryway-runner-non-skid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-fleur-contemporary-motif-hallway-entryway-runner-non-skid-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-fleur-contemporary-runner-rug-for-entryway-non-slip"><img alt="maples-rugs-fleur-contemporary-motif-hallway-entryway-runner-non-skid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-fleur-contemporary-motif-hallway-entryway-runner-non-skid-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Maples Carpet Fleur Contemporary Motif area rug - your go-to solution for elevating any space. With its stunning design and impressive features, this rug is a must-have for your home makeover. Featuring a 100% polyester pile for added durability and stain resistance, this rug is designed to stand the test of time. 
 
@@ -40,9 +40,9 @@ Its construction boasts a machine-made build, providing you with a reliable and 
 This rug also includes a product note advising that it may arrive with temporary creases, but they should flatten and settle over time with proper care. So, while this rug might not be perfect, its beautiful design and practical features make it a worthwhile addition to any home. 
 
 
-### [Abstract Multicolor Maples Rugs Indoor Accent Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=abstract-multicolor-maples-rugs-indoor-accent-rug)
+### [Abstract Multicolor Maples Rugs Indoor Accent Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=abstract-multicolor-maples-rugs-indoor-accent-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=abstract-multicolor-maples-rugs-indoor-accent-rug"><img alt="maples-rugs-horizon-abstract-multicolor-entryway-indoor-accent-rug-26x310-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-horizon-abstract-multicolor-entryway-indoor-accent-rug-26x310-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=abstract-multicolor-maples-rugs-indoor-accent-rug"><img alt="maples-rugs-horizon-abstract-multicolor-entryway-indoor-accent-rug-26x310-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-horizon-abstract-multicolor-entryway-indoor-accent-rug-26x310-1/h=540,fit=pad,background=black"/></a></div>
 
 The Horizon Abstract Multicolor rug is an excellent addition to any indoor space, thanks to its stunning color palette and vibrant design. The rug measures at a convenient 2'6"x3'10" and features a low-profile, 0.44" pile height that allows it to blend seamlessly into any setting. With a 100% nylon pile, this rug boasts added durability and fade resistance, making it a great choice even for high-traffic areas. 
 
@@ -53,9 +53,9 @@ The Horizon Abstract Multicolor rug has received an impressive rating of 4.6 out
 In conclusion, the Horizon Abstract Multicolor rug is a stylish and practical choice for any home, offering a unique and eye-catching design without sacrificing comfort and durability. Its low-profile design makes it an easy fit in any room, and its easy care instructions provide peace of mind for busy homeowners. 
 
 
-### [Maples Rugs - Minerva Beige Multi Floral Indoor Accent Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-minerva-beige-multi-floral-indoor-accent-rug)
+### [Maples Rugs - Minerva Beige Multi Floral Indoor Accent Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-minerva-beige-multi-floral-indoor-accent-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-minerva-beige-multi-floral-indoor-accent-rug"><img alt="maples-rugs-traditional-minerva-beige-multi-floral-indoor-accent-rug-26x310-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-traditional-minerva-beige-multi-floral-indoor-accent-rug-26x310-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-minerva-beige-multi-floral-indoor-accent-rug"><img alt="maples-rugs-traditional-minerva-beige-multi-floral-indoor-accent-rug-26x310-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-traditional-minerva-beige-multi-floral-indoor-accent-rug-26x310-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Maples Traditional Minerva Beige Multi Floral Indoor Accent Rug, and I must say, it's been a game-changer in the way I style my home. 
 
@@ -70,9 +70,9 @@ The only downside I've experienced is that the rugs may arrive with temporary cr
 Overall, I'd highly recommend the Maples Traditional Minerva Beige Multi Floral Indoor Accent Rug to anyone looking for an affordable and stylish addition to their home decor. The quality, durability, and ease of cleaning make it a no-brainer. 
 
 
-### [Maples Rugs Aretha Floral Beige Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-aretha-floral-beige-rug)
+### [Maples Rugs Aretha Floral Beige Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-aretha-floral-beige-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-aretha-floral-beige-rug"><img alt="maples-rugs-aretha-floral-rug-beige-20x34-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-aretha-floral-rug-beige-20x34-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-aretha-floral-beige-rug"><img alt="maples-rugs-aretha-floral-rug-beige-20x34-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-aretha-floral-rug-beige-20x34-1/h=540,fit=pad,background=black"/></a></div>
 
 Elevate your interior design game with Maples Rugs' Aretha Floral Rug in beige. This breathtaking piece showcases a harmonious mix of green, blue, yellow, and orange hues, bringing a timeless allure to your space. The meticulously crafted rug is designed to be as practical as it is stunning - boasting a low profile that fits seamlessly into any setting and is machine washable for easy upkeep. 
 
@@ -83,9 +83,9 @@ One major drawback I've encountered is the occasional issue with customers recei
 In summary, Maples Rugs' Aretha Floral Rug in beige is a stunning and durable addition to any home. While there are some minor concerns to consider, the pros far outweigh the cons, which makes investing in this versatile and eye-catching rug a wise choice. 
 
 
-### [Maples Rugs: Vintage Floral Beige Area Rug (5'x7')](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-vintage-floral-beige-area-rug-5x7)
+### [Maples Rugs: Vintage Floral Beige Area Rug (5'x7')](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-vintage-floral-beige-area-rug-5x7)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-vintage-floral-beige-area-rug-5x7"><img alt="maples-rugs-traditional-vintage-floral-beige-indoor-area-rug-5x7-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-traditional-vintage-floral-beige-indoor-area-rug-5x7-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-vintage-floral-beige-area-rug-5x7"><img alt="maples-rugs-traditional-vintage-floral-beige-indoor-area-rug-5x7-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-traditional-vintage-floral-beige-indoor-area-rug-5x7-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the timeless charm of the Maples Rugs Traditional Rug, a vintage floral design available in a beige color that complements any room. Its traditional vintage style is reminiscent of a bygone era, making it a perfect addition to your living room, dining room, or bedroom. With a 100% nylon pile, this rug offers added durability and fade resistance, ensuring it stands up to everyday wear and tear. 
 
@@ -94,9 +94,9 @@ The 0.44-inch pile height gives it a low profile, perfect for blending seamlessl
 Spot clean, air dry, or professionally clean your Maples Rugs Traditional Rug for long-lasting beauty. 
 
 
-### [Maples Rugs Rebecca 26: Easy-to-Clean Kitchen Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-rebecca-26-easy-to-clean-kitchen-rug)
+### [Maples Rugs Rebecca 26: Easy-to-Clean Kitchen Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-rebecca-26-easy-to-clean-kitchen-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-rebecca-26-easy-to-clean-kitchen-rug"><img alt="maples-rugs-kitchen-rug-rebecca-27" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-kitchen-rug-rebecca-27/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-rebecca-26-easy-to-clean-kitchen-rug"><img alt="maples-rugs-kitchen-rug-rebecca-27" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-kitchen-rug-rebecca-27/h=540,fit=pad,background=black"/></a></div>
 
 Ever since I first unrolled the Maples Rugs Kitchen Rug Rebecca 26 in my kitchen, it's been a constant reminder of the joy of living. I've found myself taking a moment each day to admire the abstract pattern on this modern carpet, a blend of the old and new, a symbol of my love for timeless style. 
 
@@ -107,9 +107,9 @@ However, I have to admit that there have been a few drawbacks to using this rug.
 Overall, though, the Maples Rugs Kitchen Rug Rebecca 26 has been a delight to use in my kitchen. Its timeless design, stain and spill resistance, and the ease with which I can care for it are all features that I appreciate. Despite the occasional slip and some concerns about its long-term durability, I've found that this rug has been worth the investment. 
 
 
-### [Maples: High-Quality Textured Print Area Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-high-quality-textured-print-area-rug)
+### [Maples: High-Quality Textured Print Area Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-high-quality-textured-print-area-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-high-quality-textured-print-area-rug"><img alt="maples-highland-textured-print-area-washable-throw-rugs-30x43-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-highland-textured-print-area-washable-throw-rugs-30x43-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-high-quality-textured-print-area-rug"><img alt="maples-highland-textured-print-area-washable-throw-rugs-30x43-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-highland-textured-print-area-washable-throw-rugs-30x43-1/h=540,fit=pad,background=black"/></a></div>
 
 Living with a Maples Highland rug has been a breath of fresh air for my living space. This rug, with its unique textured print and vibrant red color, adds an instant punch of style and personality to any room. The durability of this nylon rug, combined with the non-skid latex backing, provides a sense of solidity and safety. 
 
@@ -118,18 +118,18 @@ One aspect I particularly appreciate is the rug's Standard 100 by OEKO-TEX certi
 However, my only critique is that the rug does not have a slip-resistant backing and requires a rug pad for better grip on smooth surfaces. Despite this, the rug's 0.375" pile height and intricate pattern make it a showstopper in any home decor piece. 
 
 
-### [Maples Blooming Damask Rug - 5x7 ft, Skid Resistant, Proudly Made in USA](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-blooming-damask-rug-5x7-ft-skid-resistant-proudly-made-in-usa)
+### [Maples Blooming Damask Rug - 5x7 ft, Skid Resistant, Proudly Made in USA](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-blooming-damask-rug-5x7-ft-skid-resistant-proudly-made-in-usa)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-blooming-damask-rug-5x7-ft-skid-resistant-proudly-made-in-usa"><img alt="maples-alexa-rug-blue-5x7-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-alexa-rug-blue-5x7-ft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-blooming-damask-rug-5x7-ft-skid-resistant-proudly-made-in-usa"><img alt="maples-alexa-rug-blue-5x7-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-alexa-rug-blue-5x7-ft-1/h=540,fit=pad,background=black"/></a></div>
 
 The Maples Blooming Damask Rug is a stylish and versatile addition to any space, available in various sizes. Crafted with high-quality 100% olefin material, this rug is durable enough for all areas of your home, including bedrooms, living rooms, dining rooms, and home offices. The distressed damask pattern offers a fresh update with a modern blue, grey, and neutral color palette, making it an excellent choice for adding a touch of elegance to your interior decor. 
 
 The rug features a skid-resistant latex backing, meaning no additional rug pad is necessary. Proudly made in the USA, the Maples Blooming Damask Rug is both functional and fashionable, making it a great choice for any room in your home. 
 
 
-### [Maples Paisley Floral Tan Paisley Accent Rug](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-paisley-floral-tan-paisley-accent-rug)
+### [Maples Paisley Floral Tan Paisley Accent Rug](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-paisley-floral-tan-paisley-accent-rug)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-paisley-floral-tan-paisley-accent-rug"><img alt="maples-26x310-paisley-floral-washable-accent-rug-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-26x310-paisley-floral-washable-accent-rug-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-paisley-floral-tan-paisley-accent-rug"><img alt="maples-26x310-paisley-floral-washable-accent-rug-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-26x310-paisley-floral-washable-accent-rug-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Maples Paisley Floral Accent Rug for some time now, and it has become a staple in my home. The floral paisley print over the tan backdrop adds a touch of sophistication to any space, and the non-skid latex backing ensures that it stays in place in my busy home. 
 
@@ -140,18 +140,18 @@ Another thing that impressed me is the variety of sizes available. I bought a sm
 Overall, the Maples Paisley Floral Accent Rug is a great addition to my home. It adds a pop of color and texture to my space, and its ease of cleaning makes it a practical choice for a busy home. 
 
 
-### [Maples Natural 9' x 12' Area Rug: Elegance and Durability for Any Space](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-natural-9-x-12-area-rug-elegance-and-durability-for-any-space)
+### [Maples Natural 9' x 12' Area Rug: Elegance and Durability for Any Space](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-natural-9-x-12-area-rug-elegance-and-durability-for-any-space)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-natural-9-x-12-area-rug-elegance-and-durability-for-any-space"><img alt="lr-resources-maples-mapls82390-natural-9-x-12-area-rug-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lr-resources-maples-mapls82390-natural-9-x-12-area-rug-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-natural-9-x-12-area-rug-elegance-and-durability-for-any-space"><img alt="lr-resources-maples-mapls82390-natural-9-x-12-area-rug-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lr-resources-maples-mapls82390-natural-9-x-12-area-rug-1/h=540,fit=pad,background=black"/></a></div>
 
 Add a touch of elegance to your space with the LR Resources Maples 9' x 12' Natural rug, expertly handwoven using jute, cotton, and wool. I placed this beauty in my living room, and it not only adds a cozy warmth but also brings a touch of sophistication without being too bold. 
 
 The high-low pile design gives the rug depth and character, seamlessly blending comfort, durability, and style. Plus, it's easy to maintain and adds a welcoming feel to any room. 
 
 
-### [Maples Emilia Grey Rug: 5x7 ft](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-emilia-grey-rug-5x7-ft)
+### [Maples Emilia Grey Rug: 5x7 ft](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-emilia-grey-rug-5x7-ft)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-emilia-grey-rug-5x7-ft"><img alt="maples-emilia-rug-grey-5x7-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-emilia-rug-grey-5x7-ft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-emilia-grey-rug-5x7-ft"><img alt="maples-emilia-rug-grey-5x7-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-emilia-rug-grey-5x7-ft-1/h=540,fit=pad,background=black"/></a></div>
 
 The Maples Emilia Rug, a perfect addition to any living space, comes in a sizable 5' x 7' size, making it an ideal choice for living rooms, dining rooms, and bedrooms alike. Featuring a timeless design created from 100% nylon pile, this rug boasts added durability and fade resistance, ensuring it remains as stunning as the day you first laid eyes on it. 
 
@@ -160,9 +160,9 @@ Standing at an impressive 0.44-inch pile height, this low-profile rug is versati
 Despite its flawless appearance and practicality, users have reported some drawbacks, such as rugs that don't stay in place or experience disintegration of the plastic grip over time. However, these issues do not seem to outweigh the overall satisfaction with the Maples Emilia Rug's design and durability. 
 
 
-### [Distressed Bohemian Diamond Rugs - Maples Rugs Collection](https://serp.ly/amazon/Maples+Rugs?utm\_term=distressed-bohemian-diamond-rugs-maples-rugs-collection)
+### [Distressed Bohemian Diamond Rugs - Maples Rugs Collection](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=distressed-bohemian-diamond-rugs-maples-rugs-collection)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=distressed-bohemian-diamond-rugs-maples-rugs-collection"><img alt="maples-rugs-distressed-bohemian-diamond-ivorygray-indoor-hallway-runner-rug-2x6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-distressed-bohemian-diamond-ivorygray-indoor-hallway-runner-rug-2x6-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=distressed-bohemian-diamond-rugs-maples-rugs-collection"><img alt="maples-rugs-distressed-bohemian-diamond-ivorygray-indoor-hallway-runner-rug-2x6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-distressed-bohemian-diamond-ivorygray-indoor-hallway-runner-rug-2x6-1/h=540,fit=pad,background=black"/></a></div>
 
 Walking down my hallway with the Maples Rugs Distressed Bohemian Diamond Indoor Hallway Runner Rug, I couldn't help but feel a sense of pride in the timeless design and durability it possesses. The rug is perfect for adding a modern touch to any room in your home, with neutral colors effortlessly blending with existing decor. The distressed bohemian diamond print design adds a pop of visual interest, turning heads and impressing friends and family. 
 
@@ -173,18 +173,18 @@ However, as with any product, there is room for improvement. Although the rug is
 All things considered, I am incredibly pleased with my experience using the Maples Rugs Distressed Bohemian Diamond Indoor Hallway Runner Rug. Its stunning design, ease of care, and affordability make it a must-have accent piece for any room in your home. 
 
 
-### [Natural 10' x 14' Hand-Woven Area Rug by Maples](https://serp.ly/amazon/Maples+Rugs?utm\_term=natural-10-x-14-hand-woven-area-rug-by-maples)
+### [Natural 10' x 14' Hand-Woven Area Rug by Maples](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=natural-10-x-14-hand-woven-area-rug-by-maples)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=natural-10-x-14-hand-woven-area-rug-by-maples"><img alt="lr-resources-maples-mapls82388-natural-10-x-14-area-rug-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lr-resources-maples-mapls82388-natural-10-x-14-area-rug-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=natural-10-x-14-hand-woven-area-rug-by-maples"><img alt="lr-resources-maples-mapls82388-natural-10-x-14-area-rug-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lr-resources-maples-mapls82388-natural-10-x-14-area-rug-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect combination of luxury, comfort, and style with the LR Resources Maples MAPLS82388 Natural Area Rug. Carefully crafted by skilled artisans in India, this stunning piece is made from a blend of 65% jute, 20% cotton, and 15% wool, ensuring it's both durable and soft underfoot. 
 
 Its subtle, neutral color palette provides a cozy atmosphere, while the high-low pile design adds depth and character to any room. Ideal for those seeking to elevate their decor with a touch of elegance, this area rug seamlessly blends comfort, durability, and style. 
 
 
-### [Maples Rugs Pelham Accent Rug: Timeless Design, Traditional Vintage Style, 2'6 x 3'10, Machine Washable](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-pelham-accent-rug-timeless-design-traditional-vintage-style-26-x-310-machine-washable)
+### [Maples Rugs Pelham Accent Rug: Timeless Design, Traditional Vintage Style, 2'6 x 3'10, Machine Washable](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-pelham-accent-rug-timeless-design-traditional-vintage-style-26-x-310-machine-washable)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-pelham-accent-rug-timeless-design-traditional-vintage-style-26-x-310-machine-washable"><img alt="maples-rugs-pelham-accent-rug-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/maples-rugs-pelham-accent-rug-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-pelham-accent-rug-timeless-design-traditional-vintage-style-26-x-310-machine-washable"><img alt="maples-rugs-pelham-accent-rug-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/maples-rugs-pelham-accent-rug-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine adding a touch of vintage charm to your living space with the Maples Rugs Pelham accent rug. Crafted with care in the USA, this 2'6 x 3'10 rug boasts a traditional yet timeless scroll design, perfect for enhancing the ambiance of your entryways, living rooms, or even bedrooms. The dual-colored pattern truly shines, creating a luster-like sheen that is sure to catch the eye of anyone who enters your home. 
 
@@ -193,9 +193,9 @@ Constructed from high-quality 100% nylon pile, the Maples Rugs Pelham accent rug
 With a multitude of satisfied customers, the Maples Rugs Pelham accent rug proves to be an attractive choice for those who appreciate a cozy and stylish living space. Its vibrant colors and classic design make it a great choice for any room in your home, while its exceptional quality and durability ensure that you'll enjoy it for many years to come. Experience the charm and comfort of the Maples Rugs Pelham accent rug and elevate the look of your home today. 
 
 
-### [Maples Rugs Emilia Rug: Modern Gray Area Rug (30X46)](https://serp.ly/amazon/Maples+Rugs?utm\_term=maples-rugs-emilia-rug-modern-gray-area-rug-30x46)
+### [Maples Rugs Emilia Rug: Modern Gray Area Rug (30X46)](https://serp.ly/@outrun/amazon/Maples+Rugs?utm\_term=maples-rugs-emilia-rug-modern-gray-area-rug-30x46)
 
-<div class="image"><a href="https://serp.ly/amazon/Maples+Rugs?utm_term=maples-rugs-emilia-rug-modern-gray-area-rug-30x46"><img alt="maples-rugs-emilia-rug-gray-30x46-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-emilia-rug-gray-30x46-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Maples+Rugs?utm_term=maples-rugs-emilia-rug-modern-gray-area-rug-30x46"><img alt="maples-rugs-emilia-rug-gray-30x46-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maples-rugs-emilia-rug-gray-30x46-1/h=540,fit=pad,background=black"/></a></div>
 
 The Maples Rugs Emilia Rug showcases a timeless design with a size that's perfect for adding a pop of color and texture to your kitchen, entryway, or bathroom. Its tufted construction type offers an added level of durability, and the 100% polyester pile boasts fade resistance. The skid-resistant latex backing ensures that no additional rug pad is needed, and it's designed to work well with luxury vinyl flooring without staining. 
 
@@ -213,7 +213,7 @@ Welcome to our buyer's guide for Maples Rugs! This guide will help you understan
 
 Maples Rugs come in various types, catering to diverse preferences and needs. The most common ones include hand-knotted, machine-made, and hand-tufted. Each type of Maples Rug has its own advantages and disadvantages. Hand-knotted rugs are known for their intricate designs, exceptional durability, and long lifespan. Machine-made rugs, on the other hand, are generally more affordable and faster to produce but often lack the character and craftsmanship of hand-knotted rugs. Hand-tufted rugs are a middle-ground option, combining affordability with a higher level of craftsmanship compared to machine-made rugs. 
 
-<div><a href="https://serp.ly/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-2/h=540,fit=pad,background=black" alt="Maples-Rugs-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-2/h=540,fit=pad,background=black" alt="Maples-Rugs-2" height="540"></a></div>
 
 
 ### Materials Used
@@ -225,7 +225,7 @@ The materials used in Maples Rugs can impact the rug's durability, maintenance, 
 
 The design and color of a Maples Rug can greatly influence its aesthetic appeal and suitability for your space. Maples Rugs come in a wide range of patterns, from bold geometric designs to intricate floral and abstract patterns. The colors used can also impact the rug's overall visual impact, with lighter and brighter colors creating a more vibrant and cheerful atmosphere, while darker hues tend to offer a more sophisticated and subdued look. Consider the overall color scheme of your space when selecting a Maples Rug, or use the rug as an opportunity to introduce an accent color. 
 
-<div><a href="https://serp.ly/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-3/h=540,fit=pad,background=black" alt="Maples-Rugs-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-3/h=540,fit=pad,background=black" alt="Maples-Rugs-3" height="540"></a></div>
 
 
 ### Maintenance and Care
@@ -235,7 +235,7 @@ Regular maintenance and proper care can help ensure the longevity of your Maples
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-4/h=540,fit=pad,background=black" alt="Maples-Rugs-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-4/h=540,fit=pad,background=black" alt="Maples-Rugs-4" height="540"></a></div>
 
 
 ### What are Maples Rugs?
@@ -251,7 +251,7 @@ The price range for Maples Rugs varies depending on several factors such as size
 
 It is also worth mentioning that the quality and durability of Maples Rugs can justify their high price points. These rugs are made from premium materials, and their intricate designs require a lot of craftsmanship. As such, they are expected to last for many years, making them a wise investment for homeowners who value quality and longevity. 
 
-<div><a href="https://serp.ly/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-5/h=540,fit=pad,background=black" alt="Maples-Rugs-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-5/h=540,fit=pad,background=black" alt="Maples-Rugs-5" height="540"></a></div>
 
 
 ### Do Maples Rugs come in different sizes?
@@ -267,7 +267,7 @@ Maples Rugs are made from various high-quality materials such as wool, silk, and
 
 The choice of material depends on the customer's preference and budget. Wool rugs, for example, tend to be more affordable than silk or cotton rugs, but they may not be as soft or lightweight. On the other hand, silk rugs are highly prized for their elegance and luster but can be more expensive and require special care. 
 
-<div><a href="https://serp.ly/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-6/h=540,fit=pad,background=black" alt="Maples-Rugs-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Maples+Rugs"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Maples-Rugs-6/h=540,fit=pad,background=black" alt="Maples-Rugs-6" height="540"></a></div>
 
 
 ### How should I clean a Maples Rug?

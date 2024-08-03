@@ -14,9 +14,9 @@ Lavender, a gentle and calming fragrance, is known for its relaxing properties. 
 ## Reviews
 
 
-### [New York & Company Liana Sandals in Lavender - Size 6](https://serp.ly/amazon/Lavender+Sandals?utm\_term=new-york-company-liana-sandals-in-lavender-size-6)
+### [New York & Company Liana Sandals in Lavender - Size 6](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=new-york-company-liana-sandals-in-lavender-size-6)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=new-york-company-liana-sandals-in-lavender-size-6"><img alt="womens-new-york-and-company-liana-sandals-in-lavender-size-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-liana-sandals-in-lavender-size-7/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=new-york-company-liana-sandals-in-lavender-size-6"><img alt="womens-new-york-and-company-liana-sandals-in-lavender-size-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-liana-sandals-in-lavender-size-7/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on the Liana sandals in a lovely lavender color from New York and Company. The first thing that caught my eye was the intricate flower applique that added a touch of elegance to the design. The t-strap style added a chic touch to an otherwise simple sandal. 
 
@@ -29,9 +29,9 @@ On the positive side, the sandals looked exactly as they did in the picture, wit
 Overall, the Liana sandals from New York and Company have their pros and cons. While the style and color were charming, the comfort and quality issues were significant turn-offs. 
 
 
-### [Lavender Naia Sandals by Miz Mooz](https://serp.ly/amazon/Lavender+Sandals?utm\_term=lavender-naia-sandals-by-miz-mooz)
+### [Lavender Naia Sandals by Miz Mooz](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=lavender-naia-sandals-by-miz-mooz)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=lavender-naia-sandals-by-miz-mooz"><img alt="womens-new-york-and-company-naia-sandals-in-lavender-size-10" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-naia-sandals-in-lavender-size-10/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=lavender-naia-sandals-by-miz-mooz"><img alt="womens-new-york-and-company-naia-sandals-in-lavender-size-10" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-naia-sandals-in-lavender-size-10/h=540,fit=pad,background=black"/></a></div>
 
 These elegant Naia sandals from Women's New York and Company are a timeless addition to any wardrobe. Featuring a flat slide design, they're perfect for both casual and professional settings. A stylish twist comes from the metallic horsebit hardware detail, adding a chic touch. 
 
@@ -40,9 +40,9 @@ The faux leather upper is both comfortable and versatile, while the faux leather
 In the Lavender size 9, this Naia sandal boasts a soft, feminine color that adds a touch of sophistication to any outfit. 
 
 
-### [Luxurious Lavender Slide Sandals for Comfort and Shock Absorption](https://serp.ly/amazon/Lavender+Sandals?utm\_term=luxurious-lavender-slide-sandals-for-comfort-and-shock-absorption)
+### [Luxurious Lavender Slide Sandals for Comfort and Shock Absorption](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=luxurious-lavender-slide-sandals-for-comfort-and-shock-absorption)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=luxurious-lavender-slide-sandals-for-comfort-and-shock-absorption"><img alt="seychelles-simply-the-best-slide-sandal-in-lavender-v-leather-at-nordstrom-size-7-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seychelles-simply-the-best-slide-sandal-in-lavender-v-leather-at-nordstrom-size-7-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=luxurious-lavender-slide-sandals-for-comfort-and-shock-absorption"><img alt="seychelles-simply-the-best-slide-sandal-in-lavender-v-leather-at-nordstrom-size-7-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seychelles-simply-the-best-slide-sandal-in-lavender-v-leather-at-nordstrom-size-7-6/h=540,fit=pad,background=black"/></a></div>
 
 Sliding into my day with a touch of luxury, the Seychelles Simply The Best Slide Sandal in Lavender V-Leather has been an unexpected delight. The chunky knotted upper, made of puffy tubular straps, adds a playful touch that sets these sandals apart. Even though the strap can feel a bit tight at first, I've found that ordering a half size up works wonders. 
 
@@ -51,9 +51,9 @@ The cushiony 1-inch platform with high-quality shock absorption has made walking
 Overall, these sandals have a unique appeal that combines comfort and style, and they are perfect for dressing up or going for that laid-back boho look. The only drawback is the tightness of the strap, which may require some adjustment initially. But once you've got these on, you'll be sliding into happiness every time you wear them. 
 
 
-### [Slip-on Lavender Sandals with EVA Footbed for Comfort](https://serp.ly/amazon/Lavender+Sandals?utm\_term=slip-on-lavender-sandals-with-eva-footbed-for-comfort)
+### [Slip-on Lavender Sandals with EVA Footbed for Comfort](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=slip-on-lavender-sandals-with-eva-footbed-for-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=slip-on-lavender-sandals-with-eva-footbed-for-comfort"><img alt="cougar-pool-party-10-womens-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cougar-pool-party-10-womens-lavender-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=slip-on-lavender-sandals-with-eva-footbed-for-comfort"><img alt="cougar-pool-party-10-womens-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cougar-pool-party-10-womens-lavender-1/h=540,fit=pad,background=black"/></a></div>
 
 The Cougar Pool Party 10 Women's Lavender shoes, with a 3.9 rating and 11 reviews, are a cool option for those looking for a stylish and comfortable sandal for their next pool party. These sandals come in lavender, making them a great choice for a summer wardrobe. 
 
@@ -62,9 +62,9 @@ One of the best features of these shoes is the molded EVA construction, providin
 Overall, these sandals offer a great combination of style and comfort, perfect for a fun and relaxing pool party experience. 
 
 
-### [Madden Girl Lavender Dress Sandal: Chic and Comfortable](https://serp.ly/amazon/Lavender+Sandals?utm\_term=madden-girl-lavender-dress-sandal-chic-and-comfortable)
+### [Madden Girl Lavender Dress Sandal: Chic and Comfortable](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=madden-girl-lavender-dress-sandal-chic-and-comfortable)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=madden-girl-lavender-dress-sandal-chic-and-comfortable"><img alt="madden-girl-dixcy-slide-6-womens-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madden-girl-dixcy-slide-6-womens-lavender-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=madden-girl-lavender-dress-sandal-chic-and-comfortable"><img alt="madden-girl-dixcy-slide-6-womens-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madden-girl-dixcy-slide-6-womens-lavender-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Dixcy Slide 6 Women's Lavender sandals from Madden Girl, and let me tell you, they were a game-changer for my summer wardrobe! These slip-on sandals boasted a flirty appeal with their chic braided straps and stylish square toe. I appreciated that they were made in the USA or imported, giving them an authentic feel. 
 
@@ -75,9 +75,9 @@ The sandals were true to size and easy to walk in, even though I have a wide foo
 The only downside was the limited availability, as they quickly became a favorite among my friends. I highly recommend getting your hands on these stylish sandals before they're all gone! 
 
 
-### [Lavender-Embellished Blue By Betsey Johnson Rebel Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=lavender-embellished-blue-by-betsey-johnson-rebel-sandals)
+### [Lavender-Embellished Blue By Betsey Johnson Rebel Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=lavender-embellished-blue-by-betsey-johnson-rebel-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=lavender-embellished-blue-by-betsey-johnson-rebel-sandals"><img alt="rebel-lavender-sandals-betsey-johnson-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rebel-lavender-sandals-betsey-johnson-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=lavender-embellished-blue-by-betsey-johnson-rebel-sandals"><img alt="rebel-lavender-sandals-betsey-johnson-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rebel-lavender-sandals-betsey-johnson-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of Betsey Johnson's designs, I was excited to try the Rebel Lavender Sandals. The sandals feature a lovely lavender hue with a touch of sparkle from the rhinestone decorations on the straps. The kitten heel was a charming addition, adding a touch of sophistication to the shoes. 
 
@@ -86,9 +86,9 @@ Upon trying them for the first time, I noticed the soft synthetic lining and the
 As I continued to wear these sandals, I wished for better support and comfort from the heels. In the end, while the sandals were visually appealing, the shoe's fit and design were not as great as I had hoped. 
 
 
-### [Seychelles Leeward Leather Sandals - Lavender Color](https://serp.ly/amazon/Lavender+Sandals?utm\_term=seychelles-leeward-leather-sandals-lavender-color)
+### [Seychelles Leeward Leather Sandals - Lavender Color](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=seychelles-leeward-leather-sandals-lavender-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=seychelles-leeward-leather-sandals-lavender-color"><img alt="seychelles-leeward-leather-sandal-6-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seychelles-leeward-leather-sandal-6-lavender-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=seychelles-leeward-leather-sandals-lavender-color"><img alt="seychelles-leeward-leather-sandal-6-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seychelles-leeward-leather-sandal-6-lavender-1/h=540,fit=pad,background=black"/></a></div>
 
 The Seychelles Leeward Leather Sandal in Lavender showcases a chic and versatile design for every female. Featuring elastic, rucher leather straps, it provides a custom fit that adapts flawlessly to your foot. Additionally, the pillow-like cushioning on the ball of the foot ensures long-lasting convenience throughout the day. 
 
@@ -97,18 +97,18 @@ Its timeless aesthetic, which is reminiscent of vintage designs, adds an elegant
 Weighing just a fraction, these sandals have a refined metallic sheen that makes them a coveted choice for both summer soirees and casual outings. 
 
 
-### [Lavender Linette Women's Sandals - Size 11](https://serp.ly/amazon/Lavender+Sandals?utm\_term=lavender-linette-womens-sandals-size-11)
+### [Lavender Linette Women's Sandals - Size 11](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=lavender-linette-womens-sandals-size-11)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=lavender-linette-womens-sandals-size-11"><img alt="womens-linette-sandals-lilac-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-linette-sandals-lilac-size-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=lavender-linette-womens-sandals-size-11"><img alt="womens-linette-sandals-lilac-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-linette-sandals-lilac-size-12/h=540,fit=pad,background=black"/></a></div>
 
 The Linette Sandals from Marcella are a stylish and comfortable choice for any occasion, with modern design elements that make them stand out. These sandals feature an adjustable buckle closure, making it easy to achieve a secure fit, and a square toe sole for comfortable walking. 
 
 The skinny kitten heel adds a touch of elegance, perfect for both dressy and casual events. Although some customers have reported minor fit issues or discomfort, many find the Linette Sandals to be a beautiful and versatile addition to their wardrobe, with a strong 4.5-star rating from 19 reviews. 
 
 
-### [Fashion to Figure Wide Width Lavender Sandals in Size 12](https://serp.ly/amazon/Lavender+Sandals?utm\_term=fashion-to-figure-wide-width-lavender-sandals-in-size-12)
+### [Fashion to Figure Wide Width Lavender Sandals in Size 12](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=fashion-to-figure-wide-width-lavender-sandals-in-size-12)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=fashion-to-figure-wide-width-lavender-sandals-in-size-12"><img alt="womens-fashion-to-figure-hilari-wide-width-dress-sandals-in-lavender-w-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-fashion-to-figure-hilari-wide-width-dress-sandals-in-lavender-w-size-13/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=fashion-to-figure-wide-width-lavender-sandals-in-size-12"><img alt="womens-fashion-to-figure-hilari-wide-width-dress-sandals-in-lavender-w-size-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-fashion-to-figure-hilari-wide-width-dress-sandals-in-lavender-w-size-13/h=540,fit=pad,background=black"/></a></div>
 
 As a fashion enthusiast, I recently tried on a pair of wide width heels from the Hilari Wide Width Dress Sandals collection. The first thing that caught my eye was the stylish square toe design, which added an elegant touch to the shoe. The 4.5-inch heel height made me feel tall and confident, perfect for an evening out. 
 
@@ -119,9 +119,9 @@ The shoes were super comfortable, even with the tall heel. The wide width design
 Overall, these shoes are a great addition to any wardrobe, especially for those seeking stylish wide width heels. They effortlessly elevate any outfit, making them a worthwhile investment. 
 
 
-### [Ninety Union Lavender Sandals for Women Size 8](https://serp.ly/amazon/Lavender+Sandals?utm\_term=ninety-union-lavender-sandals-for-women-size-8)
+### [Ninety Union Lavender Sandals for Women Size 8](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=ninety-union-lavender-sandals-for-women-size-8)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=ninety-union-lavender-sandals-for-women-size-8"><img alt="womens-ninety-union-tampa-sandals-in-purple-size-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-ninety-union-tampa-sandals-in-purple-size-9/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=ninety-union-lavender-sandals-for-women-size-8"><img alt="womens-ninety-union-tampa-sandals-in-purple-size-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-ninety-union-tampa-sandals-in-purple-size-9/h=540,fit=pad,background=black"/></a></div>
 
 The Ninety Union Tampa sandals for women in purple size 8 offer a delightful blend of style and comfort. Featuring a clear upper supported by a synthetic outsole, these sandals boast a unique chain-linked buckle that adds a touch of chic to the overall design. 
 
@@ -130,9 +130,9 @@ While the minimal heel and synthetic sole make them an excellent choice for ever
 Overall, these sandals make a stylish addition to any summer wardrobe, but potential buyers should consider the sizing and comfort concerns before making a purchase. 
 
 
-### [Adidas Lavender Platform Slide Sandal for Women - Size 8](https://serp.ly/amazon/Lavender+Sandals?utm\_term=adidas-lavender-platform-slide-sandal-for-women-size-8)
+### [Adidas Lavender Platform Slide Sandal for Women - Size 8](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=adidas-lavender-platform-slide-sandal-for-women-size-8)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=adidas-lavender-platform-slide-sandal-for-women-size-8"><img alt="adidas-adilette-platform-slide-sandal-womens-lavender-size-8-sandals-platform-slide-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adidas-adilette-platform-slide-sandal-womens-lavender-size-8-sandals-platform-slide-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=adidas-lavender-platform-slide-sandal-for-women-size-8"><img alt="adidas-adilette-platform-slide-sandal-womens-lavender-size-8-sandals-platform-slide-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adidas-adilette-platform-slide-sandal-womens-lavender-size-8-sandals-platform-slide-1/h=540,fit=pad,background=black"/></a></div>
 
 With lavender tones that perfectly complement a summer wardrobe, the Adidas Adilette platform slide sandals capture the essence of carefree relaxation and chic versatility. Their classic design and comfortable sporty flair make these shoes a must-have for casual warm weather ensembles. Featuring Adidas' signature cushioning technology, these sandals are not only fashionable but also provide optimal comfort and support for your feet. 
 
@@ -143,9 +143,9 @@ One of the main complaints users have is the size inconsistency. It appears that
 Despite the minor sizing issues, the overall quality and comfort of these sandals are generally praised by customers. The platform design adds extra cushioning, making these shoes ideal for long periods of walking. The materials used are of a high standard, giving a durable and versatile feel to the sandals. The platform slide sandals are a great summertime accessory or for those seeking a casual, yet stylish, day-to-day shoe. 
 
 
-### [Journee Signature Lilac Leather Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=journee-signature-lilac-leather-sandals)
+### [Journee Signature Lilac Leather Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=journee-signature-lilac-leather-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=journee-signature-lilac-leather-sandals"><img alt="womens-journee-signature-cendi-sandals-lilac-size-12-leather-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-journee-signature-cendi-sandals-lilac-size-12-leather-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=journee-signature-lilac-leather-sandals"><img alt="womens-journee-signature-cendi-sandals-lilac-size-12-leather-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-journee-signature-cendi-sandals-lilac-size-12-leather-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using these Journee Signature Cendi Slip-On sandals for a few weeks now, and let me tell you, they've been a game-changer to my shoe collection. The first thing that stood out to me was the 4 mm Tru Comfort Foam footbed. I've always been one to gravitate towards shoes with extra cushioning, and these sandals were more comfortable than I could have ever hoped for. 
 
@@ -154,9 +154,9 @@ Though they are a slip-on style, the padded strap provides extra support without
 However, there was one downside: the 1-inch block heel can be tricky for some, especially if you're using the sandals for long periods of standing or walking. But, it's a trade-off I gladly made for the overall comfort and style that these Journee Signature Cendi sandals provide. 
 
 
-### [Jessica Simpson Jaeya Strappy Lavender Rose Dress Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=jessica-simpson-jaeya-strappy-lavender-rose-dress-sandals)
+### [Jessica Simpson Jaeya Strappy Lavender Rose Dress Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=jessica-simpson-jaeya-strappy-lavender-rose-dress-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=jessica-simpson-jaeya-strappy-lavender-rose-dress-sandals"><img alt="jessica-simpson-jaeya-strappy-dress-sandals-lavender-rose-size-7m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-jaeya-strappy-dress-sandals-lavender-rose-size-7m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=jessica-simpson-jaeya-strappy-lavender-rose-dress-sandals"><img alt="jessica-simpson-jaeya-strappy-dress-sandals-lavender-rose-size-7m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-jaeya-strappy-dress-sandals-lavender-rose-size-7m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jaeya strappy sandals by Jessica Simpson are an elegant and chic addition to any party outfit. Crafted with a thin strappy upper and a tall heel, they have a sparkling touch with rhinestone accents that add glamour to the occasion. The ankle buckle strap ensures a secure fit, perfect for those dance-worthy events. 
 
@@ -169,27 +169,27 @@ On the downside, the construction quality seems a bit lackluster. The rhinestone
 In conclusion, the Jaeya strappy sandals by Jessica Simpson are a beautiful and eye-catching addition to your footwear collection. If you're looking for a comfortable fit and aren't too bothered by the occasional rhinestone fallout, these sandals might be the perfect match for your party wardrobe. 
 
 
-### [Fashion to Figure Lavender Wide Width Espadrille Wedge Sandals for Women](https://serp.ly/amazon/Lavender+Sandals?utm\_term=fashion-to-figure-lavender-wide-width-espadrille-wedge-sandals-for-women)
+### [Fashion to Figure Lavender Wide Width Espadrille Wedge Sandals for Women](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=fashion-to-figure-lavender-wide-width-espadrille-wedge-sandals-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=fashion-to-figure-lavender-wide-width-espadrille-wedge-sandals-for-women"><img alt="fashion-to-figure-wide-width-gracelynn-espadrille-wedge-sandal-womens-lavender-size-12-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fashion-to-figure-wide-width-gracelynn-espadrille-wedge-sandal-womens-lavender-size-12-sandals-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=fashion-to-figure-lavender-wide-width-espadrille-wedge-sandals-for-women"><img alt="fashion-to-figure-wide-width-gracelynn-espadrille-wedge-sandal-womens-lavender-size-12-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fashion-to-figure-wide-width-gracelynn-espadrille-wedge-sandal-womens-lavender-size-12-sandals-1/h=540,fit=pad,background=black"/></a></div>
 
 The Gracelynn sandal from Fashion to Figure is a stylish choice for women's footwear. Its unique wedge heel and espadrille detailing provide a dynamic touch to any outfit. I recently had the opportunity to try these sandals in a lavender hue, and I have to say, the color was a refreshing choice for the summer season. 
 
 While they may not be the most comfortable for every step, the ultra high 4" heel adds a bold statement to any warm weather look. Overall, the Gracelynn sandals offered a mix of style and comfort, making them a worthwhile addition to any summer wardrobe. 
 
 
-### [GC Shoes Caro Lavender Purple Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=gc-shoes-caro-lavender-purple-sandals)
+### [GC Shoes Caro Lavender Purple Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=gc-shoes-caro-lavender-purple-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=gc-shoes-caro-lavender-purple-sandals"><img alt="gc-shoes-caro-lavender-wedge-sandals-purple-11" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gc-shoes-caro-lavender-wedge-sandals-purple-11/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=gc-shoes-caro-lavender-purple-sandals"><img alt="gc-shoes-caro-lavender-wedge-sandals-purple-11" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gc-shoes-caro-lavender-wedge-sandals-purple-11/h=540,fit=pad,background=black"/></a></div>
 
 Sporting a stylish two-tone design, the GC Shoes Caro Lavender Wedge Sandals effortlessly blend modern aesthetics with practical comfort. Standing at a height of 2 inches, these wedges provide a small, yet supportive lift, making them a versatile addition to your collection of warm weather essentials. Their comfortable memory foam insole ensures optimal wearability throughout the day, while the snug fit - available size 10 - accommodates both narrow and wide foot types. 
 
 Although some reviewers found their pair slightly used or dirty, overall, customers appreciate the sandals' cute style, affordable price, and quality construction. As an added bonus, the Caro Lavender Wedge Sandals from GC Shoes come in a variety of colors, offering customers a range of stylish options to suit their individual tastes. 
 
 
-### [Mia Lexa Lavender Slide Sandals at Nordstrom Rack](https://serp.ly/amazon/Lavender+Sandals?utm\_term=mia-lexa-lavender-slide-sandals-at-nordstrom-rack)
+### [Mia Lexa Lavender Slide Sandals at Nordstrom Rack](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=mia-lexa-lavender-slide-sandals-at-nordstrom-rack)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=mia-lexa-lavender-slide-sandals-at-nordstrom-rack"><img alt="mia-lexa-slide-sandal-in-lavender-e-at-nordstrom-rack-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mia-lexa-slide-sandal-in-lavender-e-at-nordstrom-rack-size-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=mia-lexa-lavender-slide-sandals-at-nordstrom-rack"><img alt="mia-lexa-slide-sandal-in-lavender-e-at-nordstrom-rack-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mia-lexa-slide-sandal-in-lavender-e-at-nordstrom-rack-size-12/h=540,fit=pad,background=black"/></a></div>
 
 The Mia Lexa Slide Sandal in Lavender E is a breath of fresh air for those who love stylish yet comfortable shoes. This sandal is a perfect blend of fashion and function, thanks to its textured strap and sole, rubber sole, small platform, single strap, and fully cushioned foot bed. It provides a comfortable and secure fit, making it an ideal choice for both casual and formal occasions. 
 
@@ -200,18 +200,18 @@ However, some users have reported issues with sizing and width, with some findin
 Overall, the Mia Lexa Slide Sandal in Lavender E is a comfortable and stylish option for those who value fashion and comfort. While it may not be perfect for everyone, its many positive attributes make it a popular choice among shoe enthusiasts. 
 
 
-### [Lavender Aya Sandals: Man-Made Comfort and Style](https://serp.ly/amazon/Lavender+Sandals?utm\_term=lavender-aya-sandals-man-made-comfort-and-style)
+### [Lavender Aya Sandals: Man-Made Comfort and Style](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=lavender-aya-sandals-man-made-comfort-and-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=lavender-aya-sandals-man-made-comfort-and-style"><img alt="womens-aya-sandals-6-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-aya-sandals-6-lavender-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=lavender-aya-sandals-man-made-comfort-and-style"><img alt="womens-aya-sandals-6-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-aya-sandals-6-lavender-1/h=540,fit=pad,background=black"/></a></div>
 
 These Aya Sandals are a delightful blend of comfort and style, thanks to their lavender straps and cushioned soles. The combination of luxurious upper and lining materials, as well as synthetic soles, ensures a snug fit and a sturdy structure. The 2-inch heel height adds an elegant touch, making these sandals a versatile addition to your wardrobe. 
 
 However, some users have reported a slight difference in the shoe style they received, which may impact their satisfaction. Overall, the Aya Sandals offer a charming and comfortable experience for women looking for a stylish choice for everyday wear. 
 
 
-### [Allegra K Strappy Purple Lavender Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=allegra-k-strappy-purple-lavender-sandals)
+### [Allegra K Strappy Purple Lavender Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=allegra-k-strappy-purple-lavender-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=allegra-k-strappy-purple-lavender-sandals"><img alt="allegra-k-womens-strappy-clear-strap-flip-flops-wedge-sandals-purple-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allegra-k-womens-strappy-clear-strap-flip-flops-wedge-sandals-purple-8-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=allegra-k-strappy-purple-lavender-sandals"><img alt="allegra-k-womens-strappy-clear-strap-flip-flops-wedge-sandals-purple-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/allegra-k-womens-strappy-clear-strap-flip-flops-wedge-sandals-purple-8-6/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on these Allegra K Women's Strappy Clear Strap Flip Flops Wedge Sandals, and I have to say, I was both pleasantly surprised and a bit disappointed. The clear straps and open-toe design gave the sandals a sleek and sophisticated look, perfect for a night out or a day at the beach. The strappy design also allowed for flexibility and comfort while walking, making these a great choice for long strolls. 
 
@@ -220,9 +220,9 @@ However, the 3-inch heel height was a bit too much for me, causing some discomfo
 Overall, these wedge sandals are a great choice for those looking for a stylish and comfortable pair of footwear. Just be aware that the high heel may cause some discomfort for those who are not used to wearing heels regularly. 
 
 
-### [Madden Girl Gracy 10: Dark Lavender Lavender Sandals](https://serp.ly/amazon/Lavender+Sandals?utm\_term=madden-girl-gracy-10-dark-lavender-lavender-sandals)
+### [Madden Girl Gracy 10: Dark Lavender Lavender Sandals](https://serp.ly/@outrun/amazon/Lavender+Sandals?utm\_term=madden-girl-gracy-10-dark-lavender-lavender-sandals)
 
-<div class="image"><a href="https://serp.ly/amazon/Lavender+Sandals?utm_term=madden-girl-gracy-10-dark-lavender-lavender-sandals"><img alt="madden-girl-gracy-10-womens-dark-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madden-girl-gracy-10-womens-dark-lavender-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals?utm_term=madden-girl-gracy-10-dark-lavender-lavender-sandals"><img alt="madden-girl-gracy-10-womens-dark-lavender-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madden-girl-gracy-10-womens-dark-lavender-1/h=540,fit=pad,background=black"/></a></div>
 
 When I spotted the Madden Girl Gracy Dress Sandals, my heart skipped a beat. I just couldn't resist the irresistible blend of dark lavender hues and their squared open-toe style. They were my dream summer footwear companions. 
 
@@ -242,7 +242,7 @@ Lavender sandals are a popular choice for fashion-conscious individuals looking 
 
 One of the primary factors to consider when buying lavender sandals is comfort. Since you'll likely be wearing them for extended periods, it's essential to choose a pair that fits well and provides adequate support for your feet. Consider the sandal's padding, arch support, and overall design to ensure a comfortable fit. It's also crucial to select a material that is lightweight and breathable, such as leather or canvas. 
 
-<div><a href="https://serp.ly/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-2/h=540,fit=pad,background=black" alt="Lavender-Sandals-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-2/h=540,fit=pad,background=black" alt="Lavender-Sandals-2" height="540"></a></div>
 
 
 ### Durability
@@ -254,7 +254,7 @@ Another important factor to consider when purchasing lavender sandals is durabil
 
 Many people are drawn to lavender sandals for their aromatherapy benefits. Lavender is known for its calming and relaxing effects, making it an excellent choice for sandals that you'll wear during stressful or busy times. If you're looking for a sandal with added stress-relieving benefits, consider a pair infused with lavender oil or fragrance. 
 
-<div><a href="https://serp.ly/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-3/h=540,fit=pad,background=black" alt="Lavender-Sandals-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-3/h=540,fit=pad,background=black" alt="Lavender-Sandals-3" height="540"></a></div>
 
 
 ### Style and Design
@@ -264,7 +264,7 @@ Lastly, consider the style and design of your lavender sandals when making a pur
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-4/h=540,fit=pad,background=black" alt="Lavender-Sandals-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-4/h=540,fit=pad,background=black" alt="Lavender-Sandals-4" height="540"></a></div>
 
 
 ### What are Lavender Sandals?
@@ -280,7 +280,7 @@ Wearing Lavender Sandals offers several benefits, such as a comfortable and supp
 
 Additionally, the porous nature of the materials used in lavender sandals allows for better air circulation, keeping feet cool and dry in warm weather. The lavender scent also provides a soothing and calming effect, helping to reduce stress and anxiety throughout the day. Overall, lavender sandals are a fashionable and practical choice for those seeking a stylish and functional summer footwear option. 
 
-<div><a href="https://serp.ly/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-5/h=540,fit=pad,background=black" alt="Lavender-Sandals-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-5/h=540,fit=pad,background=black" alt="Lavender-Sandals-5" height="540"></a></div>
 
 
 ### What makes Lavender Sandals a good choice for warm weather?
@@ -296,7 +296,7 @@ To maintain the quality and scent of your Lavender Sandals, it's essential to fo
 
 After each use, gently wipe the sandals clean with a damp cloth and let them air dry. Avoid exposing them to direct sunlight, as harsh UV rays can cause the colors to fade and the materials to degrade. Store your lavender sandals in a cool, dry place away from humidity when not in use. Proper care will help your Lavender Sandals maintain their scent, comfort, and appearance for an extended period. 
 
-<div><a href="https://serp.ly/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-6/h=540,fit=pad,background=black" alt="Lavender-Sandals-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Lavender+Sandals"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Lavender-Sandals-6/h=540,fit=pad,background=black" alt="Lavender-Sandals-6" height="540"></a></div>
 
 
 ### What is the best way to remove the Lavender Sandal scent?

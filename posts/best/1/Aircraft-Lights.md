@@ -14,18 +14,18 @@ Welcome to our comprehensive review of the top aircraft lights in the market tod
 ## Reviews
 
 
-### [Crazy Light V3 Waterproof Aviation Model Explosion LED Suitable for FPV RC Aircraft](https://serp.ly/amazon/Aircraft+Lights?utm\_term=crazy-light-v3-waterproof-aviation-model-explosion-led-suitable-for-fpv-rc-aircraft)
+### [Crazy Light V3 Waterproof Aviation Model Explosion LED Suitable for FPV RC Aircraft](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=crazy-light-v3-waterproof-aviation-model-explosion-led-suitable-for-fpv-rc-aircraft)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=crazy-light-v3-waterproof-aviation-model-explosion-led-suitable-for-fpv-rc-aircraft"><img alt="crazy-light-v3-waterproof-aviation-model-explosion-flashing-led-light-suitable-for-fixed-wing-fpv-rc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crazy-light-v3-waterproof-aviation-model-explosion-flashing-led-light-suitable-for-fixed-wing-fpv-rc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=crazy-light-v3-waterproof-aviation-model-explosion-led-suitable-for-fpv-rc-aircraft"><img alt="crazy-light-v3-waterproof-aviation-model-explosion-flashing-led-light-suitable-for-fixed-wing-fpv-rc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crazy-light-v3-waterproof-aviation-model-explosion-flashing-led-light-suitable-for-fixed-wing-fpv-rc-1/h=540,fit=pad,background=black"/></a></div>
 
 This Crazy Light V3 Waterproof model is an excellent choice for aviation enthusiasts seeking a high-quality nav light. The model's sleek, modern design and versatile features make it a popular choice for fixed-wing FPV RC aircraft and crossing locomotives alike. Measuring at 43mm x 13mm x 11mm and weighing just 4g, this model is both lightweight and compact. Featuring a battery capacity of 75mah and operating at a voltage of 3.7V, it also boasts overcharge protection for peace of mind. 
 
 One of the model's standout features is its three-stage switch offering various flashing patterns, including double flash, quick flash, and breathing. Users can easily attach the light with 3M adhesive or use a base for added convenience. The included waterproof silicone pad ensures the light remains operable even when used on water. For charging, simply use the provided charging module, or opt for a different charger with a maximum current of 0.1A. 
 
 
-### [Top-Quality Aircraft Navigation Light for Enthusiasts](https://serp.ly/amazon/Aircraft+Lights?utm\_term=top-quality-aircraft-navigation-light-for-enthusiasts)
+### [Top-Quality Aircraft Navigation Light for Enthusiasts](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=top-quality-aircraft-navigation-light-for-enthusiasts)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=top-quality-aircraft-navigation-light-for-enthusiasts"><img alt="integy-g-t-power-six-axis-multi-axis-aircraft-navigation-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/integy-g-t-power-six-axis-multi-axis-aircraft-navigation-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=top-quality-aircraft-navigation-light-for-enthusiasts"><img alt="integy-g-t-power-six-axis-multi-axis-aircraft-navigation-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/integy-g-t-power-six-axis-multi-axis-aircraft-navigation-light-1/h=540,fit=pad,background=black"/></a></div>
 
 This Integy G. T. Power Six Axis & Multi-Axis Aircraft Navigation Light offers exceptional performance with top-quality materials and superb craftsmanship. It's no surprise that this highly-regarded product is preferred by knowledgeable model hobbyists and R/C enthusiasts alike. One of the many standout features is the ability to ship most orders on the same day, ensuring quick and efficient customer satisfaction. 
 
@@ -34,18 +34,18 @@ Despite its outstanding qualities, there are a few drawbacks. The item may not b
 Overall, the Integy G. T. Power Six Axis & Multi-Axis Aircraft Navigation Light remains a top choice for its impressive features and high-quality construction. 
 
 
-### [LED Light Kit for RC Aircraft: Bright and Durable Navigation Lights](https://serp.ly/amazon/Aircraft+Lights?utm\_term=led-light-kit-for-rc-aircraft-bright-and-durable-navigation-lights)
+### [LED Light Kit for RC Aircraft: Bright and Durable Navigation Lights](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=led-light-kit-for-rc-aircraft-bright-and-durable-navigation-lights)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=led-light-kit-for-rc-aircraft-bright-and-durable-navigation-lights"><img alt="viloga-3pcs-set-led-light-kit-for-rc-plane-jet-airplane-aircraft-fix-wing-quadcopter-rechargeable-re-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/viloga-3pcs-set-led-light-kit-for-rc-plane-jet-airplane-aircraft-fix-wing-quadcopter-rechargeable-re-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=led-light-kit-for-rc-aircraft-bright-and-durable-navigation-lights"><img alt="viloga-3pcs-set-led-light-kit-for-rc-plane-jet-airplane-aircraft-fix-wing-quadcopter-rechargeable-re-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/viloga-3pcs-set-led-light-kit-for-rc-plane-jet-airplane-aircraft-fix-wing-quadcopter-rechargeable-re-1/h=540,fit=pad,background=black"/></a></div>
 
 This LED light kit offers a small and lightweight design, making it effortless to install on your remote control (RC) jet plane. The high-quality LED lamp beads emit bright flashing lights, enhancing the recognition of flight attitude. With three blink modes, you can easily switch between double flashing, fast flashing, and breath flashing for various effects. The cooling system allows the high temperature LED lamp beads to cool down quickly, ensuring long-lasting usage. 
 
 The navigational lights feature a lithium battery, which can be conveniently charged using a balance charger or a portable power bank while flying in the field. The product is waterproof, adding to its durability and suitability for outdoor use. Users appreciate the ease of attachment with double sided tape or Velcro for easy removal and charging. However, some wish for an extra cable to charge all three lights simultaneously and a polarized connection plug to prevent incorrect charging. Despite these minor drawbacks, the LED light kit is well-received by customers, particularly for its brightness and ease of use. 
 
 
-### [RC Aircraft Simulation Navigation Lamp 2S-3S LED Light](https://serp.ly/amazon/Aircraft+Lights?utm\_term=rc-aircraft-simulation-navigation-lamp-2s-3s-led-light)
+### [RC Aircraft Simulation Navigation Lamp 2S-3S LED Light](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=rc-aircraft-simulation-navigation-lamp-2s-3s-led-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=rc-aircraft-simulation-navigation-lamp-2s-3s-led-light"><img alt="simulation-navigation-lamp-lights-2s-3s-voltage-ducted-led-light-for-rc-fixed-wing-aircraft-rc-drone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simulation-navigation-lamp-lights-2s-3s-voltage-ducted-led-light-for-rc-fixed-wing-aircraft-rc-drone-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=rc-aircraft-simulation-navigation-lamp-2s-3s-led-light"><img alt="simulation-navigation-lamp-lights-2s-3s-voltage-ducted-led-light-for-rc-fixed-wing-aircraft-rc-drone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simulation-navigation-lamp-lights-2s-3s-voltage-ducted-led-light-for-rc-fixed-wing-aircraft-rc-drone-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Simulation Navigation Lamp 2S-3S Voltage Ducted LED Light. It's an RC light designed for RC fixed wing aircraft and drones. This little guy adds a touch of realism to the drone, making it look like an actual aircraft. 
 
@@ -56,9 +56,9 @@ However, I would have preferred a wider range of work modes. Still, the basic ve
 Overall, it adds a level of sophistication to your RC aircraft, and the various work modes make it a versatile accessory. 
 
 
-### [Large Light Bar Kit for RC Planes Up to 65" Wingspan](https://serp.ly/amazon/Aircraft+Lights?utm\_term=large-light-bar-kit-for-rc-planes-up-to-65-wingspan)
+### [Large Light Bar Kit for RC Planes Up to 65" Wingspan](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=large-light-bar-kit-for-rc-planes-up-to-65-wingspan)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=large-light-bar-kit-for-rc-planes-up-to-65-wingspan"><img alt="mytrickrc-airplane-large-light-bar-kit-65-max-wingspan-1-uf-7-ac3-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mytrickrc-airplane-large-light-bar-kit-65-max-wingspan-1-uf-7-ac3-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=large-light-bar-kit-for-rc-planes-up-to-65-wingspan"><img alt="mytrickrc-airplane-large-light-bar-kit-65-max-wingspan-1-uf-7-ac3-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mytrickrc-airplane-large-light-bar-kit-65-max-wingspan-1-uf-7-ac3-1/h=540,fit=pad,background=black"/></a></div>
 
 MyTrickRC's Airplane Large Light Bar Kit really adds a stylish touch to my RC airplane. With a max wingspan of 65", it fits perfectly on my big planes. And the best part? 
 
@@ -69,18 +69,18 @@ Plus, it fits 1/5th, 1/10th, and 1/16th scale vehicles, so it's incredibly versa
 Other than that, it's a pretty great lighting system. 
 
 
-### [LED Navigation Lights for 24/28VDC Aircraft, Up to 400 Lumens, RFI-Free Design](https://serp.ly/amazon/Aircraft+Lights?utm\_term=led-navigation-lights-for-24-28vdc-aircraft-up-to-400-lumens-rfi-free-design)
+### [LED Navigation Lights for 24/28VDC Aircraft, Up to 400 Lumens, RFI-Free Design](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=led-navigation-lights-for-24-28vdc-aircraft-up-to-400-lumens-rfi-free-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=led-navigation-lights-for-24-28vdc-aircraft-up-to-400-lumens-rfi-free-design"><img alt="led-aircraft-navigation-position-light-bulb-set-28vdc-red-green-white-navmax-series-by-aero-lites-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-aircraft-navigation-position-light-bulb-set-28vdc-red-green-white-navmax-series-by-aero-lites-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=led-navigation-lights-for-24-28vdc-aircraft-up-to-400-lumens-rfi-free-design"><img alt="led-aircraft-navigation-position-light-bulb-set-28vdc-red-green-white-navmax-series-by-aero-lites-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-aircraft-navigation-position-light-bulb-set-28vdc-red-green-white-navmax-series-by-aero-lites-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently installed the LED Aircraft Navigation Light Bulb Set in my aircraft and I gotta say, it was quite an improvement! The brightness on these things is exceptional; they fit perfectly into my wingtips and tail. And let me tell you, the efficiency is nothing short of amazing - it only draws 140 milliamps at 28VDC compared to the 1 amp of incandescent bulbs. Plus, it's completely RFI-free! 
 
 But there were a couple of things that could have been better. The instructions could've been more straightforward, and it might have been helpful to have clear lens covers included. However, overall, I'm quite satisfied with my purchase. I can confidently say, this set of LED lights is a game changer when it comes to aircraft lighting. 
 
 
-### [Aviation-Grade Aircraft Landing Lights](https://serp.ly/amazon/Aircraft+Lights?utm\_term=aviation-grade-aircraft-landing-lights)
+### [Aviation-Grade Aircraft Landing Lights](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=aviation-grade-aircraft-landing-lights)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=aviation-grade-aircraft-landing-lights"><img alt="led-par36-aviation-grade-aircraft-landing-light-white-2100-lumens-spot-narrow-beam-screw-terminal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-par36-aviation-grade-aircraft-landing-light-white-2100-lumens-spot-narrow-beam-screw-terminal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=aviation-grade-aircraft-landing-lights"><img alt="led-par36-aviation-grade-aircraft-landing-light-white-2100-lumens-spot-narrow-beam-screw-terminal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/led-par36-aviation-grade-aircraft-landing-light-white-2100-lumens-spot-narrow-beam-screw-terminal-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to the inconvenience of unreliable existing filament lamps with this bright and efficient LED PAR36 Aviation Grade Aircraft Landing Light. This white light boasts 2,100 lumens and a narrow beam that's perfect for those critical landing moments. 
 
@@ -89,18 +89,18 @@ The light is made with genuine Osram LED chips, creating a customized refraction
 With SAE-J2895 and RoHS compliance, rest assured that you're getting a high-quality product that meets industry standards. Get ready to upgrade your aircraft lighting experience with this superb LED PAR36 Light! 
 
 
-### [Handxen LED PAR36T3 Aviation-Grade Aircraft Taxi Light: Bright, Eco-Friendly, and Lightweight](https://serp.ly/amazon/Aircraft+Lights?utm\_term=handxen-led-par36t3-aviation-grade-aircraft-taxi-light-bright-eco-friendly-and-lightweight)
+### [Handxen LED PAR36T3 Aviation-Grade Aircraft Taxi Light: Bright, Eco-Friendly, and Lightweight](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=handxen-led-par36t3-aviation-grade-aircraft-taxi-light-bright-eco-friendly-and-lightweight)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=handxen-led-par36t3-aviation-grade-aircraft-taxi-light-bright-eco-friendly-and-lightweight"><img alt="handxen-par36t3-led-par36-aviation-grade-aircraft-taxi-light-white-2100-lumens-wide-beam-screw-termi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/handxen-par36t3-led-par36-aviation-grade-aircraft-taxi-light-white-2100-lumens-wide-beam-screw-termi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=handxen-led-par36t3-aviation-grade-aircraft-taxi-light-bright-eco-friendly-and-lightweight"><img alt="handxen-par36t3-led-par36-aviation-grade-aircraft-taxi-light-white-2100-lumens-wide-beam-screw-termi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/handxen-par36t3-led-par36-aviation-grade-aircraft-taxi-light-white-2100-lumens-wide-beam-screw-termi-1/h=540,fit=pad,background=black"/></a></div>
 
 These Handxen PAR36T3 LED PAR36 Aviation Grade aircraft lights offer an energy-efficient and eco-friendly solution, with 2100 lumens of brightness. The durable, lightweight design is moisture-resistant, making it suitable for a variety of outdoor applications. The diecast 6030 aluminum housing effectively dissipates heat and helps maintain the light's efficiency. 
 
 With a 12-volt power source, these lights are easy to install and provide the perfect amount of light for ground handling and taxiing needs. 
 
 
-### [Integy G.T. Power Quadrotor with Multi-Axis Flight Navigation Light](https://serp.ly/amazon/Aircraft+Lights?utm\_term=integy-g-t-power-quadrotor-with-multi-axis-flight-navigation-light)
+### [Integy G.T. Power Quadrotor with Multi-Axis Flight Navigation Light](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=integy-g-t-power-quadrotor-with-multi-axis-flight-navigation-light)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=integy-g-t-power-quadrotor-with-multi-axis-flight-navigation-light"><img alt="integy-g-t-power-quadrotor-and-multi-axis-aircraft-navigation-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/integy-g-t-power-quadrotor-and-multi-axis-aircraft-navigation-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=integy-g-t-power-quadrotor-with-multi-axis-flight-navigation-light"><img alt="integy-g-t-power-quadrotor-and-multi-axis-aircraft-navigation-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/integy-g-t-power-quadrotor-and-multi-axis-aircraft-navigation-light-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who enjoys model hobbies, I was thrilled to try out the Integy G. T. Power Quadrotor and Multi-Axis Aircraft Navigation Light. Right out of the box, I appreciated the attention to detail with its top-quality materials and superb craftsmanship. 
 
@@ -109,9 +109,9 @@ After installing the light, I noticed how easy the DIY process was, making it ac
 While this light may have some minor cons, the pros definitely outweigh them. I highly recommend the Integy G. T. Power Quadrotor and Multi-Axis Aircraft Navigation Light to fellow model enthusiasts seeking a reliable and high-quality product for their aircraft lighting needs. 
 
 
-### [Pilotshop MaxPulse 9200B Landing Light for Aviation Applications](https://serp.ly/amazon/Aircraft+Lights?utm\_term=pilotshop-maxpulse-9200b-landing-light-for-aviation-applications)
+### [Pilotshop MaxPulse 9200B Landing Light for Aviation Applications](https://serp.ly/@outrun/amazon/Aircraft+Lights?utm\_term=pilotshop-maxpulse-9200b-landing-light-for-aviation-applications)
 
-<div class="image"><a href="https://serp.ly/amazon/Aircraft+Lights?utm_term=pilotshop-maxpulse-9200b-landing-light-for-aviation-applications"><img alt="pilotshop-maxpulse-landing-light-9200-b-9200-000-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pilotshop-maxpulse-landing-light-9200-b-9200-000-b-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Aircraft+Lights?utm_term=pilotshop-maxpulse-9200b-landing-light-for-aviation-applications"><img alt="pilotshop-maxpulse-landing-light-9200-b-9200-000-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pilotshop-maxpulse-landing-light-9200-b-9200-000-b-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out the Pilotshop MaxPulse Landing Light for my aircraft, and I must say, it had quite a few surprising benefits. The easy-to-configure settings allowed me to switch between various flashing modes, ensuring that I could find one that suited our needs perfectly. The fact that it could be used for both the starboard and port lights, and even the wig-wag mode, made communication and safety that much easier on the ground. 
 

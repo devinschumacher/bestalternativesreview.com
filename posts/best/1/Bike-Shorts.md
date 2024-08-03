@@ -14,9 +14,9 @@ Get ready to pedal in style with our latest roundup of bike shorts! Whether you'
 ## Reviews
 
 
-### [Trek Circuit: Eco-Friendly, Versatile Bike Shorts](https://serp.ly/amazon/Bike+Shorts?utm\_term=trek-circuit-eco-friendly-versatile-bike-shorts)
+### [Trek Circuit: Eco-Friendly, Versatile Bike Shorts](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=trek-circuit-eco-friendly-versatile-bike-shorts)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=trek-circuit-eco-friendly-versatile-bike-shorts"><img alt="trek-circuit-cycling-short-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/trek-circuit-cycling-short-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=trek-circuit-eco-friendly-versatile-bike-shorts"><img alt="trek-circuit-cycling-short-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/trek-circuit-cycling-short-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Trek Circuit cycling shorts for quite a while now, and I must say, they've been a game-changer for my biking experience. The formfitting dual-density chamois provides an ultimate level of comfort that lets me push myself to go farther than ever before. The fabric is soft to the touch, and the moisture-wicking technology ensures that I stay dry, even during the sweatiest rides. The quick-drying feature is also a lifesaver, especially when I'm in a hurry to get back home after a long ride. 
 
@@ -25,9 +25,9 @@ One of the things I love most about these shorts is the sun-protective fabric, w
 However, there's one downside that I've noticed—these shorts can be a bit slippery on the saddle. I've had a couple of close calls where I almost slid off while braking, so some additional grip might be a welcome feature. Overall, though, the Trek Circuit cycling shorts have exceeded my expectations and become my go-to choice for comfortable and stylish bike shorts. 
 
 
-### [Comfy Girls' Bike Shorts for Cycling & Casual Wear](https://serp.ly/amazon/Bike+Shorts?utm\_term=comfy-girls-bike-shorts-for-cycling-casual-wear)
+### [Comfy Girls' Bike Shorts for Cycling & Casual Wear](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=comfy-girls-bike-shorts-for-cycling-casual-wear)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=comfy-girls-bike-shorts-for-cycling-casual-wear"><img alt="girls-bike-shorts-cat-jack-dark-black-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-bike-shorts-cat-jack-dark-black-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=comfy-girls-bike-shorts-for-cycling-casual-wear"><img alt="girls-bike-shorts-cat-jack-dark-black-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-bike-shorts-cat-jack-dark-black-l-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got the chance to try out the Girls' Bike Shorts from Cat & Jack in their dark black shade. After a few wears, I have to say I'm quite impressed with the quality and fit. The soft cotton fabric with added spandex provides a comfy, stretchy fit that's perfect for cycling or everyday wear. The full elastic waistband ensures a secure fit that stays in place, and the shorts are versatile enough to match with a variety of tops. 
 
@@ -36,9 +36,9 @@ When it comes to the highlights, the bike shorts fall just above the knee, makin
 Overall, the Girls' Bike Shorts from Cat & Jack are a great choice for families looking for comfortable, versatile shorts for their little ones. With their stylish design and solid construction, these shorts have become a go-to addition to our wardrobe. 
 
 
-### [Sweaty Betty High-Performance Women's Bike Shorts](https://serp.ly/amazon/Bike+Shorts?utm\_term=sweaty-betty-high-performance-womens-bike-shorts)
+### [Sweaty Betty High-Performance Women's Bike Shorts](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=sweaty-betty-high-performance-womens-bike-shorts)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=sweaty-betty-high-performance-womens-bike-shorts"><img alt="sweaty-betty-power-4-cycling-shorts-black-womens-xxs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sweaty-betty-power-4-cycling-shorts-black-womens-xxs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=sweaty-betty-high-performance-womens-bike-shorts"><img alt="sweaty-betty-power-4-cycling-shorts-black-womens-xxs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sweaty-betty-power-4-cycling-shorts-black-womens-xxs-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using Sweaty Betty's Power 4" Cycling Shorts for a while now, and let me tell you, they've become my go-to for workout days. The material is soft and comfy, and they provide perfect coverage – not too short, but not too long, either. I love that the waistband doesn't roll or shift, and there's even a handy side pocket for storing my phone. 
 
@@ -49,9 +49,9 @@ Unfortunately, I had a bit of a struggle when I first tried these shorts. I noti
 The one con I've found with these shorts is that, despite being advertised as non-padded, they still feel a bit thick and heavy compared to completely bare shorts. But all in all, these are a great addition to my workout wardrobe, and I'm excited to see what other colors they come in! 
 
 
-### [Nike Women's Comfy High-Waisted Biker Shorts - Black](https://serp.ly/amazon/Bike+Shorts?utm\_term=nike-womens-comfy-high-waisted-biker-shorts-black)
+### [Nike Women's Comfy High-Waisted Biker Shorts - Black](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=nike-womens-comfy-high-waisted-biker-shorts-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=nike-womens-comfy-high-waisted-biker-shorts-black"><img alt="nike-womens-zenvy-gentle-support-high-waisted-8-biker-shorts-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-womens-zenvy-gentle-support-high-waisted-8-biker-shorts-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=nike-womens-comfy-high-waisted-biker-shorts-black"><img alt="nike-womens-zenvy-gentle-support-high-waisted-8-biker-shorts-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-womens-zenvy-gentle-support-high-waisted-8-biker-shorts-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nike Women's Zenvy High-Waisted Biker Shorts are an exceptional choice for any woman seeking both comfort and style. This product offers a snug yet supportive fit, ensuring a perfect balance between ease of movement and gentle compression. 
 
@@ -60,18 +60,18 @@ The InfinaSoft fabric allows for flexibility in every stretch and flex, providin
 Dri-FIT technology guarantees quick evaporation of perspiration, keeping you dry and comfortable during even the most intense exercises. The extra-wide waistband is designed not to roll up, offering even more convenience. Overall, these shorts are a must-have for any woman looking for a versatile and comfortable activewear option. 
 
 
-### [Comfortable High-Rise Bike Shorts for Active Women](https://serp.ly/amazon/Bike+Shorts?utm\_term=comfortable-high-rise-bike-shorts-for-active-women)
+### [Comfortable High-Rise Bike Shorts for Active Women](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=comfortable-high-rise-bike-shorts-for-active-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=comfortable-high-rise-bike-shorts-for-active-women"><img alt="womens-brushed-sculpt-high-rise-bike-shorts-10-all-in-motion-black-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-brushed-sculpt-high-rise-bike-shorts-10-all-in-motion-black-xs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=comfortable-high-rise-bike-shorts-for-active-women"><img alt="womens-brushed-sculpt-high-rise-bike-shorts-10-all-in-motion-black-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-brushed-sculpt-high-rise-bike-shorts-10-all-in-motion-black-xs-1/h=540,fit=pad,background=black"/></a></div>
 
 These Women's Brushed Sculpt High-Rise Bike Shorts are a popular choice for those seeking comfortable, stretchy, and affordable activewear. Made from a soft, stretchy fabric that wicks moisture and dries quickly, these shorts provide excellent coverage and shield from harmful sun rays with a UPF 50+ rating. 
 
 The hidden pocket in the waistband offers hands-free convenience, while the pull-on waistband ensures easy on and off. With a flattering high-rise design, this activewear is perfect for all-day wear. 
 
 
-### [Member's Mark 4-Way Stretch Women's High Waist Bike Shorts (Black, S)](https://serp.ly/amazon/Bike+Shorts?utm\_term=members-mark-4-way-stretch-womens-high-waist-bike-shorts-black-s)
+### [Member's Mark 4-Way Stretch Women's High Waist Bike Shorts (Black, S)](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=members-mark-4-way-stretch-womens-high-waist-bike-shorts-black-s)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=members-mark-4-way-stretch-womens-high-waist-bike-shorts-black-s"><img alt="members-mark-womens-high-waist-4-way-stretch-7-bike-shorts-black-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/members-mark-womens-high-waist-4-way-stretch-7-bike-shorts-black-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=members-mark-4-way-stretch-womens-high-waist-bike-shorts-black-s"><img alt="members-mark-womens-high-waist-4-way-stretch-7-bike-shorts-black-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/members-mark-womens-high-waist-4-way-stretch-7-bike-shorts-black-s-1/h=540,fit=pad,background=black"/></a></div>
 
 Our Member's Mark Style Athletic Shorts are a must-have for your active wardrobe. With a comfortable 5-inch waistband, these biker shorts provide full coverage even when you're bending, squatting, or lifting. 
 
@@ -80,9 +80,9 @@ The durable and stretchy fabric fits like a dream, allowing you to move without 
 Plus, they're lightweight, breathable, and moisture-wicking, perfect for keeping you comfortable during any activity. With spacious side pockets for storing your smartphone, these shorts have everything you need for a stylish and practical experience. 
 
 
-### [Comfortable High-Rise Bike Shorts for an Active Day](https://serp.ly/amazon/Bike+Shorts?utm\_term=comfortable-high-rise-bike-shorts-for-an-active-day)
+### [Comfortable High-Rise Bike Shorts for an Active Day](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=comfortable-high-rise-bike-shorts-for-an-active-day)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=comfortable-high-rise-bike-shorts-for-an-active-day"><img alt="womens-ultra-soft-bike-shorts-wild-fable-mustard-yellow-size-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-ultra-soft-bike-shorts-wild-fable-mustard-yellow-size-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=comfortable-high-rise-bike-shorts-for-an-active-day"><img alt="womens-ultra-soft-bike-shorts-wild-fable-mustard-yellow-size-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-ultra-soft-bike-shorts-wild-fable-mustard-yellow-size-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across these Wild Fable Mustard Yellow bike shorts, and I must say, they have quickly become my go-to pair for a comfortable, active day. The slim fit design and high-rise silhouette make them perfect for lounging or running errands, while the soft, recycled polyester fabric with added spandex ensures a stretchy, breathable fit. 
 
@@ -91,9 +91,9 @@ Wearing these bike shorts throughout my day, I've noticed how smoothly they adju
 However, I've heard a few mixed reviews about the see-through issue with some of the colors. I personally don't have this problem, but it's worth considering if you're looking for an opaque pair. Overall, if you're in the market for a soft and comfortable bike short, these Wild Fable Mustard Yellow shorts might be just the ticket. 
 
 
-### [Rapha Trail Lightweight Bike Shorts](https://serp.ly/amazon/Bike+Shorts?utm\_term=rapha-trail-lightweight-bike-shorts)
+### [Rapha Trail Lightweight Bike Shorts](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=rapha-trail-lightweight-bike-shorts)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=rapha-trail-lightweight-bike-shorts"><img alt="rapha-trail-fast-light-shorts-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rapha-trail-fast-light-shorts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=rapha-trail-lightweight-bike-shorts"><img alt="rapha-trail-fast-light-shorts-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rapha-trail-fast-light-shorts-1/h=540,fit=pad,background=black"/></a></div>
 
 Rapha Trail Fast & Light Shorts: My go-to choice for a ride. These shorts are a game-changer when it comes to comfort and performance on the trail. 
 
@@ -102,9 +102,9 @@ The slim fit and ergonomic construction keep me feeling locked in while the ligh
 The only aspect I'm not entirely thrilled about is the limited color options, but overall, these shorts are a fantastic addition to my cycling wardrobe. 
 
 
-### [Retro-Inspired Nike Sportswear Essential Women's Mid-Rise Bike Shorts - Perfect for Active Women](https://serp.ly/amazon/Bike+Shorts?utm\_term=retro-inspired-nike-sportswear-essential-womens-mid-rise-bike-shorts-perfect-for-active-women)
+### [Retro-Inspired Nike Sportswear Essential Women's Mid-Rise Bike Shorts - Perfect for Active Women](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=retro-inspired-nike-sportswear-essential-womens-mid-rise-bike-shorts-perfect-for-active-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=retro-inspired-nike-sportswear-essential-womens-mid-rise-bike-shorts-perfect-for-active-women"><img alt="nike-sportswear-essential-womens-mid-rise-bike-shorts-in-purple-size-xs-dm7989-592" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-sportswear-essential-womens-mid-rise-bike-shorts-in-purple-size-xs-dm7989-592/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=retro-inspired-nike-sportswear-essential-womens-mid-rise-bike-shorts-perfect-for-active-women"><img alt="nike-sportswear-essential-womens-mid-rise-bike-shorts-in-purple-size-xs-dm7989-592" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-sportswear-essential-womens-mid-rise-bike-shorts-in-purple-size-xs-dm7989-592/h=540,fit=pad,background=black"/></a></div>
 
 Step up your casual style with the Nike Sportswear Essential Women's Bike Shorts - a perfect blend of comfort and fashion. Let the vibrant multi-colored graphic brighten up your day, and get ready for some fun in the sun. 
 
@@ -117,18 +117,18 @@ However, some users have mentioned that the fit can be quite tight and the short
 Overall, the Nike Sportswear Essential Women's Bike Shorts offer a combination of style, comfort, and functionality that's sure to catch your attention. 
 
 
-### [Men's MTB Mountain Bike Shorts - Single Tracker](https://serp.ly/amazon/Bike+Shorts?utm\_term=mens-mtb-mountain-bike-shorts-single-tracker)
+### [Men's MTB Mountain Bike Shorts - Single Tracker](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=mens-mtb-mountain-bike-shorts-single-tracker)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=mens-mtb-mountain-bike-shorts-single-tracker"><img alt="the-single-tracker-mens-mtb-mountain-bike-shorts-size-medium-30-32-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-single-tracker-mens-mtb-mountain-bike-shorts-size-medium-30-32-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=mens-mtb-mountain-bike-shorts-single-tracker"><img alt="the-single-tracker-mens-mtb-mountain-bike-shorts-size-medium-30-32-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-single-tracker-mens-mtb-mountain-bike-shorts-size-medium-30-32-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Single Tracker MTB Mountain Bike Shorts, available in a Medium size with a waist fitting 30-32 inches, come in a sleek black color. These shorts boast a 92% Nylon and 8% Spandex composition, ensuring comfort and durability during your cycling adventures. The under panel is designed as a single panel to minimize rubbing, and all panels and pockets have been double stitched for added strength and anti-chafe capabilities. 
 
 The shorts feature a water-resistant and quick-wicking material, keeping you dry in muddy or wet conditions. In addition, they offer secure pockets with a clever smartphone compartment, making your devices accessible on the go. With their loose fit and urban cycling design, these MTB shorts make a great addition to any cyclist's wardrobe. 
 
 
-### [Criss-Cross Yoga Bike Shorts for Comfort and Style](https://serp.ly/amazon/Bike+Shorts?utm\_term=criss-cross-yoga-bike-shorts-for-comfort-and-style)
+### [Criss-Cross Yoga Bike Shorts for Comfort and Style](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=criss-cross-yoga-bike-shorts-for-comfort-and-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=criss-cross-yoga-bike-shorts-for-comfort-and-style"><img alt="crz-yoga-womens-high-rise-butterluxe-v-cross-waist-biker-shorts-3-taupe-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crz-yoga-womens-high-rise-butterluxe-v-cross-waist-biker-shorts-3-taupe-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=criss-cross-yoga-bike-shorts-for-comfort-and-style"><img alt="crz-yoga-womens-high-rise-butterluxe-v-cross-waist-biker-shorts-3-taupe-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crz-yoga-womens-high-rise-butterluxe-v-cross-waist-biker-shorts-3-taupe-l-1/h=540,fit=pad,background=black"/></a></div>
 
 These CRZ Yoga Biker Shorts exude a luxurious feel, thanks to their high-quality Butterluxe fabric. Designed with stretch and comfort in mind, they're perfect for both yoga and lounge sessions. 
 
@@ -137,18 +137,18 @@ The high rise design and 3'' inseam make them suitable for various activities, w
 Machine washable and featuring a pull-on closure, they're convenient to care for. 
 
 
-### [Peloton Women's Seamless Cycling Shorts](https://serp.ly/amazon/Bike+Shorts?utm\_term=peloton-womens-seamless-cycling-shorts)
+### [Peloton Women's Seamless Cycling Shorts](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=peloton-womens-seamless-cycling-shorts)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=peloton-womens-seamless-cycling-shorts"><img alt="peloton-womens-seamless-bike-short-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/peloton-womens-seamless-bike-short-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=peloton-womens-seamless-cycling-shorts"><img alt="peloton-womens-seamless-bike-short-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/peloton-womens-seamless-bike-short-1/h=540,fit=pad,background=black"/></a></div>
 
 Designed for a comfortable and stylish workout, the Peloton Women's Seamless Bike Shorts are the perfect addition to any fitness wardrobe. Made from a blend of 97% Nylon and 3% Spandex, these shorts provide a snug fit and a touch of stretch for maximum comfort. 
 
 The seamless construction of the low-support shorts creates a flattering look, while the Peloton logo stamp at the center back adds a touch of style. To maintain the quality of these shorts, wash them gently on a delicate cycle and dry them flat. Imported from the USA, these bike shorts are a must-have for any Peloton enthusiast. 
 
 
-### [Nike Women's Sportswear High-Waist Biker Shorts](https://serp.ly/amazon/Bike+Shorts?utm\_term=nike-womens-sportswear-high-waist-biker-shorts)
+### [Nike Women's Sportswear High-Waist Biker Shorts](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=nike-womens-sportswear-high-waist-biker-shorts)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=nike-womens-sportswear-high-waist-biker-shorts"><img alt="nike-womens-sportswear-classic-high-waist-8-biker-shorts-black-sail-size-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-womens-sportswear-classic-high-waist-8-biker-shorts-black-sail-size-xs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=nike-womens-sportswear-high-waist-biker-shorts"><img alt="nike-womens-sportswear-classic-high-waist-8-biker-shorts-black-sail-size-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-womens-sportswear-classic-high-waist-8-biker-shorts-black-sail-size-xs-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Nike Women's Sportswear Classic High-Waist 8" Biker Shorts in black, and I must say, these shorts have become a staple in my workout outfit. The high-waist design provides a secure fit while keeping me covered, and I appreciate the elasticated waistband that doesn't roll or pinch. 
 
@@ -161,9 +161,9 @@ One downside I noticed was that the shorts don't seem to hold their shape as wel
 Overall, the Nike Women's Sportswear Classic High-Waist 8" Biker Shorts in black have become a go-to choice for my workout wardrobe. The pros definitely outweigh the cons, and I'm confident I'll continue to reach for these shorts whenever I need a comfortable, reliable pair of shorts for my active lifestyle. 
 
 
-### [Dragon Fit Women's High Waist Yoga Shorts with Pockets and Tummy Control](https://serp.ly/amazon/Bike+Shorts?utm\_term=dragon-fit-womens-high-waist-yoga-shorts-with-pockets-and-tummy-control)
+### [Dragon Fit Women's High Waist Yoga Shorts with Pockets and Tummy Control](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=dragon-fit-womens-high-waist-yoga-shorts-with-pockets-and-tummy-control)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=dragon-fit-womens-high-waist-yoga-shorts-with-pockets-and-tummy-control"><img alt="dragon-fit-high-waist-yoga-shorts-for-women-with-2-side-pockets-tummy-control-running-home-workout-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dragon-fit-high-waist-yoga-shorts-for-women-with-2-side-pockets-tummy-control-running-home-workout-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=dragon-fit-womens-high-waist-yoga-shorts-with-pockets-and-tummy-control"><img alt="dragon-fit-high-waist-yoga-shorts-for-women-with-2-side-pockets-tummy-control-running-home-workout-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dragon-fit-high-waist-yoga-shorts-for-women-with-2-side-pockets-tummy-control-running-home-workout-s-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out these Dragon Fit High Waist Yoga Shorts for Women, and I must say, the experience has been quite pleasant. The first thing that caught my attention was the fabric; it's incredibly comfortable, soft and stretchy, making it perfect for yoga, exercise or simply everyday use. 
 
@@ -174,9 +174,9 @@ While it's difficult to find fault with a product that works as well as this one
 Overall, I'm quite impressed with these Dragon Fit High Waist Yoga Shorts for Women. They offer the perfect blend of comfort, functionality, and style, and I'm happy to add them to my workout wardrobe. So, if you're in the market for a new pair of yoga shorts that work just as well at the gym as they do for everyday use, look no further than these Dragon Fit gems! 
 
 
-### [Wild Fable Women's High-Rise Bike Shorts - Size Xxs](https://serp.ly/amazon/Bike+Shorts?utm\_term=wild-fable-womens-high-rise-bike-shorts-size-xxs)
+### [Wild Fable Women's High-Rise Bike Shorts - Size Xxs](https://serp.ly/@outrun/amazon/Bike+Shorts?utm\_term=wild-fable-womens-high-rise-bike-shorts-size-xxs)
 
-<div class="image"><a href="https://serp.ly/amazon/Bike+Shorts?utm_term=wild-fable-womens-high-rise-bike-shorts-size-xxs"><img alt="womens-high-rise-bike-shorts-wild-fable-black-size-xxs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-high-rise-bike-shorts-wild-fable-black-size-xxs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bike+Shorts?utm_term=wild-fable-womens-high-rise-bike-shorts-size-xxs"><img alt="womens-high-rise-bike-shorts-wild-fable-black-size-xxs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-high-rise-bike-shorts-wild-fable-black-size-xxs-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest for a comfortable high-rise bike short, I stumbled upon these Wild Fable Black Size XXS shorts. They're made from a soft, lightweight fabric with just the right amount of stretch for a perfect fit that moves with you. I loved the high-rise silhouette with a wide waistband that stayed in place, even during my daily bike rides. 
 

@@ -18,9 +18,9 @@ Join us on this journey as we delve into the world of distortion pedals, explore
 ## Reviews
 
 
-### [MXR Distortion III M115 Pedal: Guitar Effects Masterpiece](https://serp.ly/amazon/Distortion+Pedal?utm\_term=mxr-distortion-iii-m115-pedal-guitar-effects-masterpiece)
+### [MXR Distortion III M115 Pedal: Guitar Effects Masterpiece](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=mxr-distortion-iii-m115-pedal-guitar-effects-masterpiece)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=mxr-distortion-iii-m115-pedal-guitar-effects-masterpiece"><img alt="mxr-distortion-iii-m115-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mxr-distortion-iii-m115-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=mxr-distortion-iii-m115-pedal-guitar-effects-masterpiece"><img alt="mxr-distortion-iii-m115-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mxr-distortion-iii-m115-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the MXR Distortion III M115 pedal and was thoroughly impressed by its versatility and authentic tone. The pedal has a sleek metal housing that gives it a sturdy feel, and it's easy to operate with a power supply or battery. One of the standout features for me was the ability to control both the output and the distortion levels, giving me a wide range of sounds to choose from. 
 
@@ -29,18 +29,18 @@ The pedal's true hardwire bypass was also noteworthy, as it allowed for smooth a
 However, I did notice that the pedal was not the best option for those looking for a more modern metal tone. Despite this, the MXR Distortion III M115 still proved to be a valuable addition to my pedal collection, offering a warm and unique sound that I haven't found elsewhere. Overall, I highly recommend this pedal for anyone seeking a versatile and authentic distortion experience. 
 
 
-### [Acapulco Gold V2 Power Amp Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=acapulco-gold-v2-power-amp-distortion-pedal)
+### [Acapulco Gold V2 Power Amp Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=acapulco-gold-v2-power-amp-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=acapulco-gold-v2-power-amp-distortion-pedal"><img alt="earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=acapulco-gold-v2-power-amp-distortion-pedal"><img alt="earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Holding the EarthQuaker Devices Acapulco Gold V2 Power Amp Distortion Pedal in your hands gives you the sensation of having a classic tube amp's master volume knob right at your fingertips. Featuring a massive knob to adjust the volume for an elevated performance, this distortion pedal delivers top-notch audio output. The gold accents contribute to its vintage allure, while the tone covers a vast array of gritty tones that are exceptionally sensitive to your guitar's volume and tone settings.
 
 The enhanced silent switching system sets this pedal apart from its predecessor. Although it can be quite loud, it's fantastic for increasing volume, adding texture, and infusing distortion into your sound. The one-knob control design makes it user-friendly, and the sound is incredibly receptive to your playing style.
 
 
-### [Wampler Ratsbane: Ultimate Distortion Pedal for Guitar](https://serp.ly/amazon/Distortion+Pedal?utm\_term=wampler-ratsbane-ultimate-distortion-pedal-for-guitar)
+### [Wampler Ratsbane: Ultimate Distortion Pedal for Guitar](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=wampler-ratsbane-ultimate-distortion-pedal-for-guitar)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=wampler-ratsbane-ultimate-distortion-pedal-for-guitar"><img alt="wampler-ratsbane-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wampler-ratsbane-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=wampler-ratsbane-ultimate-distortion-pedal-for-guitar"><img alt="wampler-ratsbane-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wampler-ratsbane-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the iconic vibe of the 1980s hard rock scene with the Wampler Ratsbane Distortion Pedal, a true classic that stands out among its contemporaries. This versatile pedal boasts a flexible circuitry that offers everything from delicate overdrive to high gain, perfect for any guitarist's rig.
 
@@ -53,9 +53,9 @@ However, a few users have reported that the pedal emits a pronounced hissing sou
 In conclusion, the Wampler Ratsbane Distortion Pedal is a highly regarded revival of a legendary stompbox, appreciated by blues enthusiasts, arena rockers, and metalheads alike.
 
 
-### [Bogner Uberschall Distortion Pedal: Rich Metal Tones with Customizable Effects and Premium Components](https://serp.ly/amazon/Distortion+Pedal?utm\_term=bogner-uberschall-distortion-pedal-rich-metal-tones-with-customizable-effects-and-premium-components)
+### [Bogner Uberschall Distortion Pedal: Rich Metal Tones with Customizable Effects and Premium Components](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=bogner-uberschall-distortion-pedal-rich-metal-tones-with-customizable-effects-and-premium-components)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=bogner-uberschall-distortion-pedal-rich-metal-tones-with-customizable-effects-and-premium-components"><img alt="bogner-uberschall-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/bogner-uberschall-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=bogner-uberschall-distortion-pedal-rich-metal-tones-with-customizable-effects-and-premium-components"><img alt="bogner-uberschall-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/bogner-uberschall-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 As a guitarist, I've had the pleasure of using the Bogner Uberschall Distortion Pedal in my daily practices, and let me tell you, it's quite the beast. This versatile pedal is known for its capability to create rich, deep metal-style music, which I've definitely taken advantage of. Its 3-band EQs add more control to customize the effects, making it convenient for quick adjustments on the go. 
 
@@ -64,9 +64,9 @@ While the gold-plated circuit boards are a solid highlight, I must say that I'm 
 Overall, the Bogner Uberschall Distortion Pedal is an impressive piece of gear that offers some unique tonal possibilities. I appreciate its build quality and customization options, even if it's not the perfect fit for my specific setup. 
 
 
-### [JHS Crayon Distortion Pedal for Guitar and Bass](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jhs-crayon-distortion-pedal-for-guitar-and-bass)
+### [JHS Crayon Distortion Pedal for Guitar and Bass](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jhs-crayon-distortion-pedal-for-guitar-and-bass)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jhs-crayon-distortion-pedal-for-guitar-and-bass"><img alt="jhs-crayon-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-crayon-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jhs-crayon-distortion-pedal-for-guitar-and-bass"><img alt="jhs-crayon-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-crayon-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the JHS Crayon Distortion/Fuzz Pedal, and I must say, it's quite an impressive piece of equipment. The pedal's ability to re-create that classic sound of plugging your guitar directly into the preamp was truly exhilarating. Its dual gain stages allowed me to achieve everything from subtle sweetening to full-on distortion with such ease, thanks to its 100% analog signal path based on the design of classic Neve mixing console. 
 
@@ -77,9 +77,9 @@ However, I did notice that the pedal seemed to work best when used at loud volum
 Overall, the JHS Crayon Distortion/Fuzz Pedal is a fantastic addition to any guitarist's arsenal. Its unique design and wide array of sound amplification options make it a worthy investment for those looking to elevate their stage presence with a versatile and powerful pedal. 
 
 
-### [Boss DS-2 Turbo Distortion Guitar Effect Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-ds-2-turbo-distortion-guitar-effect-pedal)
+### [Boss DS-2 Turbo Distortion Guitar Effect Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-ds-2-turbo-distortion-guitar-effect-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-ds-2-turbo-distortion-guitar-effect-pedal"><img alt="boss-ds-2-turbo-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-2-turbo-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-ds-2-turbo-distortion-guitar-effect-pedal"><img alt="boss-ds-2-turbo-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-2-turbo-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Boss DS-2 Turbo Distortion might have a quirky name, but this distortion pedal is anything but. I remember the day when I first took it on stage for a gig, and let me tell you, it was love at first distortion. With its twin modes, I felt like I had my own personal grunge festival in my hands. 
 
@@ -92,9 +92,9 @@ However, no product is without its flaws. The mode switch can be a bit finicky, 
 So, if you're looking for a distortion pedal that will give your music a grunge-y edge, the Boss DS-2 Turbo Distortion is definitely worth considering. Just remember to be a bit gentle with that mode switch! 
 
 
-### [JHS Pedals Charlie Brown V4 Overdrive/Distortion Guitar Effects Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal)
+### [JHS Pedals Charlie Brown V4 Overdrive/Distortion Guitar Effects Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal"><img alt="jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal"><img alt="jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The JHS Pedals Charlie Brown V4 overdrive pedal has brought a whole new level of warmth and character to my amp. As someone who enjoys classic rock and blues, this pedal is a dream come true. It's so true to its original JTM45 heritage, giving it that rich, full sound that made rock 'n' roll what it is today. 
 
@@ -105,9 +105,9 @@ The one thing that might hold some people back is the requirement for a 9V DC po
 Overall, the JHS Pedals Charlie Brown V4 overdrive pedal is a must-have for those who love the classic rock and roll sound. It's a fantastic addition to any guitarist's pedal board, and I highly recommend giving it a try. 
 
 
-### [Boss JB 2 Distortion Pedal for Angry Drivers](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-jb-2-distortion-pedal-for-angry-drivers)
+### [Boss JB 2 Distortion Pedal for Angry Drivers](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-jb-2-distortion-pedal-for-angry-drivers)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-jb-2-distortion-pedal-for-angry-drivers"><img alt="boss-jb-2-angry-driver-overdrive-distortion-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-jb-2-angry-driver-overdrive-distortion-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-jb-2-distortion-pedal-for-angry-drivers"><img alt="boss-jb-2-angry-driver-overdrive-distortion-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-jb-2-angry-driver-overdrive-distortion-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to rock with the Boss JB - 2 Angry Driver Overdrive Distortion pedal, the perfect combination of Boss BD-2 Blues Driver and JHS Pedals Angry Charlie. With three dual concentric buttons for controlling overdrive, sound, and volume, you can customize every effect to fit your music style. 
 
@@ -116,9 +116,9 @@ Choose from two modes - the Overdrive type, offering effect overlaying or parall
 The 5-year guarantee from Boss ensures that this pedal is built to last, with a thick metal housing and rubber pressure pad for durability. The Boss JB - 2 Angry Driver is a versatile and powerful addition to any musician's toolkit. 
 
 
-### [Fulltone MAS Malo Distortion / Fuzz Pedal: Versatile Tone Solution](https://serp.ly/amazon/Distortion+Pedal?utm\_term=fulltone-mas-malo-distortion-fuzz-pedal-versatile-tone-solution)
+### [Fulltone MAS Malo Distortion / Fuzz Pedal: Versatile Tone Solution](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=fulltone-mas-malo-distortion-fuzz-pedal-versatile-tone-solution)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=fulltone-mas-malo-distortion-fuzz-pedal-versatile-tone-solution"><img alt="fulltone-mas-malo-distortion-fuzz-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fulltone-mas-malo-distortion-fuzz-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=fulltone-mas-malo-distortion-fuzz-pedal-versatile-tone-solution"><img alt="fulltone-mas-malo-distortion-fuzz-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fulltone-mas-malo-distortion-fuzz-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Fulltone MAS Malo Distortion/Fuzz Pedal is an exceptional piece of gear that delivers a wide variety of impressive tonal possibilities. Designed with vintage-inspired sounds, this pedal is crafted with NOS (New Old Stock) BC184C transistors, known for their ability to produce the signature feel and tone that many players crave. From smooth leads to punishing riffs, the Mas Malo effortlessly delivers full-out fuzz to tight, sustaining distortion. With a user-friendly 4-knob layout, it is incredibly simple to find the perfect sound to suit your music. 
 
@@ -127,9 +127,9 @@ One of the standout features of this pedal is its versatility. It can function a
 Many players have praised the Mas Malo for its ability to produce fantastic classic rock and 90's grunge tones. Though it may not be suitable for those looking for a tightly controlled, super-tight "80s metal" distortion pedal, it has won the hearts of countless musicians who are looking for a go-to pedal that can provide anything from a warm, overdriven boost to a screaming fuzz tone. This pedal's diverse tonal range and easy-to-use interface make it a highly sought-after addition to countless music rigs. 
 
 
-### [Kokko Mini Distortion Pedal for Guitar and Bass](https://serp.ly/amazon/Distortion+Pedal?utm\_term=kokko-mini-distortion-pedal-for-guitar-and-bass)
+### [Kokko Mini Distortion Pedal for Guitar and Bass](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=kokko-mini-distortion-pedal-for-guitar-and-bass)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=kokko-mini-distortion-pedal-for-guitar-and-bass"><img alt="distortion-guitar-pedal-mini-effect-pedal-processor-of-classic-distortion-tone-effect-universal-for--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/distortion-guitar-pedal-mini-effect-pedal-processor-of-classic-distortion-tone-effect-universal-for--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=kokko-mini-distortion-pedal-for-guitar-and-bass"><img alt="distortion-guitar-pedal-mini-effect-pedal-processor-of-classic-distortion-tone-effect-universal-for--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/distortion-guitar-pedal-mini-effect-pedal-processor-of-classic-distortion-tone-effect-universal-for--1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Distortion Pedal, Mini Effect Pedal from Kokko for a few weeks now, and let me tell you, it's been a game-changer in my music sessions! The classic distortion tone it produces is simply fantastic. I've tried it out with both my electric guitar and bass, and it has added a whole new dimension to my sound. 
 
@@ -144,36 +144,36 @@ The high-quality aluminum alloy construction of the pedal not only looks sleek, 
 The most impressive part is the price – it's incredibly reasonable, especially when you consider the high-quality product you're getting. It's definitely worth the investment. Overall, this Distortion Pedal has been a fantastic addition to my collection, and I'm sure it'll be the same for many others! 
 
 
-### [Abasi Pathos Distortion Pedal - Versatile Tone with LED Indicator](https://serp.ly/amazon/Distortion+Pedal?utm\_term=abasi-pathos-distortion-pedal-versatile-tone-with-led-indicator)
+### [Abasi Pathos Distortion Pedal - Versatile Tone with LED Indicator](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=abasi-pathos-distortion-pedal-versatile-tone-with-led-indicator)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=abasi-pathos-distortion-pedal-versatile-tone-with-led-indicator"><img alt="abasi-pathos-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/abasi-pathos-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=abasi-pathos-distortion-pedal-versatile-tone-with-led-indicator"><img alt="abasi-pathos-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/abasi-pathos-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience unrivaled versatility with the Abasi PATHOS Distortion Pedal, meticulously crafted by Tosin Abasi and Brian Wampler. This exceptional tool for guitarists offers two exceptional drive choices: Smooth and Edge voicing.
 
 Its impressive features extend to a versatile 3-band EQ, high-quality components, and an elegant design that caters to diverse musical genres. The pedal also boasts customizable gain and level controls, a convenient smooth-to-edge tone toggle switch, and a dependable LED indicator. The Abasi PATHOS Distortion Pedal could very well be the one pedal your pedalboard collection has been missing.
 
 
-### [FAT RAT Pro Co Distortion Pedal with MOSFET Clipping](https://serp.ly/amazon/Distortion+Pedal?utm\_term=fat-rat-pro-co-distortion-pedal-with-mosfet-clipping)
+### [FAT RAT Pro Co Distortion Pedal with MOSFET Clipping](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=fat-rat-pro-co-distortion-pedal-with-mosfet-clipping)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=fat-rat-pro-co-distortion-pedal-with-mosfet-clipping"><img alt="pro-co-fat-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/pro-co-fat-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=fat-rat-pro-co-distortion-pedal-with-mosfet-clipping"><img alt="pro-co-fat-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/pro-co-fat-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Pro Co Fat Rat Distortion Pedal is a must-have for any guitar enthusiast looking to create a variety of sound effects from their instrument. This versatile pedal features dedicated knobs for controlling playback volume and distortion, allowing you to achieve the perfect sound for your needs. 
 
 Its innovative design splits the signal, eliminating distortion and retaining the sound quality, making it a great choice for both bass and down-tuned electric guitars. The Pro Co Fat Rat Distortion Pedal boasts a familiar 3-knob layout, rugged on/off footswitch, and a status LED, ensuring ease of use and durability. 
 
 
-### [Soul Food Distortion Pedal: Versatile Performance for Rich Tones](https://serp.ly/amazon/Distortion+Pedal?utm\_term=soul-food-distortion-pedal-versatile-performance-for-rich-tones)
+### [Soul Food Distortion Pedal: Versatile Performance for Rich Tones](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=soul-food-distortion-pedal-versatile-performance-for-rich-tones)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=soul-food-distortion-pedal-versatile-performance-for-rich-tones"><img alt="electro-harmonix-soul-food-distortion-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/electro-harmonix-soul-food-distortion-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=soul-food-distortion-pedal-versatile-performance-for-rich-tones"><img alt="electro-harmonix-soul-food-distortion-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/electro-harmonix-soul-food-distortion-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Electro-Harmonix Soul Food pedal is a versatile option for musicians looking to add an extra boost of warmth or crunch to their guitar tone. With a frequency response of 1.6kHz to 2.4kHz, this overdrive pedal promises to deliver loud and sharp audio quality. Featuring 20dB impedance to reduce distortion for clearer sound output, the pedal ensures your tone remains consistent. The 9V battery provides a powerful and reliable power supply for enhanced performance. 
 
 Electro-Harmonix has created a highly regarded overdrive pedal that has won several awards, including the Stompbox FX and Tonepedia editions. With a frequency range of 1.6 to 2.4 kHz, the pedal delivers a loud and sharp audio quality. Its 20dB impedance ensures minimal distortion for clear sound output. The 9V battery provides a consistent power supply for improved performance. 
 
 
-### [Pro Co You Dirty Rat Germanium Diodes Distortion Pedal: 1960s Garage Rock Tone](https://serp.ly/amazon/Distortion+Pedal?utm\_term=pro-co-you-dirty-rat-germanium-diodes-distortion-pedal-1960s-garage-rock-tone)
+### [Pro Co You Dirty Rat Germanium Diodes Distortion Pedal: 1960s Garage Rock Tone](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=pro-co-you-dirty-rat-germanium-diodes-distortion-pedal-1960s-garage-rock-tone)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=pro-co-you-dirty-rat-germanium-diodes-distortion-pedal-1960s-garage-rock-tone"><img alt="pro-co-you-dirty-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/pro-co-you-dirty-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=pro-co-you-dirty-rat-germanium-diodes-distortion-pedal-1960s-garage-rock-tone"><img alt="pro-co-you-dirty-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/pro-co-you-dirty-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 This Pro Co You Dirty Rat Distortion Pedal is a classic and versatile guitar pedal that captures the spirit of innovation. It was made in the United States in the 2010s and features germanium diode clipping, which adds warmth and a touch of fuzz to its powerful distortion sound. The pedal is designed for maximum gain and thickness, while still maintaining clarity and note separation. 
 
@@ -182,9 +182,9 @@ One of the pedal's most notable features is its ability to provide a warmer and 
 Although some might argue that it has the ugliest design ever, this feature can be seen as a signature touch, giving the pedal its own distinct identity. Overall, the Pro Co You Dirty Rat Distortion Pedal is a go-to choice for those who want a powerful and classic distortion sound that's perfect for various guitar playing styles. 
 
 
-### [Boss OD-1X Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-od-1x-distortion-pedal)
+### [Boss OD-1X Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-od-1x-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-od-1x-distortion-pedal"><img alt="boss-od-1x-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-od-1x-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-od-1x-distortion-pedal"><img alt="boss-od-1x-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-od-1x-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I found the Boss OD-1X Overdrive Pedal to be a versatile and dynamic addition to my guitar setup. The first thing that stood out to me was the rich, warm tone it produced – a testament to the MDP technology it uses. This feature allowed me to easily sculpt and customize my sound to fit my playing style, making it an excellent choice for live settings. 
 
@@ -193,9 +193,9 @@ One of the most impressive aspects of the OD-1X was its ability to react to subt
 However, there were a couple of drawbacks to the OD-1X. Firstly, the footswitch was rather heavy, which took some time getting used to, although I eventually adapted. Secondly, the pedal was quite bulky, taking up a significant amount of space on my pedalboard. Other than those minor issues, I found the OD-1X to be a fantastic overdrive pedal, well worth the investment for any guitarist looking to add depth and character to their tone. 
 
 
-### [T-Rex Mudhoney Unleashed Distortion Delight](https://serp.ly/amazon/Distortion+Pedal?utm\_term=t-rex-mudhoney-unleashed-distortion-delight)
+### [T-Rex Mudhoney Unleashed Distortion Delight](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=t-rex-mudhoney-unleashed-distortion-delight)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=t-rex-mudhoney-unleashed-distortion-delight"><img alt="t-rex-mudhoney-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/t-rex-mudhoney-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=t-rex-mudhoney-unleashed-distortion-delight"><img alt="t-rex-mudhoney-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/t-rex-mudhoney-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The T-Rex Mudhoney Distortion Pedal, a shining star among the sea of distortion pedals, has proven to be an unyielding powerhouse for any musician in search of the ultimate sound sculpting experience. Crafted with impeccable precision and unrivaled attention to detail, this pedal quickly garnered a reputation for its sheer versatility and outstanding performance. 
 
@@ -210,9 +210,9 @@ However, no product is without its imperfections. The T-Rex Mudhoney Distortion 
 Overall, the T-Rex Mudhoney Distortion Pedal is a remarkable piece of equipment that undoubtedly deserves its place among any musician's collection. Its unyielding versatility and top-notch performance are sure to bring out the best in every note and chord that graces the listener's ears. 
 
 
-### [Retro Double Barrel V4 Overdrive Pedal for Enhanced Guitar Tones](https://serp.ly/amazon/Distortion+Pedal?utm\_term=retro-double-barrel-v4-overdrive-pedal-for-enhanced-guitar-tones)
+### [Retro Double Barrel V4 Overdrive Pedal for Enhanced Guitar Tones](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=retro-double-barrel-v4-overdrive-pedal-for-enhanced-guitar-tones)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=retro-double-barrel-v4-overdrive-pedal-for-enhanced-guitar-tones"><img alt="jhs-double-barrel-v4-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-double-barrel-v4-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=retro-double-barrel-v4-overdrive-pedal-for-enhanced-guitar-tones"><img alt="jhs-double-barrel-v4-overdrive-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-double-barrel-v4-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The JHS Double Barrel V4 Overdrive Pedal has become a staple in my rig, offering not one, but two overdrive options in one compact stompbox. The Moonshine V2 on the right side is an exceptional take on the iconic overdrive with its tweaked circuit and added clean blend control, providing a versatile and warm tone. On the other hand, the Morning Glory on the left side offers a Bluesbreaker-inspired flavour, perfect for those low-to-medium gain levels. 
 
@@ -223,9 +223,9 @@ However, there are a few minor drawbacks, such as the inconvenience of having to
 Despite these minor downsides, the JHS Double Barrel V4 Overdrive Pedal is an exceptional piece of music gear that has earned its place in my rig. Its versatility and unique tone-shaping options make it an indispensable tool for any guitarist seeking a wide range of overdrive flavours. 
 
 
-### [Source Audio Aftershock Bass Distortion Pedal for Guitarists](https://serp.ly/amazon/Distortion+Pedal?utm\_term=source-audio-aftershock-bass-distortion-pedal-for-guitarists)
+### [Source Audio Aftershock Bass Distortion Pedal for Guitarists](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=source-audio-aftershock-bass-distortion-pedal-for-guitarists)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=source-audio-aftershock-bass-distortion-pedal-for-guitarists"><img alt="source-audio-aftershock-bass-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/source-audio-aftershock-bass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=source-audio-aftershock-bass-distortion-pedal-for-guitarists"><img alt="source-audio-aftershock-bass-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/source-audio-aftershock-bass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Unleash your bass sounds with the Source Audio Aftershock Bass Distortion Pedal - a remarkable pedal designed specifically for bass players seeking to add a plethora of tones to their music. Boasting three distinct bass overdrive engines, it can deliver everything from subtle and alluring overdrive to a full-on frenzied fuzz assault.
 
@@ -234,9 +234,9 @@ The pedal's control panel is both intuitive and powerful, allowing you to meticu
 Bass players have lauded this compact yet mighty device for its versatility, robust construction, and the vast tonal palette it boasts, making it a preferred pick for musicians in the genre.
 
 
-### [Wampler Dracarys High Gain Distortion Pedal for Intense Sound](https://serp.ly/amazon/Distortion+Pedal?utm\_term=wampler-dracarys-high-gain-distortion-pedal-for-intense-sound)
+### [Wampler Dracarys High Gain Distortion Pedal for Intense Sound](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=wampler-dracarys-high-gain-distortion-pedal-for-intense-sound)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=wampler-dracarys-high-gain-distortion-pedal-for-intense-sound"><img alt="wampler-dracarys-high-gain-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wampler-dracarys-high-gain-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=wampler-dracarys-high-gain-distortion-pedal-for-intense-sound"><img alt="wampler-dracarys-high-gain-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wampler-dracarys-high-gain-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 This Dracarys High Gain Distortion Pedal is a force to be reckoned with, packing an unbelievable amount of gain and clarity into a compact metal housing. As a reviewer who's dabbled extensively in high-gain tones, I found that this pedal truly delivers on its promise of versatile distortion, effortlessly shifting between different sub-genres of metal. With its 3-band EQ and Tight/Open switch, the Wampler Dracarys allowed me to create a diverse range of sounds that were just as brutal as they were breathtakingly clear. 
 
@@ -247,9 +247,9 @@ I also appreciate the build quality of the Wampler Dracarys, as it feels robust 
 However, the one downside I noted during my experience with the Dracarys was its price point. While it's undeniably a high-quality pedal with a strong performance, some may find it difficult to justify the investment given the cost. Nonetheless, for those in search of an all-in-one high-gain distortion pedal that delivers an exceptional sound, the Wampler Dracarys may very well be worth the splurge. 
 
 
-### [ProCo RAT2 Distortion Pedal: Classic Tone with Luminescent Glow-in-the-dark Controls](https://serp.ly/amazon/Distortion+Pedal?utm\_term=proco-rat2-distortion-pedal-classic-tone-with-luminescent-glow-in-the-dark-controls)
+### [ProCo RAT2 Distortion Pedal: Classic Tone with Luminescent Glow-in-the-dark Controls](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=proco-rat2-distortion-pedal-classic-tone-with-luminescent-glow-in-the-dark-controls)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=proco-rat2-distortion-pedal-classic-tone-with-luminescent-glow-in-the-dark-controls"><img alt="proco-rat2-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/proco-rat2-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=proco-rat2-distortion-pedal-classic-tone-with-luminescent-glow-in-the-dark-controls"><img alt="proco-rat2-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/proco-rat2-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 As a guitarist, I've always been intrigued by the legendary RAT distortion pedal, known for its iconic sound and influence on countless bands. When I had the chance to try out the updated ProCo RAT2, I was eager to see if it could live up to the hype. 
 
@@ -262,18 +262,18 @@ The RAT2 is no stranger to versatility - as a primary distortion, it excels at c
 I also appreciated the Velcro strip that comes with the pedal, providing a secure grip during concerts and performances. While some users have expressed disappointment when compared to the classic, vintage versions, I found the RAT2 lived up to the legacy and served as an excellent addition to my pedalboard. 
 
 
-### [Sonic Metal: MXR FullBore Metal Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=sonic-metal-mxr-fullbore-metal-distortion-pedal)
+### [Sonic Metal: MXR FullBore Metal Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=sonic-metal-mxr-fullbore-metal-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=sonic-metal-mxr-fullbore-metal-distortion-pedal"><img alt="mxr-fullbore-metal-distortion-pedal-m116-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mxr-fullbore-metal-distortion-pedal-m116-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=sonic-metal-mxr-fullbore-metal-distortion-pedal"><img alt="mxr-fullbore-metal-distortion-pedal-m116-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mxr-fullbore-metal-distortion-pedal-m116-1/h=540,fit=pad,background=black"/></a></div>
 
 The MXR FullBore Metal Distortion Pedal M116 is an ultimate choice for all guitarists who want to add an aggressive edge to their sound. Boasting a compact, travel-friendly size, this pedal fits perfectly into any setup with ease. The AC adapter and 9V battery not only enhance the device's performance, but also offer you the flexibility to choose between power sources. 
 
 The 3-band EQ ensures the distortion pedal can be customized to suit your desired sound perfectly, while the sweepable midrange helps you scoop the mids for that classic metal tone. The onboard noise gate is a bonus for those seeking a full metal sound experience, without unwanted noise. Overall, the MXR Fullbore Metal Distortion Pedal M116 is a high-quality pedal that delivers powerful and versatile distortion with ease. 
 
 
-### [Boss DS-1X Distortion Guitar Effect Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-ds-1x-distortion-guitar-effect-pedal)
+### [Boss DS-1X Distortion Guitar Effect Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-ds-1x-distortion-guitar-effect-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-ds-1x-distortion-guitar-effect-pedal"><img alt="boss-ds-1x-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1x-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-ds-1x-distortion-guitar-effect-pedal"><img alt="boss-ds-1x-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1x-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Boss DS-1X Distortion Pedal is a game-changer for guitarists seeking an unparalleled level of performance and tone quality in their distortion. Powered by BOSS's innovative MDP technology, this pedal consistently delivers crystal-clear sound across a wide range of playing styles and amp configurations. 
 
@@ -284,18 +284,18 @@ Despite its compact size, the DS-1X offers four control knobs to enhance functio
 Overall, the Boss DS-1X Distortion Pedal is a must-have for any guitarist looking to elevate their distortion game, boasting an impressive balance of tradition and innovation. 
 
 
-### [Modified MXR M77 Custom Badass Overdrive Guitar Effects Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=modified-mxr-m77-custom-badass-overdrive-guitar-effects-pedal)
+### [Modified MXR M77 Custom Badass Overdrive Guitar Effects Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=modified-mxr-m77-custom-badass-overdrive-guitar-effects-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=modified-mxr-m77-custom-badass-overdrive-guitar-effects-pedal"><img alt="mxr-m77-custom-badass-modified-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mxr-m77-custom-badass-modified-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=modified-mxr-m77-custom-badass-overdrive-guitar-effects-pedal"><img alt="mxr-m77-custom-badass-modified-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mxr-m77-custom-badass-modified-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 After years of trying different guitar pedals, I stumbled upon the MXR M77 Custom Badass Modified Overdrive Pedal and it became my go-to choice for a truly amazing sound. With a simple, yet effective design, this pedal quickly became my favorite dirt box for various music genres. One of the features that caught my attention was the flexibility it offers; with the 100Hz Bass Control, 100Hz Cut and Boost, and the Bump switch that boosts the lows and mids, I was able to create a wide range of tones to fit my needs. The 9V power supply also gave me enough power to achieve a reliable, warm, overdrive sound that perfectly complemented my Marshall JCM amp. 
 
 The MXR M77 Custom Modified Overdrive Guitar Effects Pedal took my music to the next level, offering a slew of amp-like gain structures that enhanced my playing and tone without compromising the integrity of my sound. Additionally, it seemed built like a tank, showing little wear over time and continuing to deliver exceptional performance. While some users might find the naming conventions and appearance a bit off-putting, the M77 delivers where it truly matters: in the music it helps create. Overall, I highly recommend this pedal to any guitarist looking for an exceptional overdrive and distortion experience at an affordable price. 
 
 
-### [MXR M75 Super Badass Distortion Pedal for Guitarists](https://serp.ly/amazon/Distortion+Pedal?utm\_term=mxr-m75-super-badass-distortion-pedal-for-guitarists)
+### [MXR M75 Super Badass Distortion Pedal for Guitarists](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=mxr-m75-super-badass-distortion-pedal-for-guitarists)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=mxr-m75-super-badass-distortion-pedal-for-guitarists"><img alt="mxr-m75-super-badass-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mxr-m75-super-badass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=mxr-m75-super-badass-distortion-pedal-for-guitarists"><img alt="mxr-m75-super-badass-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mxr-m75-super-badass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The MXR M75 Super Badass Distortion Pedal is a versatile and highly responsive distortion pedal that offers a full spectrum distortion for various music genres. Its highly responsive Distortion control allows users to dial in their desired amount of crunch, while the Bass, Mid, and Treble controls offer the opportunity to finely sculpt the sound. 
 
@@ -304,9 +304,9 @@ With true bypass switching, the pedal provides an uninterrupted power supply of 
 Overall, the MXR M75 is a fantastic pedal for those seeking versatility and a wide range of distortion sounds, making it a great choice for beginners and experienced musicians alike. 
 
 
-### [Laney Monolith Black Custom Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=laney-monolith-black-custom-distortion-pedal)
+### [Laney Monolith Black Custom Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=laney-monolith-black-custom-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=laney-monolith-black-custom-distortion-pedal"><img alt="laney-monolith-black-country-custom-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laney-monolith-black-country-custom-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=laney-monolith-black-custom-distortion-pedal"><img alt="laney-monolith-black-country-custom-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laney-monolith-black-country-custom-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Laney Monolith Black Country Custom Distortion Pedal is a versatile and high-quality distortion tool for musicians. This handmade distortion pedal provides expressive gain even at low levels, making it perfect for a wide range of playing styles. With a durable metal chassis and an LED indicator, this pedal allows musicians to easily check their settings and enjoy a prolonged usage time. 
 
@@ -315,9 +315,9 @@ The Monolith Distortion Pedal features five key controls: distortion, volume, ra
 The custom distortion pedal is designed to provide maximum versatility, with its capability to deliver everything from classic fat rock tones to jangly indie lines. Its five-star rating and positive reviews from users stand as a testament to its exceptional performance and value. The Laney Monolith Black Country Custom Distortion Pedal is a must-have for any musician looking to enhance their sound and expand their range of tonal options. 
 
 
-### [Unique Overdrive Pedal for Guitarists](https://serp.ly/amazon/Distortion+Pedal?utm\_term=unique-overdrive-pedal-for-guitarists)
+### [Unique Overdrive Pedal for Guitarists](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=unique-overdrive-pedal-for-guitarists)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=unique-overdrive-pedal-for-guitarists"><img alt="orange-getaway-driver-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-getaway-driver-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=unique-overdrive-pedal-for-guitarists"><img alt="orange-getaway-driver-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-getaway-driver-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Getaway Driver overdrive pedal from Orange is a versatile device that functions as both a pedal and an amp sim. This versatility allows it to be used as the sole device in a signal chain, acting as a headphone out and amp replacement, or as a complement to an existing signal chain to provide an exceptional OD sound. Despite appearing to be a bulky device, it offers minimal noise and can handle higher gain, making it a fantastic choice for anyone looking for a quality British tone. 
 
@@ -334,9 +334,9 @@ In summary, the Getaway Driver overdrive pedal offers a combination of unique fu
 Despite the pedal's exceptional performance, the seller has decided to part with it, making it a great opportunity for a potential buyer looking for a high-quality overdrive pedal. The seller's decision to sell is a loss for them and a gain for you, as you're getting a near-new device in mint condition at a great price. 
 
 
-### [Blackstar DEPT10DDR Dual Drive Pedal with Advanced Cab Rig D.I. Technology](https://serp.ly/amazon/Distortion+Pedal?utm\_term=blackstar-dept10ddr-dual-drive-pedal-with-advanced-cab-rig-d-i-technology)
+### [Blackstar DEPT10DDR Dual Drive Pedal with Advanced Cab Rig D.I. Technology](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=blackstar-dept10ddr-dual-drive-pedal-with-advanced-cab-rig-d-i-technology)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=blackstar-dept10ddr-dual-drive-pedal-with-advanced-cab-rig-d-i-technology"><img alt="blackstar-dept10ddr-dept-10-dual-drive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackstar-dept10ddr-dept-10-dual-drive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=blackstar-dept10ddr-dual-drive-pedal-with-advanced-cab-rig-d-i-technology"><img alt="blackstar-dept10ddr-dept-10-dual-drive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blackstar-dept10ddr-dept-10-dual-drive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blackstar Dept. 10 Dual Drive Pedal offers a versatile and high-quality sound experience for musicians looking to enhance their tone. 
 
@@ -347,9 +347,9 @@ Its easy-to-use interface allows users to create their ideal tone and blend diff
 10 Dual Drive Pedal is perfect for those seeking a versatile and high-quality pedal that can deliver superior sound quality and a natural feel. 
 
 
-### [Analog 2-Channel Overdrive Pedal for Diezel VH4 Amplification](https://serp.ly/amazon/Distortion+Pedal?utm\_term=analog-2-channel-overdrive-pedal-for-diezel-vh4-amplification)
+### [Analog 2-Channel Overdrive Pedal for Diezel VH4 Amplification](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=analog-2-channel-overdrive-pedal-for-diezel-vh4-amplification)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=analog-2-channel-overdrive-pedal-for-diezel-vh4-amplification"><img alt="diezel-amplification-vh4-2-analog-2-channel-overdrive-effect-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diezel-amplification-vh4-2-analog-2-channel-overdrive-effect-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=analog-2-channel-overdrive-pedal-for-diezel-vh4-amplification"><img alt="diezel-amplification-vh4-2-analog-2-channel-overdrive-effect-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diezel-amplification-vh4-2-analog-2-channel-overdrive-effect-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Diezel Amplification Vh4-2 Overdrive Effect Pedal boasts a unique sound that models the highly-praised channel 3 and channel 4 from the Diezel VH4 amp. Users have reported success in achieving the coveted Adam Jones sound, making this pedal an excellent choice for metal tones. 
 
@@ -360,9 +360,9 @@ The pedal requires a power supply of 12-18VDC Center Positive and features ten s
 Although a replacement power supply may be required, the pedal remains in mint condition, functioning just like new. 
 
 
-### [True Bypass Distortion Pedal for Powerful Metallic Sound](https://serp.ly/amazon/Distortion+Pedal?utm\_term=true-bypass-distortion-pedal-for-powerful-metallic-sound)
+### [True Bypass Distortion Pedal for Powerful Metallic Sound](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=true-bypass-distortion-pedal-for-powerful-metallic-sound)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=true-bypass-distortion-pedal-for-powerful-metallic-sound"><img alt="donner-morpher-distortion-pedal-solo-effect-guitar-pedal-true-bypass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/donner-morpher-distortion-pedal-solo-effect-guitar-pedal-true-bypass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=true-bypass-distortion-pedal-for-powerful-metallic-sound"><img alt="donner-morpher-distortion-pedal-solo-effect-guitar-pedal-true-bypass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/donner-morpher-distortion-pedal-solo-effect-guitar-pedal-true-bypass-1/h=540,fit=pad,background=black"/></a></div>
 
 As a music enthusiast, I've had the chance to try out the Morpher Distortion Pedal from Donner. With its metal-like sound and high-degree distortion, it certainly lived up to the hype, especially for hair metal and glam rock enthusiasts. The true bypass ensures a transparent tone while the LED indicator keeps you updated on the pedal's working status. 
 
@@ -371,18 +371,18 @@ One thing that stood out was its versatility; the three knobs allow for easy con
 All in all, the Morpher Distortion Pedal is a powerful tool, delivering an immersive audio experience for metal soloists. With a bit of research, you can get the perfect power adapter to complement the pedal. It might not be the most conventional choice for everyday use, but for its price and performance, it's definitely worth considering if you're into the hard-rocking sound! 
 
 
-### [Jackson Audio Asabi Mateus Asato Signature Overdrive](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jackson-audio-asabi-mateus-asato-signature-overdrive)
+### [Jackson Audio Asabi Mateus Asato Signature Overdrive](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jackson-audio-asabi-mateus-asato-signature-overdrive)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jackson-audio-asabi-mateus-asato-signature-overdrive"><img alt="jackson-audio-asabi-mateus-asato-signature-overdrive-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jackson-audio-asabi-mateus-asato-signature-overdrive-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jackson-audio-asabi-mateus-asato-signature-overdrive"><img alt="jackson-audio-asabi-mateus-asato-signature-overdrive-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jackson-audio-asabi-mateus-asato-signature-overdrive-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Jackson Audio Asabi Mateus Asato Signature Overdrive Distortion Pedal is a versatile and exceptional audio device. Featuring a unique modular distortion circuit, this pedal allows for the replacement of distortion plug-ins without needing a completely new unit. 
 
 It also includes various clipping modes for both distortion and overdrive circuits, ensuring a wide range of tones. With footswitch gain cycle and MIDI capabilities, this pedal is perfect for those who enjoy tweaking their sound. Its compact design and high-quality build make it a top choice for any musician seeking a powerful and innovative audio tool. 
 
 
-### [Diezel VH4 Analog Distortion & Overdrive Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=diezel-vh4-analog-distortion-overdrive-pedal)
+### [Diezel VH4 Analog Distortion & Overdrive Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=diezel-vh4-analog-distortion-overdrive-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=diezel-vh4-analog-distortion-overdrive-pedal"><img alt="diezel-vh4-analog-preamp-overdrive-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diezel-vh4-analog-preamp-overdrive-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=diezel-vh4-analog-distortion-overdrive-pedal"><img alt="diezel-vh4-analog-preamp-overdrive-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diezel-vh4-analog-preamp-overdrive-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Give this pedal a spin, and prepare to be enchanted. With its rich analog circuitry, the Diezel VH4 offers a smooth, organic overdrive that's as versatile as you're about to be. And just like a trusty sidekick, it's always ready to play whatever role you need, from subtly thickening up your tone to cranking it up as a high- gain powerhouse. 
 
@@ -393,9 +393,9 @@ The VH4's build quality is top-notch, and it's built to last. From the premium c
 While some reviewers might argue that the support is lacking, the VH4's performance has been met with near-unanimous praise. From its superb sound quality to its no-nonsense feature set, this pedal is sure to delight guitarists who know a great amp when they hear one. So whether you're playing in a packed club or recording in the comfort of your home studio, the Diezel VH4 will be your trusty sidekick on your musical adventures. 
 
 
-### [Boss SD-1 Super Overdrive Pedal - Classic Distortion Tone for Guitars](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-sd-1-super-overdrive-pedal-classic-distortion-tone-for-guitars)
+### [Boss SD-1 Super Overdrive Pedal - Classic Distortion Tone for Guitars](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-sd-1-super-overdrive-pedal-classic-distortion-tone-for-guitars)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-sd-1-super-overdrive-pedal-classic-distortion-tone-for-guitars"><img alt="boss-sd-1-super-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-sd-1-super-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-sd-1-super-overdrive-pedal-classic-distortion-tone-for-guitars"><img alt="boss-sd-1-super-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-sd-1-super-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Boss Super Overdrive SD-1 - a beloved pedal in the world of guitarists. This is the one I've had the pleasure of using in my daily life, and I must say, it shines brighter than a rockstar's stage light. With its unique symmetric drive circuit, it delivers a warm, smooth distortion that feels like someone gently squeezed your guitar. And yes, I do mean gently. But don't be fooled by its delicate touch; this little guy packs a punch when you need it - making it an ideal choice for those who prefer a more aggressive sound. 
 
@@ -406,9 +406,9 @@ The build quality is solid, just like a trusty old friend. It's been through the
 The only downside is that it comes without a box. But hey, who needs a fancy box when you have a sound this good, right? All in all, the Boss Super Overdrive SD-1 is a faithful companion for any guitarist seeking that dreamy distortion. It's not just a piece of gear; it's a partner in crime, ready to help create those mind-blowing solos we all dream of. 
 
 
-### [BOSS OS-2: Enhanced Distortion Pedal for Expressive Sound](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-os-2-enhanced-distortion-pedal-for-expressive-sound)
+### [BOSS OS-2: Enhanced Distortion Pedal for Expressive Sound](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-os-2-enhanced-distortion-pedal-for-expressive-sound)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-os-2-enhanced-distortion-pedal-for-expressive-sound"><img alt="boss-os-2-overdrive-and-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-os-2-overdrive-and-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-os-2-enhanced-distortion-pedal-for-expressive-sound"><img alt="boss-os-2-overdrive-and-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-os-2-overdrive-and-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Boss OS-2 Overdrive and Distortion Pedal is a versatile and high-quality option for guitarists seeking a powerful and flexible distortion effect. Featuring both overdrive and distortion in one pedal, this device allows for a wide range of tones and gain settings. Boasting a robust metal chassis and a user-friendly interface, the OS-2 is great for both beginners and experienced players. 
 
@@ -419,9 +419,9 @@ The OS-2's connectors include an input jack, output jack, and AC adaptor jack (D
 The Boss OS-2 Overdrive and Distortion Pedal has received high praise from users, with many praising its tone, build quality, and versatility. While some users have noted minor drawbacks, such as potential signal issues, overall the OS-2 has proven to be a popular and reliable choice for those in search of a top-notch distortion pedal. 
 
 
-### [Fender Tube Distortion Pedal: High-Quality Analog Boost for Your Guitar Rig](https://serp.ly/amazon/Distortion+Pedal?utm\_term=fender-tube-distortion-pedal-high-quality-analog-boost-for-your-guitar-rig)
+### [Fender Tube Distortion Pedal: High-Quality Analog Boost for Your Guitar Rig](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=fender-tube-distortion-pedal-high-quality-analog-boost-for-your-guitar-rig)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=fender-tube-distortion-pedal-high-quality-analog-boost-for-your-guitar-rig"><img alt="fender-mtg-la-tube-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fender-mtg-la-tube-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=fender-tube-distortion-pedal-high-quality-analog-boost-for-your-guitar-rig"><img alt="fender-mtg-la-tube-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fender-mtg-la-tube-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine you're a guitarist, strumming away on your favorite tune. You need that extra boost to make your sound stand out. That's where the Fender MTG/LA Tube Distortion Pedal comes in. 
 
@@ -432,9 +432,9 @@ But, it's not all perfect. Some users might find it a bit noisy, especially duri
 Despite these minor setbacks, the Fender MTG/LA Tube Distortion Pedal remains a reliable choice for those looking to add a touch of tube magic to their rig. Its versatility and analog circuitry make it a crowd-pleaser, worthy of the 4.3-star rating it holds. So, strap it on, and get ready to rock! 
 
 
-### [Gamechanger Audio Plasma Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=gamechanger-audio-plasma-distortion-pedal)
+### [Gamechanger Audio Plasma Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=gamechanger-audio-plasma-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=gamechanger-audio-plasma-distortion-pedal"><img alt="gamechanger-audio-plasma-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/gamechanger-audio-plasma-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=gamechanger-audio-plasma-distortion-pedal"><img alt="gamechanger-audio-plasma-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/gamechanger-audio-plasma-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 As a music enthusiast always on the lookout for innovative gear, I was thrilled to give the Gamechanger Audio Plasma Distortion Pedal a try. This pedal truly lives up to its name, offering a unique and captivating sound that sets it apart from the typical distortion pedals on the market. 
 
@@ -445,18 +445,18 @@ One of the standout features of the Plasma Distortion Pedal is its ability to de
 Despite these minor drawbacks, I've found the Gamechanger Audio Plasma Distortion Pedal to be an invaluable addition to my rig. It's a game-changer for those seeking to explore uncharted territories of sound, and I wholeheartedly recommend it to fellow music aficionados who are ready to step up their distortion game. 
 
 
-### [Blackstar DEPT10DDS Dual Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=blackstar-dept10dds-dual-distortion-pedal)
+### [Blackstar DEPT10DDS Dual Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=blackstar-dept10dds-dual-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=blackstar-dept10dds-dual-distortion-pedal"><img alt="blackstar-dept10dds-dept-10-dual-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/blackstar-dept10dds-dept-10-dual-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=blackstar-dept10dds-dual-distortion-pedal"><img alt="blackstar-dept10dds-dept-10-dual-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/blackstar-dept10dds-dept-10-dual-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blackstar Dept. 10 Dual Distortion is a powerful and innovative dual-channel tube distortion pedal designed for electric guitars. With four pro-quality clean and distortion voices running at 250V, this pedal combines innovative design, premium components, and advanced Cab Rig D. I. technology to deliver a versatile and responsive sound. Created by the Blackstar R&D team, Dept. 10 is focused on researching new ideas to help you create your ideal tone. 
 
 This pedal offers a range of features such as a USB audio interface, ISF tone control, Cab Sim Output, and an Effects Loop. The weight of the pedal is 2 lb, making it a portable and compact option for musicians on the go. Despite its lightweight design, the Dept. 10 Dual Distortion delivers a full and chunky tone that is ideal for both live performances and recording sessions. 
 
 
-### [JHS Packrat Distortion Pedal for Guitarists](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jhs-packrat-distortion-pedal-for-guitarists)
+### [JHS Packrat Distortion Pedal for Guitarists](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jhs-packrat-distortion-pedal-for-guitarists)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jhs-packrat-distortion-pedal-for-guitarists"><img alt="jhs-packrat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-packrat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jhs-packrat-distortion-pedal-for-guitarists"><img alt="jhs-packrat-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-packrat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 As a music enthusiast, I had the chance to try the JHS Packrat Distortion Pedal recently. This little powerhouse brings some iconic tones from the past right into the present with its 9 selectable Proco RAT sound modes. The unique switching system made it stand out in my arsenal of pedals. 
 
@@ -469,9 +469,9 @@ One thing I could say from a personal experience is that it can sometimes pick u
 Overall, the JHS Packrat Distortion Pedal is a reliable and versatile pedal packed with a history of influential and iconic guitar tones. A perfect tool for any musician looking to add depth and character to their sound. 
 
 
-### [Boss DS-1 Distortion Pedal, Orange](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-ds-1-distortion-pedal-orange)
+### [Boss DS-1 Distortion Pedal, Orange](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-ds-1-distortion-pedal-orange)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-ds-1-distortion-pedal-orange"><img alt="boss-ds-1-distortion-pedal-orange-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1-distortion-pedal-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-ds-1-distortion-pedal-orange"><img alt="boss-ds-1-distortion-pedal-orange-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1-distortion-pedal-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Boss DS-1 Distortion Pedal in my daily guitar practice and was impressed by its sound quality. As a versatile distortion pedal, it can range from whisper soft to screaming loud, making it perfect for a variety of playing styles. I appreciated the responsiveness of the pedal, as it easily reproduced the dynamics of my playing. 
 
@@ -480,9 +480,9 @@ The controls, including distortion, level, and tone, allowed me to tailor the ov
 However, one downside I noticed was the tendency to produce noise when using it. While not a significant issue, it's something to consider when searching for the cleanest sound possible. Overall, the Boss DS-1 Distortion Pedal offered a great balance of sound quality, responsiveness, and portability, making it a valuable investment for any guitarist. 
 
 
-### [Behringer Super Fuzz Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=behringer-super-fuzz-distortion-pedal)
+### [Behringer Super Fuzz Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=behringer-super-fuzz-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=behringer-super-fuzz-distortion-pedal"><img alt="behringer-sf300-super-fuzz-distortion-3-mode-effects-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/behringer-sf300-super-fuzz-distortion-3-mode-effects-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=behringer-super-fuzz-distortion-pedal"><img alt="behringer-sf300-super-fuzz-distortion-3-mode-effects-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/behringer-sf300-super-fuzz-distortion-3-mode-effects-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Trying out the Super Fuzz SF300 was like opening up a treasure trove of classic guitar sounds. The first thing I noticed was how compact it is - perfect for fitting into my small pedalboard. It's lightweight too, allowing me to play standing or sitting without any strain. 
 
@@ -493,9 +493,9 @@ However, there are a few minor cons. The battery compartment is tricky to access
 Despite these minor drawbacks, I'm really glad I got the Super Fuzz SF300. It's an incredibly versatile pedal that can take my guitar tones to new heights. The only regret I have is not discovering it sooner! 
 
 
-### [JHS PG-14 Paul Gilbert Signature Distortion Pedal: FET-Based Dirt Tone and Active Mid-Freq Preamp](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jhs-pg-14-paul-gilbert-signature-distortion-pedal-fet-based-dirt-tone-and-active-mid-freq-preamp)
+### [JHS PG-14 Paul Gilbert Signature Distortion Pedal: FET-Based Dirt Tone and Active Mid-Freq Preamp](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jhs-pg-14-paul-gilbert-signature-distortion-pedal-fet-based-dirt-tone-and-active-mid-freq-preamp)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jhs-pg-14-paul-gilbert-signature-distortion-pedal-fet-based-dirt-tone-and-active-mid-freq-preamp"><img alt="jhs-pg-14-paul-gilbert-signature-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-pg-14-paul-gilbert-signature-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jhs-pg-14-paul-gilbert-signature-distortion-pedal-fet-based-dirt-tone-and-active-mid-freq-preamp"><img alt="jhs-pg-14-paul-gilbert-signature-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-pg-14-paul-gilbert-signature-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 JHS Pedals has crafted a gem with the Paul Gilbert signature Distortion Pedal, or "PG-14" for short. This pedal not only pays homage to guitar virtuoso Paul Gilbert, but it also sports features that make it a standout player in your toolkit. The manually adjustable knobs allow you to play with various musical effects, while the mid-frequency preamp at the front of the circuitry creates ample tonal possibilities for a dynamic and rich sound. 
 
@@ -504,9 +504,9 @@ The star of the show, however, is the FET-based distortion engine, which recreat
 There's a lot to this pedal; it might be a bit more complex than other Distortion Pedals out there, but that complexity is part of the allure. With ample tweaking options, it's a tool worthy of a place in any guitar player's gear. Give it a try; it might just become your new go-to distortion pedal! 
 
 
-### [T-Rex Mudhoney II - High-Quality Distortion Pedal](https://serp.ly/amazon/Distortion+Pedal?utm\_term=t-rex-mudhoney-ii-high-quality-distortion-pedal)
+### [T-Rex Mudhoney II - High-Quality Distortion Pedal](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=t-rex-mudhoney-ii-high-quality-distortion-pedal)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=t-rex-mudhoney-ii-high-quality-distortion-pedal"><img alt="t-rex-mudhoney-ii-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/t-rex-mudhoney-ii-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=t-rex-mudhoney-ii-high-quality-distortion-pedal"><img alt="t-rex-mudhoney-ii-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/t-rex-mudhoney-ii-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I had the chance to try out the T-Rex Mudhoney II Dual Distortion for the first time. I have to say, it was quite an experience! As soon as I plugged it into my guitar, the distortion was rich and warm, just like the vintage sound I've always been looking for. 
 
@@ -517,9 +517,9 @@ Overall, I found the T-Rex Mudhoney II Dual Distortion to be a well-crafted peda
 Still, with its amazing sound and versatility, I would definitely recommend the T-Rex Mudhoney II Dual Distortion to any guitarist seeking an authentic, vintage boost to their guitar tone. 
 
 
-### [Darkglass Microtubes X7 Bass Distortion Pedal with Multiple Equalization Knobs](https://serp.ly/amazon/Distortion+Pedal?utm\_term=darkglass-microtubes-x7-bass-distortion-pedal-with-multiple-equalization-knobs)
+### [Darkglass Microtubes X7 Bass Distortion Pedal with Multiple Equalization Knobs](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=darkglass-microtubes-x7-bass-distortion-pedal-with-multiple-equalization-knobs)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=darkglass-microtubes-x7-bass-distortion-pedal-with-multiple-equalization-knobs"><img alt="darkglass-microtubes-x7-bass-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/darkglass-microtubes-x7-bass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=darkglass-microtubes-x7-bass-distortion-pedal-with-multiple-equalization-knobs"><img alt="darkglass-microtubes-x7-bass-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/darkglass-microtubes-x7-bass-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 Say hello to the Darkglass Microtubes X7 Bass Distortion Pedal, a game-changer for bass enthusiasts. With its multiple knobs, this pedal manages the different equalization for an immersive sound output that'll have you creating multiple sound effects in no time. 
 
@@ -530,9 +530,9 @@ This pedal is equipped with High Pass Frequency Controls, High Drive, High Level
 The X7 is powered by 9V - 18V and has an input impedance of 1 Mega ohms. It might be a bit pricey, but trust us, it's worth every penny for what it offers. The reviews are overwhelmingly positive, with a rating of 4.9 out of 5. Users have praised this pedal for its incredible tone, variety of sounds, and the high-quality design. So, if you're a bass player looking to take your sound to the next level, give the Darkglass Microtubes X7 Bass Distortion Pedal a try. You won't be disappointed! 
 
 
-### [ProCo Deucetone Rat Distortion Pedal: Versatile Analog Guitar Effect](https://serp.ly/amazon/Distortion+Pedal?utm\_term=proco-deucetone-rat-distortion-pedal-versatile-analog-guitar-effect)
+### [ProCo Deucetone Rat Distortion Pedal: Versatile Analog Guitar Effect](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=proco-deucetone-rat-distortion-pedal-versatile-analog-guitar-effect)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=proco-deucetone-rat-distortion-pedal-versatile-analog-guitar-effect"><img alt="proco-deucetone-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/proco-deucetone-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=proco-deucetone-rat-distortion-pedal-versatile-analog-guitar-effect"><img alt="proco-deucetone-rat-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/proco-deucetone-rat-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The ProCo Deucetone Rat Distortion Pedal is a versatile and robust pedal designed for the analog guitarist. Unlike other pedals that offer only a single set of RAT controls, Deucetone boasts two independent RAT units, providing the opportunity to utilize them separately, in stereo format, or even cascade them together. The legendary RAT Filter control is present, enabling players to adjust high-end frequencies according to the desired level of saturation. 
 
@@ -541,9 +541,9 @@ While the ProCo Deucetone Rat Distortion Pedal is reminiscent of the popular Bos
 The ProCo Deucetone Rat Distortion Pedal offers all the functionalities one could desire in a distortion pedal. While it may have a few quirks and the learning curve might be steeper than some might anticipate, the pedal's solid construction ensures that it can handle the demands of both bedroom rigs and larger venue amps. 
 
 
-### [Boss OD-3 Overdrive: High-Quality Distortion Pedal with Customizable Tone](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-od-3-overdrive-high-quality-distortion-pedal-with-customizable-tone)
+### [Boss OD-3 Overdrive: High-Quality Distortion Pedal with Customizable Tone](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-od-3-overdrive-high-quality-distortion-pedal-with-customizable-tone)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-od-3-overdrive-high-quality-distortion-pedal-with-customizable-tone"><img alt="boss-od-3-overdrive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-od-3-overdrive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-od-3-overdrive-high-quality-distortion-pedal-with-customizable-tone"><img alt="boss-od-3-overdrive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boss-od-3-overdrive-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I started using the Boss OD-3 Overdrive as my go-to pedal for a deeper, richer tone in my daily music sessions. Its 3-knob configuration allows me to tweak the audio settings and mix tones effortlessly, ensuring a precise and satisfying result each time. I particularly appreciate the input impedance of 1 k ohms, which reduces distortion for high-quality audio. The 9-voltage supply adds to its efficiency. 
 
@@ -552,18 +552,18 @@ However, one drawback I found was the tendency for the pedal to get too bright w
 The Boss OD-3 Overdrive is impressive not only as a standalone product but also as an addition to the whole Boss line-up, promising to deliver a variety of tones for musicians seeking amplified sound. 
 
 
-### [Revv G2 Overdrive Pedal for Versatile Tone and Effects](https://serp.ly/amazon/Distortion+Pedal?utm\_term=revv-g2-overdrive-pedal-for-versatile-tone-and-effects)
+### [Revv G2 Overdrive Pedal for Versatile Tone and Effects](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=revv-g2-overdrive-pedal-for-versatile-tone-and-effects)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=revv-g2-overdrive-pedal-for-versatile-tone-and-effects"><img alt="revv-amplification-g2-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/revv-amplification-g2-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=revv-g2-overdrive-pedal-for-versatile-tone-and-effects"><img alt="revv-amplification-g2-overdrive-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/revv-amplification-g2-overdrive-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Revv G2 Overdrive Pedal has definitely made an impact in my daily music life. The 3-band EQ feature allows me to adjust the frequency for a customized sound output that feels unique to my playing style. I also appreciate the volume and gain control knobs, which give me the flexibility to experiment with different effects while playing guitar. With three different drive modes, I can add a lively spark to my music, making my playing experience even more exciting. 
 
 One of the standout features of this pedal is its built-in blue LED, which helps me know its real-time working status. It's a nice touch that keeps things running smoothly. Although it's a bit bulkier than my previous pedals, the sturdy, road-ready case gives me the confidence to take it on the go. Overall, the Revv G2 Overdrive Pedal is a versatile, high-quality choice that has certainly elevated my playing experience. 
 
 
-### [Golden Plexi Distortion Pedal by Tone City - Boost Your Sound Quality](https://serp.ly/amazon/Distortion+Pedal?utm\_term=golden-plexi-distortion-pedal-by-tone-city-boost-your-sound-quality)
+### [Golden Plexi Distortion Pedal by Tone City - Boost Your Sound Quality](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=golden-plexi-distortion-pedal-by-tone-city-boost-your-sound-quality)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=golden-plexi-distortion-pedal-by-tone-city-boost-your-sound-quality"><img alt="tone-city-golden-plexi-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tone-city-golden-plexi-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=golden-plexi-distortion-pedal-by-tone-city-boost-your-sound-quality"><img alt="tone-city-golden-plexi-distortion-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tone-city-golden-plexi-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 The Tone City Golden Plexi Distortion Pedal is a must-have for guitarists looking to enhance their sound. With an input impedance of 500k ohms, it ensures a smooth transfer of current and an improved music experience. The pedal operates on a 9 V supply to help conserve power, making it not only great for the environment but also for your wallet. 
 
@@ -572,9 +572,9 @@ This versatile pedal is designed to work on Fender and other clean channels, tra
 The Tone City Golden Plexi Distortion Pedal has garnered positive reviews from users, who praise its sound and quality. Its distinctive distortion, overdrive, and versatility make it a favorite among musicians. However, some users find that the gain control doesn't offer much variation, and it may not be the best fit for those looking for a more versatile pedal. Overall, the Tone City Golden Plexi Distortion Pedal is a solid choice for guitarists seeking a powerful and British-inspired tone in their music. 
 
 
-### [EHX Metal Muff Distortion Pedal with Top Boost - Unleash Your Metal Groove](https://serp.ly/amazon/Distortion+Pedal?utm\_term=ehx-metal-muff-distortion-pedal-with-top-boost-unleash-your-metal-groove)
+### [EHX Metal Muff Distortion Pedal with Top Boost - Unleash Your Metal Groove](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=ehx-metal-muff-distortion-pedal-with-top-boost-unleash-your-metal-groove)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=ehx-metal-muff-distortion-pedal-with-top-boost-unleash-your-metal-groove"><img alt="electro-harmonix-metal-muff-distortion-pedal-with-top-boost-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/electro-harmonix-metal-muff-distortion-pedal-with-top-boost-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=ehx-metal-muff-distortion-pedal-with-top-boost-unleash-your-metal-groove"><img alt="electro-harmonix-metal-muff-distortion-pedal-with-top-boost-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/electro-harmonix-metal-muff-distortion-pedal-with-top-boost-1/h=540,fit=pad,background=black"/></a></div>
 
 The Electro Harmonix Metal Muff Distortion Pedal with Top Boost is a versatile and powerful metal distortion pedal. Its true bypass filter minimizes distortion, enhancing audio quality, while its sturdy die-cast aluminum construction ensures durability. With three EQ bands and six controls, you can easily sculpt your mids and shape the sound for your groove. 
 
@@ -585,9 +585,9 @@ Its versatility makes it suitable for various situations and amps, making it a g
 Overall, the Metal Muff is an excellent choice for metal distortion with a range of tones to suit different styles and preferences. 
 
 
-### [BOSS DS-1 Distortion Pedal: Classic, Versatile Dirty Sounds for Guitarists](https://serp.ly/amazon/Distortion+Pedal?utm\_term=boss-ds-1-distortion-pedal-classic-versatile-dirty-sounds-for-guitarists)
+### [BOSS DS-1 Distortion Pedal: Classic, Versatile Dirty Sounds for Guitarists](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=boss-ds-1-distortion-pedal-classic-versatile-dirty-sounds-for-guitarists)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=boss-ds-1-distortion-pedal-classic-versatile-dirty-sounds-for-guitarists"><img alt="boss-ds-1-distortion-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1-distortion-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=boss-ds-1-distortion-pedal-classic-versatile-dirty-sounds-for-guitarists"><img alt="boss-ds-1-distortion-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/boss-ds-1-distortion-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine being a guitarist in a crowded arena, ready to unleash a fiery solo on a roaring crowd. The pressure is high, and your gear needs to step up and deliver the sound you need. Enter the Boss DS-1 Distortion pedal - a reliable, compact, and powerful workhorse that's been a staple in the music industry since 1978. 
 
@@ -596,9 +596,9 @@ With the Boss DS-1 Distortion pedal, you get a simple yet effective three-knob i
 While some might argue that the Boss DS-1 is a one-trick pony, its consistency and reliability have earned it a place in the hearts of guitarists worldwide. Whether you're a bedroom rocker or a stadium star, the Boss DS-1 Distortion pedal will help you get the sound you need, night after night. 
 
 
-### [JHS 3 Series Distortion Pedal: Affordable and Versatile Analog Audio Processor](https://serp.ly/amazon/Distortion+Pedal?utm\_term=jhs-3-series-distortion-pedal-affordable-and-versatile-analog-audio-processor)
+### [JHS 3 Series Distortion Pedal: Affordable and Versatile Analog Audio Processor](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=jhs-3-series-distortion-pedal-affordable-and-versatile-analog-audio-processor)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=jhs-3-series-distortion-pedal-affordable-and-versatile-analog-audio-processor"><img alt="jhs-distortion-3-series-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jhs-distortion-3-series-pedal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=jhs-3-series-distortion-pedal-affordable-and-versatile-analog-audio-processor"><img alt="jhs-distortion-3-series-pedal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jhs-distortion-3-series-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the JHS 3 Series Distortion Pedal, and let me tell you, it has made a significant impact on my guitar sound. As a beginner, I found it incredibly easy to use, with intuitive controls that allowed me to quickly dial in the perfect distortion tone for my playing style. 
 
@@ -611,9 +611,9 @@ However, there were a couple of minor downsides to using this pedal. Firstly, it
 Overall, though, the JHS 3 Series Distortion Pedal is an impressive piece of equipment that offers a wide range of distortion tones without breaking the bank. If you're looking for a versatile, sound-enhancing effect pedal, this one definitely deserves a spot on your pedalboard. 
 
 
-### [Old Blood Noise Endeavors Fault V2 Overdrive Distortion Pedal with LED Indicator and 3-band EQ](https://serp.ly/amazon/Distortion+Pedal?utm\_term=old-blood-noise-endeavors-fault-v2-overdrive-distortion-pedal-with-led-indicator-and-3-band-eq)
+### [Old Blood Noise Endeavors Fault V2 Overdrive Distortion Pedal with LED Indicator and 3-band EQ](https://serp.ly/@outrun/amazon/Distortion+Pedal?utm\_term=old-blood-noise-endeavors-fault-v2-overdrive-distortion-pedal-with-led-indicator-and-3-band-eq)
 
-<div class="image"><a href="https://serp.ly/amazon/Distortion+Pedal?utm_term=old-blood-noise-endeavors-fault-v2-overdrive-distortion-pedal-with-led-indicator-and-3-band-eq"><img alt="old-blood-noise-endeavors-fault-v2-overdrive-distortion-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/old-blood-noise-endeavors-fault-v2-overdrive-distortion-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Distortion+Pedal?utm_term=old-blood-noise-endeavors-fault-v2-overdrive-distortion-pedal-with-led-indicator-and-3-band-eq"><img alt="old-blood-noise-endeavors-fault-v2-overdrive-distortion-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/old-blood-noise-endeavors-fault-v2-overdrive-distortion-1/h=540,fit=pad,background=black"/></a></div>
 
 Old Blood Noise Endeavors' Fault V2 Overdrive Distortion is an exceptional stompbox that's perfect for guitar enthusiasts looking to experiment with their sound. Designed with a unique LED indicator, you'll always have a clear view of the device's active status. Fault V2 boasts versatile toggle switches that modulate various effects while playing, allowing for endless possibilities and creativity. 
 

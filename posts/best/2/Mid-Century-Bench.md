@@ -14,18 +14,18 @@ Welcome to our roundup of the top Mid Century Bench designs, a perfect blend of 
 ## Reviews
 
 
-### [Salvaged Teak Mid-Century Upholstered Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=salvaged-teak-mid-century-upholstered-bench)
+### [Salvaged Teak Mid-Century Upholstered Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=salvaged-teak-mid-century-upholstered-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=salvaged-teak-mid-century-upholstered-bench"><img alt="sheila-upholstered-bench-joss-main-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/sheila-upholstered-bench-joss-main-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=salvaged-teak-mid-century-upholstered-bench"><img alt="sheila-upholstered-bench-joss-main-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/sheila-upholstered-bench-joss-main-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently brought home the Sheila Upholstered Bench from Joss & Main, an elegant mid-century piece crafted with salvaged teak wood from old Indian buildings. The combination of solid wood and whole-grain leather has created a stunning, comfortable seat. However, upon closer inspection, I discovered a few areas where the wood seemed to have filler applied inconspicuously. 
 
 It slightly diminished the overall sturdiness of the product, but it didn't affect its appearance. Despite these cons, the craftsmanship and the bench's attractive design still make it a worthwhile addition to my home decor. 
 
 
-### [Mid-Century Modern Upholstered Beige Bench with Splayed Legs](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-upholstered-beige-bench-with-splayed-legs)
+### [Mid-Century Modern Upholstered Beige Bench with Splayed Legs](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-upholstered-beige-bench-with-splayed-legs)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-upholstered-beige-bench-with-splayed-legs"><img alt="westin-furniture-solid-wood-mid-century-upholstered-bench-beige-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/westin-furniture-solid-wood-mid-century-upholstered-bench-beige-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-upholstered-beige-bench-with-splayed-legs"><img alt="westin-furniture-solid-wood-mid-century-upholstered-bench-beige-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/westin-furniture-solid-wood-mid-century-upholstered-bench-beige-1/h=540,fit=pad,background=black"/></a></div>
 
 The Westin Furniture Bench is a sleek design that immediately stands out in any setting. I've had the opportunity to use this bench in a variety of spaces and it has definitely made a positive impact. The sturdy construction and understated craftsmanship give it a sense of refinement and durability. The mid-century design with its iconic legs adds a touch of elegance to any room. 
 
@@ -34,9 +34,9 @@ However, I found that the fabric started to wrinkle quite quickly after a few we
 Overall, the Westin Furniture Bench is a great addition to any home or office without breaking the bank. It may need a bit of maintenance when it comes to the fabric, but otherwise, it's a well-crafted piece of furniture that adds style and comfort to your space. 
 
 
-### [Mid Century Modern Leather Bench with Solid Wood Frame](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-leather-bench-with-solid-wood-frame)
+### [Mid Century Modern Leather Bench with Solid Wood Frame](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-leather-bench-with-solid-wood-frame)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-leather-bench-with-solid-wood-frame"><img alt="graceland-mid-century-modern-upholstered-leather-bench-in-tan-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graceland-mid-century-modern-upholstered-leather-bench-in-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-leather-bench-with-solid-wood-frame"><img alt="graceland-mid-century-modern-upholstered-leather-bench-in-tan-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graceland-mid-century-modern-upholstered-leather-bench-in-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Graceland Mid-Century Modern Upholstered Leather Bench in Tan, a captivating addition to any living space. This stylish bench is crafted with attention to detail, featuring a sleek design that seamlessly blends into every décor. The bench boasts solid wood construction, complemented by a supple leather upholstery in a timeless tan shade. 
 
@@ -45,9 +45,9 @@ Comfort is ensured with its high-density foam cushion, ensuring a pleasant sitti
 In terms of maintenance, this Graceland bench is easy to care for. Simply clean it with a non-abrasive solution and a microfiber cloth. Its compact size, with dimensions of 16.54 inches in height, 17.72 inches in length, and 47.24 inches in width, makes it perfectly suited for various spaces, such as the foyer or dining area. 
 
 
-### [Mid-Century Modern Leather Bench in Green](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-leather-bench-in-green)
+### [Mid-Century Modern Leather Bench in Green](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-leather-bench-in-green)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-leather-bench-in-green"><img alt="friendswood-mid-century-modern-upholstered-leather-bench-in-green-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/friendswood-mid-century-modern-upholstered-leather-bench-in-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-leather-bench-in-green"><img alt="friendswood-mid-century-modern-upholstered-leather-bench-in-green-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/friendswood-mid-century-modern-upholstered-leather-bench-in-green-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of trying out the Friendswood Upholstered Leather Bench in Green. I have to say, it's a wonderful addition to my space. The Mid-Century Modern design brings a touch of elegance to my home, and the bench's versatility fits perfectly in both my dining area and foyer. 
 
@@ -60,18 +60,18 @@ Despite its luxurious appearance, the Friendswood Bench is surprisingly simple t
 Overall, I'm impressed with this Friendswood Bench's durability, style, and comfort. It's a welcome addition to my home, and I can't wait for others to experience the same enjoyment. 
 
 
-### [Daine Mid Century Upholstered Light Beige Boucle Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=daine-mid-century-upholstered-light-beige-boucle-bench)
+### [Daine Mid Century Upholstered Light Beige Boucle Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=daine-mid-century-upholstered-light-beige-boucle-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=daine-mid-century-upholstered-light-beige-boucle-bench"><img alt="daine-upholstered-bench-allmodern-upholstery-color-light-beige-boucle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/daine-upholstered-bench-allmodern-upholstery-color-light-beige-boucle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=daine-mid-century-upholstered-light-beige-boucle-bench"><img alt="daine-upholstered-bench-allmodern-upholstery-color-light-beige-boucle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/daine-upholstered-bench-allmodern-upholstery-color-light-beige-boucle-1/h=540,fit=pad,background=black"/></a></div>
 
 This Daine upholstered bench from AllModern features an eye-catching waterfall silhouette, inspired by the bold curves of 70s postmodernism. The bench boasts a sculptural design, wrapped entirely in soft boucle upholstery, offering a comfortable seating experience. Its sturdy construction is built using kiln-dried wood, and it arrives fully assembled, ready to enhance any entryway's style. 
 
 While the bench's aesthetic is impressive, reviewers mention that it lacks sufficient cushioning for optimal comfort and that they've experienced a price drop after their purchase, resulting in some dissatisfaction with their overall shopping experience. 
 
 
-### [Mid Century Storage Bench with Complimentary Cushion](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-storage-bench-with-complimentary-cushion)
+### [Mid Century Storage Bench with Complimentary Cushion](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-storage-bench-with-complimentary-cushion)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-storage-bench-with-complimentary-cushion"><img alt="46-mid-century-storage-bench-with-cushion-dark-walnut-grey-walker-edison-b46mcmsbdw-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/46-mid-century-storage-bench-with-cushion-dark-walnut-grey-walker-edison-b46mcmsbdw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-storage-bench-with-complimentary-cushion"><img alt="46-mid-century-storage-bench-with-cushion-dark-walnut-grey-walker-edison-b46mcmsbdw-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/46-mid-century-storage-bench-with-cushion-dark-walnut-grey-walker-edison-b46mcmsbdw-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of mid-century modern aesthetics, I had high hopes for this 46" Storage Bench. Its rich, dark walnut and grey finish immediately caught my eye, and I couldn't help but envision placing it in a sunlit entryway or by a cozy bedroom. Upon closer inspection, however, I noticed that the faux drawers had a less-than-perfect fit with their decorative fronts. 
 
@@ -80,9 +80,9 @@ Despite this slight hiccup, I still enjoyed the cozy comfort provided by the cus
 On the plus side, the bench provided plenty of storage space, making it a practical addition to any living space. Its solid wood construction, while not perfectly crafted, was sturdy and functional. I managed to assemble it within the estimated time with the included tools, much to my relief. Overall, it was a blend of beauty, functionality, and some assembly challenges that left me with mixed feelings about this 46" Mid Century Storage Bench. 
 
 
-### [Mid Century Modern Walnut Wood Storage Bench with Drawer](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-walnut-wood-storage-bench-with-drawer)
+### [Mid Century Modern Walnut Wood Storage Bench with Drawer](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-walnut-wood-storage-bench-with-drawer)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-walnut-wood-storage-bench-with-drawer"><img alt="macluu-mid-century-modern-solid-wood-storage-bench-with-drawer-32-67-x-47-24-walnut-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/macluu-mid-century-modern-solid-wood-storage-bench-with-drawer-32-67-x-47-24-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-walnut-wood-storage-bench-with-drawer"><img alt="macluu-mid-century-modern-solid-wood-storage-bench-with-drawer-32-67-x-47-24-walnut-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/macluu-mid-century-modern-solid-wood-storage-bench-with-drawer-32-67-x-47-24-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently added the MacLuu Mid Century Modern Solid Wood Storage Bench to my entryway, and I must say it's been a game-changer. Not only does it serve as a practical storage solution, but it also adds a touch of sophistication to the space. 
 
@@ -95,9 +95,9 @@ The assembly process was a breeze, taking only four steps to put together. And, 
 Overall, the MacLuu Mid Century Modern Solid Wood Storage Bench has been a fantastic addition to my home. It's stylish, functional, and easy to maintain. Highly recommended! 
 
 
-### [Mid-Century Double Wood Entryway Bench - Walnut Design](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-double-wood-entryway-bench-walnut-design)
+### [Mid-Century Double Wood Entryway Bench - Walnut Design](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-double-wood-entryway-bench-walnut-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-double-wood-entryway-bench-walnut-design"><img alt="mid-century-double-wood-entryway-bench-walnut-plankbeam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mid-century-double-wood-entryway-bench-walnut-plankbeam-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-double-wood-entryway-bench-walnut-design"><img alt="mid-century-double-wood-entryway-bench-walnut-plankbeam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mid-century-double-wood-entryway-bench-walnut-plankbeam-1/h=540,fit=pad,background=black"/></a></div>
 
 Our Mid-Century Double Wood Entryway Bench exudes a delightful blend of stylish appeal and sturdy durability. This stunning piece, available in a vibrant walnut finish, boasts exceptional craftsmanship made from solid Pine and Birch wood. Its sleek plank and beam design, complete with tapered legs, will surely catch all eyes and serve as an ideal accent in any space. 
 
@@ -106,36 +106,36 @@ Despite its understated elegance, this bench promises robust support, thanks to 
 This versatile piece not only enhances your home's aesthetic; it also doubles as a functional storage spot for books, bags, or decorative items. With its striking design and unmatched quality, this mid-century gem is a perfect statement piece that's sure to ignite conversation and spark joy in any room. 
 
 
-### [Stylish Mid Century Ottoman Bench: Distressed and Tufted for Comfort](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=stylish-mid-century-ottoman-bench-distressed-and-tufted-for-comfort)
+### [Stylish Mid Century Ottoman Bench: Distressed and Tufted for Comfort](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=stylish-mid-century-ottoman-bench-distressed-and-tufted-for-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=stylish-mid-century-ottoman-bench-distressed-and-tufted-for-comfort"><img alt="wyndenhall-keenan-48-inch-wide-mid-century-modern-rectangle-ottoman-bench-distressed-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wyndenhall-keenan-48-inch-wide-mid-century-modern-rectangle-ottoman-bench-distressed-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=stylish-mid-century-ottoman-bench-distressed-and-tufted-for-comfort"><img alt="wyndenhall-keenan-48-inch-wide-mid-century-modern-rectangle-ottoman-bench-distressed-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wyndenhall-keenan-48-inch-wide-mid-century-modern-rectangle-ottoman-bench-distressed-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Keenan Mid Century Tufted Ottoman Bench is a stylish and comfortable addition to any space in your home. Crafted with solid rubberwood, plywood, and high-density foam for durability, this bench provides a cozy seating area with its thick cushioned top. The button tufting detail adds a touch of elegance to the mid-century modern design, while the solid wood framed ottoman base provides stability and a sleek look. Efforts are made to reproduce accurate colors, so variations may occur due to differences in computer monitors and photography. 
 
 Whether used in the entryway, living room, or bedroom, this bench is a versatile and functional piece that will become the showpiece of any room. Users have praised its sturdiness, comfortable cushioning, and attractive mid-century modern aesthetic. While some concerns have been raised about the screw holes and assembly process, the majority of customers are satisfied with both the quality and value of this bench. 
 
 
-### [Furniliving Velvet Mid-Century Tufted Ottoman Bench for Indoor Entryway](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=furniliving-velvet-mid-century-tufted-ottoman-bench-for-indoor-entryway)
+### [Furniliving Velvet Mid-Century Tufted Ottoman Bench for Indoor Entryway](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=furniliving-velvet-mid-century-tufted-ottoman-bench-for-indoor-entryway)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=furniliving-velvet-mid-century-tufted-ottoman-bench-for-indoor-entryway"><img alt="furniliving-velvet-upholstered-bedroom-bench-mid-century-tufted-fabric-ottoman-bench-modern-entryway-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/furniliving-velvet-upholstered-bedroom-bench-mid-century-tufted-fabric-ottoman-bench-modern-entryway-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=furniliving-velvet-mid-century-tufted-ottoman-bench-for-indoor-entryway"><img alt="furniliving-velvet-upholstered-bedroom-bench-mid-century-tufted-fabric-ottoman-bench-modern-entryway-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/furniliving-velvet-upholstered-bedroom-bench-mid-century-tufted-fabric-ottoman-bench-modern-entryway-1/h=540,fit=pad,background=black"/></a></div>
 
 This charming modern bench from Furniliving perfectly combines a timeless design with the practicality of a cushioned seat. The Velvet Pleated fabric detail and golden metal legs exude luxury and sophistication, making it a versatile addition to any style home. 
 
 Boasting dimensions that accommodate ample comfort, this extra-long bench is sure to be well-used in the bedroom, living room, dining room, or entryway. The adjustable footrest feature allows for added customization, and the non-slip legs ensure it stays securely in place. With easy assembly and a maximum weight recommendation of 285 pounds, this mid-century style bench is truly a functional art piece. 
 
 
-### [Smooth Oak Finish Mid-Century Modern Birch Wood Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=smooth-oak-finish-mid-century-modern-birch-wood-bench)
+### [Smooth Oak Finish Mid-Century Modern Birch Wood Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=smooth-oak-finish-mid-century-modern-birch-wood-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=smooth-oak-finish-mid-century-modern-birch-wood-bench"><img alt="23-mid-century-modern-birch-wood-bench-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/23-mid-century-modern-birch-wood-bench-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=smooth-oak-finish-mid-century-modern-birch-wood-bench"><img alt="23-mid-century-modern-birch-wood-bench-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/23-mid-century-modern-birch-wood-bench-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently acquired this 23" Mid-Century Modern Birch Wood Bench for our living room, and it's been a game-changer. The smooth oak finish adds a touch of sophistication to any space, while the birch wood frame provides a sturdy yet elegant base. The tufted bench seat, upholstered in a woven taupe gray fabric, not only looks fabulous but also provides optimal comfort. 
 
 One of my favorite features is the bench's size, measuring 23 inches high by 59 inches wide by 20 inches deep. It's perfect for creating a cozy spot to sit and chat or as a stylish accent to my decor. However, I must note that this bench is recommended for indoor use only. Nonetheless, it's a delightful addition to our home that effortlessly exudes charm. 
 
 
-### [Mid-Century Faux Leather Upholstered Walnut Dining Nook Bench Set](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-faux-leather-upholstered-walnut-dining-nook-bench-set)
+### [Mid-Century Faux Leather Upholstered Walnut Dining Nook Bench Set](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-faux-leather-upholstered-walnut-dining-nook-bench-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-faux-leather-upholstered-walnut-dining-nook-bench-set"><img alt="baxton-studio-arvid-mid-century-modern-tan-faux-leather-upholstered-and-walnut-brown-finished-wood-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-arvid-mid-century-modern-tan-faux-leather-upholstered-and-walnut-brown-finished-wood-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-faux-leather-upholstered-walnut-dining-nook-bench-set"><img alt="baxton-studio-arvid-mid-century-modern-tan-faux-leather-upholstered-and-walnut-brown-finished-wood-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-arvid-mid-century-modern-tan-faux-leather-upholstered-and-walnut-brown-finished-wood-3/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Baxton Studio Arvid Mid-Century Modern Tan Faux Leather Upholstered and Walnut Brown Finished Wood 2-Piece Dining Corner Sofa Bench for a while now, and it's been quite the addition to my dining space. The blend of wood and faux leather is a stunning mix that exudes a timeless charm. The set is so versatile; it includes one armless bench and one corner bench, making it perfect for my dining nook. 
 
@@ -148,9 +148,9 @@ The design is a major highlight. It adds a mid-century vibe to the dining space,
 Overall, the Baxton Studio Arvid Bench is a great value for money. It's sturdy, comfortable, and looks stunning in my dining area. Despite the minor inconvenience with the placement of screws, it's a set I'm happy to have and recommend for anyone looking to add some flair to their dining nook while providing a functional corner bench. 
 
 
-### [Walnut Wood Padded Mid Century Bench with Flip Top Storage](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=walnut-wood-padded-mid-century-bench-with-flip-top-storage)
+### [Walnut Wood Padded Mid Century Bench with Flip Top Storage](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=walnut-wood-padded-mid-century-bench-with-flip-top-storage)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=walnut-wood-padded-mid-century-bench-with-flip-top-storage"><img alt="baxton-studio-betiana-modern-japandi-cream-boucle-fabric-and-walnut-brown-finished-wood-storage-benc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-betiana-modern-japandi-cream-boucle-fabric-and-walnut-brown-finished-wood-storage-benc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=walnut-wood-padded-mid-century-bench-with-flip-top-storage"><img alt="baxton-studio-betiana-modern-japandi-cream-boucle-fabric-and-walnut-brown-finished-wood-storage-benc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-betiana-modern-japandi-cream-boucle-fabric-and-walnut-brown-finished-wood-storage-benc-1/h=540,fit=pad,background=black"/></a></div>
 
 Step up your home design game with the Betiana storage bench. This modern Japandi-inspired piece combines the elegance of wood and the comfort of boucle fabric, offering both style and functionality. 
 
@@ -159,9 +159,9 @@ With its lift-top storage compartment, you'll have plenty of space to store your
 Despite being assembled, this bench delivers stability and support, making it an excellent choice for any living space. 
 
 
-### [Mid-Century Modern Dining Bench for Sleek, Minimalist Style](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-dining-bench-for-sleek-minimalist-style)
+### [Mid-Century Modern Dining Bench for Sleek, Minimalist Style](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-dining-bench-for-sleek-minimalist-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-dining-bench-for-sleek-minimalist-style"><img alt="plank-and-beam-mid-century-modern-dining-bench-n-a-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plank-and-beam-mid-century-modern-dining-bench-n-a-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-dining-bench-for-sleek-minimalist-style"><img alt="plank-and-beam-mid-century-modern-dining-bench-n-a-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plank-and-beam-mid-century-modern-dining-bench-n-a-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 One morning, I woke up craving a fresh start for my home and came across the "Plank and Beam" Mid-Century Modern Dining Bench. As a busy mom, I've been looking for something versatile and eco-friendly. This bench has the perfect balance of style and sustainability. I loved how the hand-applied low-VOC finishes didn't only look great but kept my air clean too. The solid wood and unique wood grain details made it stand out, and the satin finish was such a beautiful touch! 
 
@@ -170,9 +170,9 @@ I couldn't resist pairing it with the matching 72" Mid-Century Modern Dining Tab
 Overall, this bench exceeded my expectations in both appearance and durability. With its reasonable price and eco-friendly features, it's no wonder it has earned such glowing reviews from satisfied customers! 
 
 
-### [MDF Mid Century Modern Bench by Joss & Main](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mdf-mid-century-modern-bench-by-joss-main)
+### [MDF Mid Century Modern Bench by Joss & Main](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mdf-mid-century-modern-bench-by-joss-main)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mdf-mid-century-modern-bench-by-joss-main"><img alt="seneca-bench-joss-main-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seneca-bench-joss-main-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mdf-mid-century-modern-bench-by-joss-main"><img alt="seneca-bench-joss-main-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/seneca-bench-joss-main-1/h=540,fit=pad,background=black"/></a></div>
 
 The Joss & Main Bocchino collection offers a comfortable and stylish addition to any living space with its plush faux-sherpa boucle upholstery. Inspired by the harmonious blend of Scandinavian, Japandi, and mid-century modern designs, this bench is perfect for providing a cozy sitting area in your living room, bedroom, or entryway. With minimal, natural wood legs, it adds organic tones to your interior while remaining sturdy and functional. 
 
@@ -181,18 +181,18 @@ The bench features a limited warranty, which covers basic manufacturing issues f
 Though the upholstery is Ivory White Boucle, the bench's overall design is minimal, allowing it to seamlessly blend into any home decor. While it may not be the most versatile bench, its ease of assembly and sturdy structure make it a valuable addition to any interior space. 
 
 
-### [Mid-Century Modern Upholstered Long Bench in Pink](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-upholstered-long-bench-in-pink)
+### [Mid-Century Modern Upholstered Long Bench in Pink](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-upholstered-long-bench-in-pink)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-upholstered-long-bench-in-pink"><img alt="homy-casa-mid-century-modern-upholstered-long-bench-pink-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/homy-casa-mid-century-modern-upholstered-long-bench-pink-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-upholstered-long-bench-in-pink"><img alt="homy-casa-mid-century-modern-upholstered-long-bench-pink-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/homy-casa-mid-century-modern-upholstered-long-bench-pink-1/h=540,fit=pad,background=black"/></a></div>
 
 The Homy Casa Mid-Century Modern Upholstered Long Bench in Pink is a versatile addition to any home, especially for holiday decor. Ideal for narrower spaces, this bench provides a wide, padded cushioned seat that's perfect for the whole family. 
 
 The sturdy frame and lightweight design make assembly simple, while the cozy upholstery adds a touch of texture to your living space. Comfortably supporting up to 2 people, this bench boasts a unique blend of style and practicality. 
 
 
-### [Mid-Century Walnut Wood Entryway Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-walnut-wood-entryway-bench)
+### [Mid-Century Walnut Wood Entryway Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-walnut-wood-entryway-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-walnut-wood-entryway-bench"><img alt="mid-century-single-wood-entryway-bench-walnut-plankbeam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mid-century-single-wood-entryway-bench-walnut-plankbeam-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-walnut-wood-entryway-bench"><img alt="mid-century-single-wood-entryway-bench-walnut-plankbeam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mid-century-single-wood-entryway-bench-walnut-plankbeam-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the Mid-Century Entryway Bench from Plank+Beam, and it's not just a piece of furniture; it's a statement in my home. The craftsmanship is evident in every detail, from the sleek design to the sturdy construction. It's perfect for adding a touch of class to my entryway, but it also works beautifully as a spot to sit and put on shoes. 
 
@@ -201,18 +201,18 @@ The bench is well-made, with a solid wood frame and a durable finish. It's comfo
 However, one thing I noticed is that the bench is quite heavy, which can make moving it around a bit challenging. It might be a good idea to have another person help with the process. Nonetheless, the Mid-Century Entryway Bench from Plank+Beam has been a solid investment in my home's décor and functionality. 
 
 
-### [Mid-Century Modern Genuine Leather Upholstered Bench in Espresso Brown - Retro Style](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-genuine-leather-upholstered-bench-in-espresso-brown-retro-style)
+### [Mid-Century Modern Genuine Leather Upholstered Bench in Espresso Brown - Retro Style](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-modern-genuine-leather-upholstered-bench-in-espresso-brown-retro-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-modern-genuine-leather-upholstered-bench-in-espresso-brown-retro-style"><img alt="serena-mid-century-modern-genuine-leather-upholstered-bench-in-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/serena-mid-century-modern-genuine-leather-upholstered-bench-in-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-modern-genuine-leather-upholstered-bench-in-espresso-brown-retro-style"><img alt="serena-mid-century-modern-genuine-leather-upholstered-bench-in-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/serena-mid-century-modern-genuine-leather-upholstered-bench-in-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added the Serena upholstered bench to my living room and it's been a wonderful addition. Its mid-century modern design adds a touch of sophistication and its rich tan leather gives a luxurious feel. 
 
 The high density foam cushion is comfortable and provides ample support, perfect for lounging or using as a footrest. I do find that the texture and color of the leather may vary, so if that's a concern for you, it's something to consider. Overall, it's a beautiful and functional piece that fits perfectly with my living room's decor. 
 
 
-### [Mid-Century Walnut Newington Upholstered Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-walnut-newington-upholstered-bench)
+### [Mid-Century Walnut Newington Upholstered Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-walnut-newington-upholstered-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-walnut-newington-upholstered-bench"><img alt="tms-newington-mid-century-bench-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tms-newington-mid-century-bench-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-walnut-newington-upholstered-bench"><img alt="tms-newington-mid-century-bench-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tms-newington-mid-century-bench-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 This mid-century-inspired bench is perfect for adding a touch of vintage charm to your dining or living room. Crafted with sturdy solid rubberwood, the bench is dressed in a luxurious Mocha color fabric that blends well with any décor. 
 
@@ -221,27 +221,27 @@ Its sleek, angled legs give it a retro look while also providing comfort. The be
 Despite its durability, some users have noted that it lacks longevity. The bench comes at an affordable price, making it a budget-friendly addition to enhance the comfort of your gatherings. 
 
 
-### [Vintage-Inspired Mid Century Bench with Storage and Comfort](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=vintage-inspired-mid-century-bench-with-storage-and-comfort)
+### [Vintage-Inspired Mid Century Bench with Storage and Comfort](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=vintage-inspired-mid-century-bench-with-storage-and-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=vintage-inspired-mid-century-bench-with-storage-and-comfort"><img alt="walker-edison-46-mid-century-storage-bench-with-cushion-acorn-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walker-edison-46-mid-century-storage-bench-with-cushion-acorn-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=vintage-inspired-mid-century-bench-with-storage-and-comfort"><img alt="walker-edison-46-mid-century-storage-bench-with-cushion-acorn-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walker-edison-46-mid-century-storage-bench-with-cushion-acorn-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine a serene entryway or cozy bedroom corner, effortlessly elevated by the presence of a stunning 46-inch mid century storage bench. Its rich acorn and tan finish evokes a sense of timeless elegance, while the soft cushion top provides a comfy and inviting spot to rest. 
 
 Designed with functionality in mind, this bench boasts an ample storage space, capable of holding up to 250 pounds. However, be cautious when assembling this piece, as the screw holes may not always align as intended. Despite this minor inconvenience, the bench's overall style and practicality make it a worthy addition to your home. 
 
 
-### [Stylish Solid Wood Beige Upholstered Bench with 250 lb Weight Capacity](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=stylish-solid-wood-beige-upholstered-bench-with-250-lb-weight-capacity)
+### [Stylish Solid Wood Beige Upholstered Bench with 250 lb Weight Capacity](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=stylish-solid-wood-beige-upholstered-bench-with-250-lb-weight-capacity)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=stylish-solid-wood-beige-upholstered-bench-with-250-lb-weight-capacity"><img alt="harris-solid-wood-bench-allmodern-upholstery-light-beige-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/harris-solid-wood-bench-allmodern-upholstery-light-beige-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=stylish-solid-wood-beige-upholstered-bench-with-250-lb-weight-capacity"><img alt="harris-solid-wood-bench-allmodern-upholstery-light-beige-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/harris-solid-wood-bench-allmodern-upholstery-light-beige-1/h=540,fit=pad,background=black"/></a></div>
 
 The Harris Solid Wood Bench is a versatile and stylish addition to any home. Crafted from high-quality solid wood, it boasts splayed legs that provide a sturdy base for the seat. 
 
 Upholstered in beige foam-filled polyester, it's not only comfortable but also comes with a modern touch. The bench can comfortably support up to 250 lbs and can be easily disassembled for storage or relocation. The natural variation in the wood adds a unique charm to the bench, making it the perfect accent piece for your entryway or dining area. 
 
 
-### [Amistad Walnut Wood Bench, 58" Long](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=amistad-walnut-wood-bench-58-long)
+### [Amistad Walnut Wood Bench, 58" Long](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=amistad-walnut-wood-bench-58-long)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=amistad-walnut-wood-bench-58-long"><img alt="amistad-58-wood-bench-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amistad-58-wood-bench-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=amistad-walnut-wood-bench-58-long"><img alt="amistad-58-wood-bench-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amistad-58-wood-bench-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect harmony of natural elegance and modern charm with the Amistad 58" Wood Bench. This versatile piece is a must-have for dining rooms, living spaces, mudrooms, and bedrooms alike, providing ample seating and a stylish accent. 
 
@@ -250,9 +250,9 @@ Skillfully crafted from authentic mango wood, this dining bench boasts a warm, i
 Boasting over-all dimensions of 15 inches x 58 inches x 18.5 inches, and a tabletop thickness of 1.0 inches, this bench can comfortably accommodate up to three people. Assembly is required, but the end result is well worth the effort. 
 
 
-### [Nathan James Gugan Mid-Century Wood Entryway Bench with Removable Cushion](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=nathan-james-gugan-mid-century-wood-entryway-bench-with-removable-cushion)
+### [Nathan James Gugan Mid-Century Wood Entryway Bench with Removable Cushion](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=nathan-james-gugan-mid-century-wood-entryway-bench-with-removable-cushion)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=nathan-james-gugan-mid-century-wood-entryway-bench-with-removable-cushion"><img alt="gugan-light-brown-mid-century-wooden-bench-with-removable-fabric-cushi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gugan-light-brown-mid-century-wooden-bench-with-removable-fabric-cushi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=nathan-james-gugan-mid-century-wood-entryway-bench-with-removable-cushion"><img alt="gugan-light-brown-mid-century-wooden-bench-with-removable-fabric-cushi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gugan-light-brown-mid-century-wooden-bench-with-removable-fabric-cushi-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of functionality and style with the Nathan James Gugan Wood Entryway Bench Seat. This versatile piece boasts a mid-century design, with rounded wooden legs that add a touch of elegance to your home. The bench is not only a beautiful accent in your entryway, but it can also double as a seating solution for your dining room, providing a cozy spot for up to two people. 
 
@@ -261,18 +261,18 @@ One of the standout features of this bench is the removable padded cushion, whic
 Assembling this bench is a breeze, with an easy 20-minute process. The sturdy construction and durable materials make it a reliable addition to your home, perfect for high-traffic areas. With its attractive design and top-notch quality, the Nathan James Gugan Wood Entryway Bench Seat is sure to become a favorite in your living space. 
 
 
-### [Vintage Sienna Solid Wood Bench by Romina](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=vintage-sienna-solid-wood-bench-by-romina)
+### [Vintage Sienna Solid Wood Bench by Romina](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=vintage-sienna-solid-wood-bench-by-romina)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=vintage-sienna-solid-wood-bench-by-romina"><img alt="romina-solid-wood-bench-joss-main-color-vintage-sienna-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/romina-solid-wood-bench-joss-main-color-vintage-sienna-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=vintage-sienna-solid-wood-bench-by-romina"><img alt="romina-solid-wood-bench-joss-main-color-vintage-sienna-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/romina-solid-wood-bench-joss-main-color-vintage-sienna-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few weeks, I've been using my new Romina Solid Wood Bench from Joss & Main, and I must say, it exceeded my expectations! The rich, vintage Sienna finish truly highlights the natural wood grain color variation, and it adds a rustic charm to any space. The upholstered seat is both luxurious and comfortable, making it a perfect spot to sit and enjoy a book, a coffee, or a cocktail. 
 
 What I appreciate most about this bench is the sliding beechwood tray. It's the ultimate functional addition, providing a convenient spot for everything you need! Plus, it's removable, so it's easy to wipe down and keep clean. The bench is sturdy and well-made, ensuring that it's a long-lasting addition to my home. 
 
 
-### [Sophisticated Mid-Century Upholstered Sofa Bench Set](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=sophisticated-mid-century-upholstered-sofa-bench-set)
+### [Sophisticated Mid-Century Upholstered Sofa Bench Set](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=sophisticated-mid-century-upholstered-sofa-bench-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=sophisticated-mid-century-upholstered-sofa-bench-set"><img alt="2pc-arvid-mid-century-faux-leather-upholstered-wood-dining-corner-sofa-bench-set-walnut-brown-baxton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2pc-arvid-mid-century-faux-leather-upholstered-wood-dining-corner-sofa-bench-set-walnut-brown-baxton-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=sophisticated-mid-century-upholstered-sofa-bench-set"><img alt="2pc-arvid-mid-century-faux-leather-upholstered-wood-dining-corner-sofa-bench-set-walnut-brown-baxton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2pc-arvid-mid-century-faux-leather-upholstered-wood-dining-corner-sofa-bench-set-walnut-brown-baxton-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently picked up the Arvid Mid-Century Faux Leather Upholstered Wood Dining Corner Sofa Bench Set from Baxton Studio, and I must say, it's a game changer for my small dining space. The walnut brown finish with tan faux leather upholstery gives it a sleek and stylish look, while the button tufted design adds a touch of elegance. 
 
@@ -281,9 +281,9 @@ The L-shape configuration of the set was perfect for me, allowing me to utilize 
 Assembling the corner bench proved to be a bit of a challenge, with the placement of the screws making it awkward to turn the wrench. But overall, it was a good quality product for the mid-grade price I paid. I'd definitely consider buying from Baxton Studio again in the future. 
 
 
-### [Threshold Elden Wood Bench with Woven Back and Loose Cushion](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=threshold-elden-wood-bench-with-woven-back-and-loose-cushion)
+### [Threshold Elden Wood Bench with Woven Back and Loose Cushion](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=threshold-elden-wood-bench-with-woven-back-and-loose-cushion)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=threshold-elden-wood-bench-with-woven-back-and-loose-cushion"><img alt="elden-wood-bench-with-woven-back-and-loose-cushion-seat-threshold-designed-with-studio-mcgee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elden-wood-bench-with-woven-back-and-loose-cushion-seat-threshold-designed-with-studio-mcgee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=threshold-elden-wood-bench-with-woven-back-and-loose-cushion"><img alt="elden-wood-bench-with-woven-back-and-loose-cushion-seat-threshold-designed-with-studio-mcgee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elden-wood-bench-with-woven-back-and-loose-cushion-seat-threshold-designed-with-studio-mcgee-1/h=540,fit=pad,background=black"/></a></div>
 
 As a DIY enthusiast, the concept of the Elden Wood Bench caught my attention. Partnering with Studio McGee, this bench showcased a striking design that proved irresistible for my ongoing home renovation project. Anticipation surged through me as I received the package, curious to witness the bench up close.
 
@@ -296,9 +296,9 @@ What truly set the Elden Wood Bench apart from others was its exceptional comfor
 Despite the initial assembly challenges, the Elden Wood Bench served as the perfect finishing touch for my home. Its sturdiness, adjustability, and remarkable comfort made it a worthwhile investment. Future buyers should, however, prepare for potential complications during the assembly process.
 
 
-### [Mid Century Japandi-Inspired Walnut and Boucle Bench](https://serp.ly/amazon/Mid+Century+Bench?utm\_term=mid-century-japandi-inspired-walnut-and-boucle-bench)
+### [Mid Century Japandi-Inspired Walnut and Boucle Bench](https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm\_term=mid-century-japandi-inspired-walnut-and-boucle-bench)
 
-<div class="image"><a href="https://serp.ly/amazon/Mid+Century+Bench?utm_term=mid-century-japandi-inspired-walnut-and-boucle-bench"><img alt="baxton-studio-orella-japandi-light-grey-boucle-fabric-and-walnut-brown-finished-wood-bench-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-orella-japandi-light-grey-boucle-fabric-and-walnut-brown-finished-wood-bench-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench?utm_term=mid-century-japandi-inspired-walnut-and-boucle-bench"><img alt="baxton-studio-orella-japandi-light-grey-boucle-fabric-and-walnut-brown-finished-wood-bench-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/baxton-studio-orella-japandi-light-grey-boucle-fabric-and-walnut-brown-finished-wood-bench-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to add a touch of chic serenity to my living space with the Orella Japandi Light Grey Boucle Fabric and Walnut Brown Finished Wood Bench. This lovely piece, crafted in Malaysia, boasts a sturdy wood frame topped with a foam-padded cushion upholstered in sumptuous boucle fabric. It features a wide, button-tufted seat with a traditional flair, perfect for any layout. 
 
@@ -317,7 +317,7 @@ Mid century benches are popular furniture pieces that have been around since the
 Mid century benches come in various designs, materials, and colors. Some key design elements to consider are: 
 1. Legs and supports: Look for benches with strong and sturdy legs and supports, preferably made of hardwoods like oak, walnut, or teak. 2. Seat: The seat should be comfortable and have enough space for two people to sit comfortably. Common seat materials include wood, upholstered fabrics, or canvas. 3. Armrests: If you prefer benches with armrests, ensure they are well-designed and provide adequate support to prevent wobbling or sinking. 4. Joins and joints: Clean lines and dovetail joints are characteristic features of mid-century design; look for benches with these elements. 5. Finish: Choose a bench with a finish that complements your existing decor. Common finishes include natural wood, stained, painted, or lacquered. 
 
-<div><a href="https://serp.ly/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-2/h=540,fit=pad,background=black" alt="Mid-Century-Bench-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-2/h=540,fit=pad,background=black" alt="Mid-Century-Bench-2" height="540"></a></div>
 
 
 ### Sizes and Dimensions
@@ -331,7 +331,7 @@ Mid century benches come in a variety of sizes to fit different spaces and usage
 When it comes to mid century benches, materials and construction are crucial factors to consider. High-quality materials not only contribute to the bench's durability but also its aesthetics. Here are some factors to consider: 
 1. Frame materials: Look for benches with solid hardwood frames, as they offer better stability and longevity compared to particle board or MDF. 2. Joinery: Dovetail joints are a characteristic element of mid-century design, as they provide a strong and stable connection between the bench's components. 3. Stain or finish: Ensure the bench is finished with a protective sealant to prevent damage from moisture, stains, or scratches. 
 
-<div><a href="https://serp.ly/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-3/h=540,fit=pad,background=black" alt="Mid-Century-Bench-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-3/h=540,fit=pad,background=black" alt="Mid-Century-Bench-3" height="540"></a></div>
 
 
 ### Additional Factors to Consider
@@ -341,7 +341,7 @@ In addition to design, size, and material, there are several other factors to co
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-4/h=540,fit=pad,background=black" alt="Mid-Century-Bench-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-4/h=540,fit=pad,background=black" alt="Mid-Century-Bench-4" height="540"></a></div>
 
 
 ### What are the key features of mid-century benches?
@@ -357,7 +357,7 @@ There are several iconic styles of mid-century benches, each with its unique fea
 
 The Butterfly bench, for example, features a bentwood frame that creates its signature shape, while the Brno bench is designed with a series of rectangular tubes welded together. The Plym bench, on the other hand, is characterized by its plywood construction and clean, modern aesthetic. Each of these styles offers a unique take on mid-century bench design, which has helped to solidify their status as iconic pieces of furniture. 
 
-<div><a href="https://serp.ly/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-5/h=540,fit=pad,background=black" alt="Mid-Century-Bench-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-5/h=540,fit=pad,background=black" alt="Mid-Century-Bench-5" height="540"></a></div>
 
 
 ### How should I care for a mid-century bench?
@@ -373,7 +373,7 @@ Mid-century benches are typically made from high-quality materials that not only
 
 Solid hardwoods are popular for their natural beauty, strength, and resistance to wear and tear. Veneers, on the other hand, provide a cost-effective alternative to solid hardwoods, while still offering a high-quality finish. Plywood is also a common material used in mid-century benches, thanks to its versatility and affordability. It allows designers to create unique shapes and structures while still achieving a sleek, minimalist look. 
 
-<div><a href="https://serp.ly/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-6/h=540,fit=pad,background=black" alt="Mid-Century-Bench-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Mid+Century+Bench"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Mid-Century-Bench-6/h=540,fit=pad,background=black" alt="Mid-Century-Bench-6" height="540"></a></div>
 
 
 ### What are some storage options for mid-century benches?

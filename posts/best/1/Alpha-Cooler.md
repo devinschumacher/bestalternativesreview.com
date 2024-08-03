@@ -14,9 +14,9 @@ Welcome to our roundup article featuring the Alpha Cooler - a must-have accessor
 ## Reviews
 
 
-### [Alphacool Core Ocean T38 All-in-One Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-core-ocean-t38-all-in-one-cooler)
+### [Alphacool Core Ocean T38 All-in-One Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-core-ocean-t38-all-in-one-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-core-ocean-t38-all-in-one-cooler"><img alt="alphacool-core-ocean-t38-aio-280mm-13054" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-ocean-t38-aio-280mm-13054/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-core-ocean-t38-all-in-one-cooler"><img alt="alphacool-core-ocean-t38-aio-280mm-13054" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-ocean-t38-aio-280mm-13054/h=540,fit=pad,background=black"/></a></div>
 
 Experiencing the Alphacool Core Ocean T38 AIO 280mm was an interesting journey. I installed it on my gaming PC, and it was pretty straightforward with the provided mounting kit. The product's sleek design and ARGB lighting made it visually appealing and added a touch of style to my build. 
 
@@ -29,9 +29,9 @@ The noise level from the pump and fans was quite acceptable in normal usage, but
 Overall, the Alphacool Core Ocean T38 AIO 280mm offers solid performance at a reasonable price point. However, if you are planning to upgrade to a processor that tends to run hot, it's recommended to consider a larger radiator model. It's unfortunate that some of the mounting hardware had issues, but I still found the product to be an appealing and functional choice. 
 
 
-### [Digital RGB Water Block for Intel and AMD CPUs](https://serp.ly/amazon/Alpha+Cooler?utm\_term=digital-rgb-water-block-for-intel-and-amd-cpus)
+### [Digital RGB Water Block for Intel and AMD CPUs](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=digital-rgb-water-block-for-intel-and-amd-cpus)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=digital-rgb-water-block-for-intel-and-amd-cpus"><img alt="alphacool-eisblock-xpx-aurora-plexi-black-digital-rgb-12947" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisblock-xpx-aurora-plexi-black-digital-rgb-12947/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=digital-rgb-water-block-for-intel-and-amd-cpus"><img alt="alphacool-eisblock-xpx-aurora-plexi-black-digital-rgb-12947" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisblock-xpx-aurora-plexi-black-digital-rgb-12947/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisblock XPX Aurora CPU water cooler is designed to provide top-notch performance and exceptional quality with its patented ramp system. It boasts an eye-catching Aurora design, complete with addressable RGB lighting that allows for endless customization options. 
 
@@ -40,9 +40,9 @@ The ramp system ensures an even water flow throughout the cooler, and the coolin
 The upper part of the cooler contains integrated digital addressable RGB LEDs, eliminating the need for a separate RGB frame. The Alphacool Eisblock Aurora Acryl boasts a black frame with the Alphacool logo embedded on the top, adding a discreet touch. Its dimensions are 75.8 x 75.8 x 33 mm. 
 
 
-### [Alphacool Eiswolf 2 High-Performance AI Cooler for RTX 3090/3080](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eiswolf-2-high-performance-ai-cooler-for-rtx-3090-3080)
+### [Alphacool Eiswolf 2 High-Performance AI Cooler for RTX 3090/3080](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eiswolf-2-high-performance-ai-cooler-for-rtx-3090-3080)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eiswolf-2-high-performance-ai-cooler-for-rtx-3090-3080"><img alt="alphacool-eiswolf-2-aio-360mm-rtx-3090-3080-with-backplate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eiswolf-2-aio-360mm-rtx-3090-3080-with-backplate-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eiswolf-2-high-performance-ai-cooler-for-rtx-3090-3080"><img alt="alphacool-eiswolf-2-aio-360mm-rtx-3090-3080-with-backplate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eiswolf-2-aio-360mm-rtx-3090-3080-with-backplate-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eiswolf 2 AIO offers an impressive watercooling solution for high-performance graphics cards. This 360mm AIO supports the latest RTX 3090 and 3080 cards, and features a full copper radiator, ensuring optimal cooling capacity. 
 
@@ -51,9 +51,9 @@ Installation is simple, and the radiator is designed to be compatible with prefi
 As with all Alphacool products, the NexXxoS radiator boasts world-renowned quality and performance. Overall, the Eiswolf 2 AIO stands as a powerful and sleek solution for your high-end graphics card needs. 
 
 
-### [Alphacool Eisbaer Aurora RGB Solo CPU Water Block and Pump](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-rgb-solo-cpu-water-block-and-pump)
+### [Alphacool Eisbaer Aurora RGB Solo CPU Water Block and Pump](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-rgb-solo-cpu-water-block-and-pump)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-rgb-solo-cpu-water-block-and-pump"><img alt="alphacool-eisbaer-aurora-solo-cpu-water-block-and-pump-digital-rgb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-solo-cpu-water-block-and-pump-digital-rgb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-rgb-solo-cpu-water-block-and-pump"><img alt="alphacool-eisbaer-aurora-solo-cpu-water-block-and-pump-digital-rgb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-solo-cpu-water-block-and-pump-digital-rgb-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Alphacool Eisbaer Aurora (Solo) CPU Water Block and Pump, a versatile component that can be integrated into any AIO water cooling system to provide efficient cooling and impressive aesthetics. This solo variant allows for tailored water circuit designs and compatibility with various liquid cooling components. 
 
@@ -64,9 +64,9 @@ Incorporating Digital RGB LED lighting, the Eisbaer Aurora Solo adds a striking 
 With a durable reservoir made of transparent nylon and compatible with Intel and AMD CPUs, the Alphacool Eisbaer Aurora (Solo) CPU Water Block and Pump is an excellent choice for those seeking a high-quality, quiet, and visually appealing water cooling solution for their PC build. 
 
 
-### [Alphacool Eisbaer LT360 CPU Cooler - Black Edition](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt360-cpu-cooler-black-edition)
+### [Alphacool Eisbaer LT360 CPU Cooler - Black Edition](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt360-cpu-cooler-black-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt360-cpu-cooler-black-edition"><img alt="alphacool-eisbaer-lt360-cpu-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt360-cpu-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt360-cpu-cooler-black-edition"><img alt="alphacool-eisbaer-lt360-cpu-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt360-cpu-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisbaer LT360 CPU, a sleek black beauty, has garnered attention in the world of cooling systems. With its cutting-edge design and exceptional performance, this cooler is quickly becoming the go-to choice for many enthusiasts. Easily distinguishable from other AiO coolers in the market, the Eisbaer LT uses high-quality custom components for its construction, providing you with the freedom to customize and expand as needed. 
 
@@ -75,9 +75,9 @@ The cooler boasts a 25 mm slim radiator made entirely of copper, which doubles t
 One unique feature of the Eisbaer LT is its compatibility with the standard G1/4" threads, allowing for easy replacement and customization. The cooler also comes with a copper radiator and a nozzle system designed to provide an exceptional cooling experience. With its impressive performance and customizable design, the Alphacool Eisbaer LT360 CPU is a must-have for those looking to elevate their cooling game. 
 
 
-### [Alphacool Eisbaer Aurora 360 Digital RGB CPU Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-360-digital-rgb-cpu-cooler)
+### [Alphacool Eisbaer Aurora 360 Digital RGB CPU Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-360-digital-rgb-cpu-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-360-digital-rgb-cpu-cooler"><img alt="alphacool-eisbaer-aurora-360-cpu-digital-rgb-11731" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-360-cpu-digital-rgb-11731/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-360-digital-rgb-cpu-cooler"><img alt="alphacool-eisbaer-aurora-360-cpu-digital-rgb-11731" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-360-cpu-digital-rgb-11731/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Alphacool Eisbaer Aurora RGB AIO CPU Cooler, and I must say, it was a game-changer for my system. The large 360mm copper radiator made it easy to fit in my case, and the integrated pump worked efficiently with a reduced noise level. The improved hoses and fittings were smooth and inconspicuous, and the safety and durability of the TPV hose and fittings added an extra layer of assurance. 
 
@@ -88,9 +88,9 @@ However, one downside that I found was that the rubber tubes were a bit too tigh
 Overall, the Alphacool Eisbaer Aurora 360mm AIO ARGB CPU Cooler greatly improved my system's performance and added a touch of flair with its addressable RGB lighting. It's definitely a cooler worth considering for those looking to upgrade their system's cooling and aesthetic appeal. 
 
 
-### [Alphacool Eisbaer 2600rpm Cooler in Black](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-2600rpm-cooler-in-black)
+### [Alphacool Eisbaer 2600rpm Cooler in Black](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-2600rpm-cooler-in-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-2600rpm-cooler-in-black"><img alt="alphacool-eisbaer-solo-2600rpm-black-12512" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-solo-2600rpm-black-12512/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-2600rpm-cooler-in-black"><img alt="alphacool-eisbaer-solo-2600rpm-black-12512" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-solo-2600rpm-black-12512/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisbaer Solo is an impressive cooler that stands out from the crowd with its unique features. With a sleek black finish and powerful performance, this cooler is the perfect solution for gamers looking to keep their system running smoothly, even under intense load. Featuring G¼" connections that allow for seamless compatibility with a variety of water cooling attachments, the Eisbaer Solo allows you to customize your setup to fit your exact needs, from hose thickness and color to fluid selection and more. 
 
@@ -99,9 +99,9 @@ At the heart of the Eisbaer Solo is the Alphacool DC-LT Ceramic Ultra Low Noise 
 While the Alphacool Eisbaer Solo may not be suitable for every user due to its unique design and specific requirements, those who can take advantage of its innovative features and exceptional performance will be rewarded with a high-quality and reliable cooling solution. With a solid 4.4-star rating and numerous positive reviews from satisfied customers, the Alphacool Eisbaer Solo is sure to impress even the most discerning enthusiasts. 
 
 
-### [Alphacool 360 Radiator for Intel & AMD CPUs - Aurora Design](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-360-radiator-for-intel-amd-cpus-aurora-design)
+### [Alphacool 360 Radiator for Intel & AMD CPUs - Aurora Design](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-360-radiator-for-intel-amd-cpus-aurora-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-360-radiator-for-intel-amd-cpus-aurora-design"><img alt="alphacool-11771-eisbaer-pro-aurora-360-cpu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-11771-eisbaer-pro-aurora-360-cpu-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-360-radiator-for-intel-amd-cpus-aurora-design"><img alt="alphacool-11771-eisbaer-pro-aurora-360-cpu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-11771-eisbaer-pro-aurora-360-cpu-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisbaer Pro Aurora CPU AIO water cooler is a powerful solution for processors with large CPU dies. It's designed specifically for AMD Threadripper and Epyc processors and Intel CPUs for the LGA 3647 socket, offering exceptional cooling performance in all configurations. 
 
@@ -112,9 +112,9 @@ One of the standout features of the Eisbaer Pro Aurora 360 is its sleek fan and 
 Overall, the Alphacool Eisbaer Pro Aurora CPU AIO water cooler is a reliable and efficient option for cooling high-performance processors. With its extensive compatibility across different sockets and a dedicated customer service from Alphacool, it's a solid choice for any builder looking for a quality cooling solution. The only drawback is the need for users to be mindful of the LGA1700 mounting kit and potential fan issues. 
 
 
-### [Alphacool Core 1: Enhanced Black Gaming Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-enhanced-black-gaming-cooler)
+### [Alphacool Core 1: Enhanced Black Gaming Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-enhanced-black-gaming-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-core-1-enhanced-black-gaming-cooler"><img alt="alphacool-core-1-black-13444" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-black-13444/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-core-1-enhanced-black-gaming-cooler"><img alt="alphacool-core-1-black-13444" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-black-13444/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Alphacool Core 1 Black, a cutting-edge cooling solution designed to handle the latest Intel and AMD desktop processors. With its sleek black design, this high-performance water block is compatible with Intel LGA 1700 and AMD AM4/AM5 sockets, providing exceptional cooling capabilities. 
 
@@ -127,9 +127,9 @@ However, no product is without its drawbacks. Users have expressed concerns abou
 Overall, the Alphacool Core 1 Black offers a reliable and stylish cooling solution for Intel and AMD processors, making it a go-to choice for PC enthusiasts seeking top-tier performance. 
 
 
-### [Ramp System Enhanced Alphacool Eisblock XPX Aurora Digital RGB CPU Water Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=ramp-system-enhanced-alphacool-eisblock-xpx-aurora-digital-rgb-cpu-water-cooler)
+### [Ramp System Enhanced Alphacool Eisblock XPX Aurora Digital RGB CPU Water Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=ramp-system-enhanced-alphacool-eisblock-xpx-aurora-digital-rgb-cpu-water-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=ramp-system-enhanced-alphacool-eisblock-xpx-aurora-digital-rgb-cpu-water-cooler"><img alt="alphacool-eisblock-xpx-aurora-plexi-chrome-digital-rgb-12948" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisblock-xpx-aurora-plexi-chrome-digital-rgb-12948/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=ramp-system-enhanced-alphacool-eisblock-xpx-aurora-digital-rgb-cpu-water-cooler"><img alt="alphacool-eisblock-xpx-aurora-plexi-chrome-digital-rgb-12948" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisblock-xpx-aurora-plexi-chrome-digital-rgb-12948/h=540,fit=pad,background=black"/></a></div>
 
 It's been awhile since I dove into enthusiast level cooling and I have to say, the Alphacool Eisblock XPX Aurora has been a refreshing change. The copper base is incredibly smooth and the threaded G1/4 fittings are a tight fit, but a gentle twist seals everything perfectly. It's reassuring to see that the copper block feels so solid, even before applying any thermal paste. 
 
@@ -140,9 +140,9 @@ However, there are also a couple aspects to the Eisblock XPX Aurora that might n
 Overall, the Alphacool Eisblock XPX Aurora has been a reliable and effective addition to my cooling setup. Its sleek design and adjustable RGB lighting make it a standout choice for those looking for the perfect blend of practicality and visual flair. 
 
 
-### [Alphacool Eisbaer LT Water Cooler for CPU](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt-water-cooler-for-cpu)
+### [Alphacool Eisbaer LT Water Cooler for CPU](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt-water-cooler-for-cpu)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt-water-cooler-for-cpu"><img alt="alphacool-eisbaer-lt-solo-cpu-water-block-and-pump-black-12887" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt-solo-cpu-water-block-and-pump-black-12887/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt-water-cooler-for-cpu"><img alt="alphacool-eisbaer-lt-solo-cpu-water-block-and-pump-black-12887" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt-solo-cpu-water-block-and-pump-black-12887/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I took a leap into the world of custom CPU water cooling with the Alphacool Eisbaer LT Solo. It was a journey filled with excitement and a few bumps along the way. I'm still working on perfecting my setup, but there are a few things that really stood out to me. 
 
@@ -155,9 +155,9 @@ The pump's small impeller and design flaws also caused it to struggle with pumpi
 Overall, the Alphacool Eisbaer LT Solo has been an interesting adventure in the world of custom water cooling. It's given me the opportunity to create a system tailored to my needs, but it's also introduced me to a few frustrating challenges along the way. With some more experimentation and modifications, I'm confident I'll be able to perfect my setup in no time. 
 
 
-### [Alphacool Core 1 Aurora Water Block for CPU](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-aurora-water-block-for-cpu)
+### [Alphacool Core 1 Aurora Water Block for CPU](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-aurora-water-block-for-cpu)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-core-1-aurora-water-block-for-cpu"><img alt="alphacool-core-1-aurora-cpu-water-block-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-aurora-cpu-water-block-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-core-1-aurora-water-block-for-cpu"><img alt="alphacool-core-1-aurora-cpu-water-block-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-aurora-cpu-water-block-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As a water cooling enthusiast, I've long been on the lookout for a sleek and modern CPU water block that's compatible with both Intel and AMD sockets. When I stumbled across the Alphacool Core 1 Aurora, I knew I had to give it a try. 
 
@@ -172,9 +172,9 @@ While the Aurora was designed primarily for Intel LGA 1700 sockets, a bit of cre
 In conclusion, the Alphacool Core 1 Aurora CPU Water Block is an outstanding choice for anyone looking to add a touch of modern elegance to their water cooling setup. Its compatibility with both Intel and AMD sockets, impressive RGB lighting, and excellent cooling performance have made it a standout addition to my rig. 
 
 
-### [Alphacool Eisbaer LT92 Black CPU Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt92-black-cpu-cooler)
+### [Alphacool Eisbaer LT92 Black CPU Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-lt92-black-cpu-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt92-black-cpu-cooler"><img alt="alphacool-eisbaer-lt92-cpu-black-without-fan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt92-cpu-black-without-fan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-lt92-black-cpu-cooler"><img alt="alphacool-eisbaer-lt92-cpu-black-without-fan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-lt92-cpu-black-without-fan-1/h=540,fit=pad,background=black"/></a></div>
 
 Whether you're working with a tight computer case or need a reliable cooling solution, the Alphacool Eisbaer LT92 CPU is a top-tier choice. Designed with small form factor enclosures in mind, this liquid cooler shines with its compact and powerful design. 
 
@@ -183,18 +183,18 @@ Copper radiators and nickel-plated copper radiator base offer incredible heat ca
 The 25cm hose length further ensures that unwanted hose length becomes a nonissue. Alphacool's commitment to premium materials and performance is evident with the Eisbaer LT92 CPU, making it a true standout in the world of liquid coolers. 
 
 
-### [Alphacool Eisbaer Aurora LT Solo Black Cooler](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-lt-solo-black-cooler)
+### [Alphacool Eisbaer Aurora LT Solo Black Cooler](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-aurora-lt-solo-black-cooler)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-lt-solo-black-cooler"><img alt="alphacool-eisbaer-aurora-lt-solo-black-13067" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-lt-solo-black-13067/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-aurora-lt-solo-black-cooler"><img alt="alphacool-eisbaer-aurora-lt-solo-black-13067" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-aurora-lt-solo-black-13067/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisbaer Aurora LT Solo is a versatile and efficient cooler designed for a variety of scenarios. With a slim construction height, it's perfect for use in small cases where space is limited. This all-in-one cooler features a CPU cooling block, reservoir, and pump, making it a seamless solution for your water-cooling needs. 
 
 Its adaptability and effective cooling make it a popular choice for many, even serving as the foundation for Alphacool's popular AiO water coolers. Whether you're a beginner or a seasoned water-cooling enthusiast, the Alphacool Eisbaer Aurora LT Solo offers an impressive solution for your cooling requirements. 
 
 
-### [Alphacool NexXxoS Full Copper Radiator: Versatile and High Performance Cooling System](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-nexxxos-full-copper-radiator-versatile-and-high-performance-cooling-system)
+### [Alphacool NexXxoS Full Copper Radiator: Versatile and High Performance Cooling System](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-nexxxos-full-copper-radiator-versatile-and-high-performance-cooling-system)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-nexxxos-full-copper-radiator-versatile-and-high-performance-cooling-system"><img alt="alphacool-nexxxos-ut60-full-copper-480mm-radiator-14176" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-nexxxos-ut60-full-copper-480mm-radiator-14176/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-nexxxos-full-copper-radiator-versatile-and-high-performance-cooling-system"><img alt="alphacool-nexxxos-ut60-full-copper-480mm-radiator-14176" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-nexxxos-ut60-full-copper-480mm-radiator-14176/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Alphacool NexXxoS Ut60 full copper radiator for a while now, and it's a game-changer in my pc-cooling setup. The radiator boasts an impressive design, with all main parts made of copper, providing outstanding thermal conductivity. Its versatility is remarkable, as it can be paired with 120mm, 140mm, and 180mm fans of different thicknesses. 
 
@@ -203,9 +203,9 @@ The fin spacing is perfectly balanced to work efficiently with slow-spinning to 
 As a cooler enthusiast, Alphacool NexXxoS Ut60 has exceeded my expectations in terms of cooling performance and design. I highly recommend it to those looking for an upgrade in their pc-cooling system. 
 
 
-### [Alphacool Core 1 CPU Water Block for Exceptional Cooling](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-cpu-water-block-for-exceptional-cooling)
+### [Alphacool Core 1 CPU Water Block for Exceptional Cooling](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-core-1-cpu-water-block-for-exceptional-cooling)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-core-1-cpu-water-block-for-exceptional-cooling"><img alt="alphacool-core-1-cpu-water-block-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-cpu-water-block-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-core-1-cpu-water-block-for-exceptional-cooling"><img alt="alphacool-core-1-cpu-water-block-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-core-1-cpu-water-block-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 It's refreshing to see cooling solutions that are tailored to handle the latest desktop processors from Intel and AMD. Enter the Alphacool Core 1 Silver, a modern CPU water cooling solution designed to keep your gaming rig running smoothly. One of the first things I noticed about this product was its sleek silver design—it looks stunning and complements almost any build. 
 
@@ -216,18 +216,18 @@ However, there is a potential downside I've noticed. The included mounting screw
 In conclusion, if you're looking to upgrade your CPU water block for your latest Intel or AMD desktop processor, the Alphacool Core 1 Silver would make a great addition to your build. With its striking silver design and ease of installation, it's definitely worth considering. 
 
 
-### [Alphacool Eisbaer Extreme Liquid Cooler Core 280 (Black Edition)](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-extreme-liquid-cooler-core-280-black-edition)
+### [Alphacool Eisbaer Extreme Liquid Cooler Core 280 (Black Edition)](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alphacool-eisbaer-extreme-liquid-cooler-core-280-black-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-extreme-liquid-cooler-core-280-black-edition"><img alt="alphacool-eisbaer-extreme-liquid-cpu-cooler-core-280-black-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-extreme-liquid-cpu-cooler-core-280-black-edition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alphacool-eisbaer-extreme-liquid-cooler-core-280-black-edition"><img alt="alphacool-eisbaer-extreme-liquid-cpu-cooler-core-280-black-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-eisbaer-extreme-liquid-cpu-cooler-core-280-black-edition-1/h=540,fit=pad,background=black"/></a></div>
 
 The Alphacool Eisbaer Extreme Core 280 Water Cooling Radiator is a game-changer in the world of water cooling. Boasting a sleek design and whisper-quiet operation, this radiator integrates dual be quiet! Silent Wings 3 fans and a high-quality housing, providing superior air management and visual appeal. 
 
 The newly designed radiator with pump boasts compatibility with a range of CPU coolers and components, allowing for customization and versatility in building your system. Additionally, the redesigned VPP755 ice pump promises added stability and smoothness, ensuring optimal performance for your hardware. 
 
 
-### [Portable Alphacool Neck Cooler for Comfort on the Go](https://serp.ly/amazon/Alpha+Cooler?utm\_term=portable-alphacool-neck-cooler-for-comfort-on-the-go)
+### [Portable Alphacool Neck Cooler for Comfort on the Go](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=portable-alphacool-neck-cooler-for-comfort-on-the-go)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=portable-alphacool-neck-cooler-for-comfort-on-the-go"><img alt="alphacool-portable-neck-air-conditioner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-portable-neck-air-conditioner-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=portable-alphacool-neck-cooler-for-comfort-on-the-go"><img alt="alphacool-portable-neck-air-conditioner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-portable-neck-air-conditioner-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience ultimate comfort and relief with Alphacool's Portable Neck Air Conditioner. Boasting a powerful 4000 mAh rechargeable battery, this innovative device offers up to 12 hours of uninterrupted cooling. Perfect for a variety of outdoor activities or daily pursuits, this bladeless wonder delivers efficient cooling without disturbing your natural flow. 
 
@@ -236,9 +236,9 @@ Featuring intuitive user-friendly controls, this neck air conditioner ensures qu
 But that's not all - this portable air conditioner is designed for ultimate comfort, fitting snugly around your neck all day long. With its robust construction and flexible joint, you'll appreciate the seamless fit and enjoy the convenience of this top-rated product. Whether you're taking a stroll, climbing, or engaged in other summer activities, the Alphacool Portable Neck Air Conditioner is the ultimate companion to keep you cool and energized. 
 
 
-### [Alpha Sidekick Pro Series 22 Quart Cooler with Heavy Duty Features](https://serp.ly/amazon/Alpha+Cooler?utm\_term=alpha-sidekick-pro-series-22-quart-cooler-with-heavy-duty-features)
+### [Alpha Sidekick Pro Series 22 Quart Cooler with Heavy Duty Features](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=alpha-sidekick-pro-series-22-quart-cooler-with-heavy-duty-features)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=alpha-sidekick-pro-series-22-quart-cooler-with-heavy-duty-features"><img alt="siberian-coolers-alpha-sidekick-pro-series-22-quart-cooler-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/siberian-coolers-alpha-sidekick-pro-series-22-quart-cooler-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=alpha-sidekick-pro-series-22-quart-cooler-with-heavy-duty-features"><img alt="siberian-coolers-alpha-sidekick-pro-series-22-quart-cooler-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/siberian-coolers-alpha-sidekick-pro-series-22-quart-cooler-white-1/h=540,fit=pad,background=black"/></a></div>
 
 The Siberian Alpha Sidekick Pro Series 22 Quart Cooler is a top-notch option for outdoor enthusiasts, offering durability and versatility. Built with a heavy-duty wire basket, the cooler is designed for easy tie-down, providing stability for all your adventures. 
 
@@ -247,9 +247,9 @@ The anodized aluminum latches ensure a secure seal, while the hidden padlock pla
 While this Alpha Cooler might be a bit heavy and require some strength for transportation, it's definitely worth the cost for its robust features and reliable performance. Overall, it's the perfect companion for any adventure. 
 
 
-### [Bladeless Alpha Personal Cooling Neck Fan - Temperature Regulation & Portable Battery-Powered Cooling](https://serp.ly/amazon/Alpha+Cooler?utm\_term=bladeless-alpha-personal-cooling-neck-fan-temperature-regulation-portable-battery-powered-cooling)
+### [Bladeless Alpha Personal Cooling Neck Fan - Temperature Regulation & Portable Battery-Powered Cooling](https://serp.ly/@outrun/amazon/Alpha+Cooler?utm\_term=bladeless-alpha-personal-cooling-neck-fan-temperature-regulation-portable-battery-powered-cooling)
 
-<div class="image"><a href="https://serp.ly/amazon/Alpha+Cooler?utm_term=bladeless-alpha-personal-cooling-neck-fan-temperature-regulation-portable-battery-powered-cooling"><img alt="alphacool-wearable-bladeless-neck-fan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-wearable-bladeless-neck-fan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler?utm_term=bladeless-alpha-personal-cooling-neck-fan-temperature-regulation-portable-battery-powered-cooling"><img alt="alphacool-wearable-bladeless-neck-fan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alphacool-wearable-bladeless-neck-fan-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Alphacool wearable bladeless neck fan for quite some time now, and I must say it's an incredible gadget during hot summer days. The rechargeable battery inside it lasts for up to 12 hours, which makes it a trustworthy partner for every outdoor event I attend. Its foldable nature further enhances its appeal as it can be carried around effortlessly, making it an ideal companion for camping or hiking trips.
 
@@ -267,7 +267,7 @@ When you're in the market for an Alpha Cooler, it's crucial to understand the es
 
 ### Key Features
 
-<div><a href="https://serp.ly/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-2/h=540,fit=pad,background=black" alt="Alpha-Cooler-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-2/h=540,fit=pad,background=black" alt="Alpha-Cooler-2" height="540"></a></div>
 
 An Alpha Cooler should have several key features that contribute to its overall performance and efficiency. Look for the following attributes when making your purchase decision: 
 1) High cooling capacity to keep your device at an optimal temperature, 2) Low noise operation, 3) Adjustable fan speed for flexibility, and 4) Compatibility with a wide range of devices. 
@@ -277,7 +277,7 @@ An Alpha Cooler should have several key features that contribute to its overall 
 
 There are several factors to consider when buying an Alpha Cooler. These include the size and weight of the product, which should be taken into account when you are planning to travel with it or if the device will be stationary. Additionally, evaluate the materials used for durability and ease of cleaning. Finally, be mindful of the noise level generated by the Alpha Cooler, especially if you plan to use it in a confined space or while gaming. 
 
-<div><a href="https://serp.ly/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-3/h=540,fit=pad,background=black" alt="Alpha-Cooler-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-3/h=540,fit=pad,background=black" alt="Alpha-Cooler-3" height="540"></a></div>
 
 
 ### General Advice
@@ -289,7 +289,7 @@ By taking the time to evaluate the features, considerations, and advice provided
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-4/h=540,fit=pad,background=black" alt="Alpha-Cooler-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-4/h=540,fit=pad,background=black" alt="Alpha-Cooler-4" height="540"></a></div>
 
 
 ### Uncovering the Basics of Alpha Cooler
@@ -298,7 +298,7 @@ Alpha Cooler is a cutting-edge line of cooling products, meticulously designed t
 
 Encompassing a plethora of forms - from cooling pads and mats to laptop stands, Alpha Coolers provide a comprehensive solution to cater to a wide spectrum of devices and preferences. The ultimate goal is to make technology an accessible and enjoyable experience, providing a comforting environment even under intense workloads and demanding conditions.
 
-<div><a href="https://serp.ly/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-5/h=540,fit=pad,background=black" alt="Alpha-Cooler-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-5/h=540,fit=pad,background=black" alt="Alpha-Cooler-5" height="540"></a></div>
 
 
 ### Which Devices are Suitable for Alpha Cooler Products?
@@ -310,7 +310,7 @@ Alpha Cooler offers cooling products in a myriad of sizes and configurations, ma
 
 ### What Advanced Cooling Technologies does Alpha Cooler Utilize?
 
-<div><a href="https://serp.ly/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-6/h=540,fit=pad,background=black" alt="Alpha-Cooler-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Alpha+Cooler"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Alpha-Cooler-6/h=540,fit=pad,background=black" alt="Alpha-Cooler-6" height="540"></a></div>
 
 Alpha Cooler is renowned for its utilization of advanced cooling technologies that deliver superior performance. Among these robust cooling techniques are JetFlow Cooling, Thermoelectric Cooling, and Peltier Cooling. These technologies work in harmony to dissipate heat proficiently and maintain your device at a comfortable temperature, even under the most extreme conditions.
 

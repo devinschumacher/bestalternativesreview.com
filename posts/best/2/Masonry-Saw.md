@@ -14,9 +14,9 @@ Greetings and welcome to our comprehensive evaluation of the top-rated Masonry S
 ## Reviews
 
 
-### [Compact Norton Masonry Saw with Induction Motor](https://serp.ly/amazon/Masonry+Saw?utm\_term=compact-norton-masonry-saw-with-induction-motor)
+### [Compact Norton Masonry Saw with Induction Motor](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=compact-norton-masonry-saw-with-induction-motor)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=compact-norton-masonry-saw-with-induction-motor"><img alt="norton-clipper-blockbuster-bbm-series-mini-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-clipper-blockbuster-bbm-series-mini-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=compact-norton-masonry-saw-with-induction-motor"><img alt="norton-clipper-blockbuster-bbm-series-mini-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-clipper-blockbuster-bbm-series-mini-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
 
 When I was given the opportunity to try out the Norton Clipper Blockbuster Mini Masonry Saw, I was genuinely excited to see if it lived up to its reputation. As someone who regularly works with masonry tools, I'm used to handling heavy-duty equipment, but I was interested to see how this compact, all-steel saw would perform. 
 
@@ -30,9 +30,9 @@ Overall, the Norton Clipper Blockbuster Mini Masonry Saw is a great choice for t
 
 
 ### [Husqvarna MS 610 Masonry Saw: 
-7.5 HP, 24", 230V - 967673510](https://serp.ly/amazon/Masonry+Saw?utm\_term=husqvarna-ms-610-masonry-saw-7-5-hp-24-230v-967673510)
+7.5 HP, 24", 230V - 967673510](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=husqvarna-ms-610-masonry-saw-7-5-hp-24-230v-967673510)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=husqvarna-ms-610-masonry-saw-7-5-hp-24-230v-967673510"><img alt="husqvarna-ms-610-masonry-saw-7-5-hp-24-230-v-967673511" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-ms-610-masonry-saw-7-5-hp-24-230-v-967673511/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=husqvarna-ms-610-masonry-saw-7-5-hp-24-230v-967673510"><img alt="husqvarna-ms-610-masonry-saw-7-5-hp-24-230-v-967673511" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-ms-610-masonry-saw-7-5-hp-24-230-v-967673511/h=540,fit=pad,background=black"/></a></div>
 
 This robust Husqvarna MS 610 masonry saw is a versatile tool for tackling large-scale block, brick, or paver projects. Equipped with a high torque, continuous duty dual capacitor motor, it efficiently utilizes its horsepower, reducing cutting time significantly. The saw can cut up to 8" x 8" x 16" block using a 20" blade or 10" block using a 24" blade in just one pass. 
 
@@ -41,18 +41,18 @@ Adjusting the saw's height is a breeze with the convenient crank control or foot
 Remember to clean the air filters daily, especially in harsh environments. Don't forget to purchase a Diamond Saw Blade for this saw, as it does not come with one. 
 
 
-### [Powerful 14" Masonry Saw with Air Filtration](https://serp.ly/amazon/Masonry+Saw?utm\_term=powerful-14-masonry-saw-with-air-filtration)
+### [Powerful 14" Masonry Saw with Air Filtration](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=powerful-14-masonry-saw-with-air-filtration)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=powerful-14-masonry-saw-with-air-filtration"><img alt="pearl-abrasive-vx141mspro-14-inch-professional-masonry-brick-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pearl-abrasive-vx141mspro-14-inch-professional-masonry-brick-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=powerful-14-masonry-saw-with-air-filtration"><img alt="pearl-abrasive-vx141mspro-14-inch-professional-masonry-brick-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pearl-abrasive-vx141mspro-14-inch-professional-masonry-brick-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 This Pearl Abrasive VX141MSPRO Masonry Saw packs a powerful punch with its 2hp, 2 belt-driven motor, providing outstanding performance when taking on even the most challenging masonry jobs. The machine's 14-inch diameter blade can cut through 8x8x16 inches of materials with ease. 
 
 While using this saw, rest assured that your safety is a priority as it features an air filter that's simple to maintain and safeguards the motor from dust and debris. A heavy-duty induction motor adds durability and longevity to the machine. At dimensions of 31.5 inches long by 18.5 inches wide by 21 inches high, it's a compact yet robust masonry cutting tool that will surely prove handy in the field. 
 
 
-### [Stark Gas Powerful 13HP Walk-Behind Concrete Saw](https://serp.ly/amazon/Masonry+Saw?utm\_term=stark-gas-powerful-13hp-walk-behind-concrete-saw)
+### [Stark Gas Powerful 13HP Walk-Behind Concrete Saw](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=stark-gas-powerful-13hp-walk-behind-concrete-saw)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=stark-gas-powerful-13hp-walk-behind-concrete-saw"><img alt="stark-gas-18-in-walk-behind-concrete-saw-13-hp-epa-cement-walk-behind-no-blade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stark-gas-18-in-walk-behind-concrete-saw-13-hp-epa-cement-walk-behind-no-blade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=stark-gas-powerful-13hp-walk-behind-concrete-saw"><img alt="stark-gas-18-in-walk-behind-concrete-saw-13-hp-epa-cement-walk-behind-no-blade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stark-gas-18-in-walk-behind-concrete-saw-13-hp-epa-cement-walk-behind-no-blade-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Stark Gas 18-in. Walk-Behind Concrete Saw, and I must say, it's perfect for smaller jobs. 
 
@@ -61,9 +61,9 @@ This EPA-certified 13 HP 4-cycle gas engine makes it a reliable choice for any m
 Despite this minor drawback, I highly recommend this concrete saw for its versatility and power. 
 
 
-### [Imer Masonry Saw for Efficient Block Cutting](https://serp.ly/amazon/Masonry+Saw?utm\_term=imer-masonry-saw-for-efficient-block-cutting)
+### [Imer Masonry Saw for Efficient Block Cutting](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=imer-masonry-saw-for-efficient-block-cutting)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=imer-masonry-saw-for-efficient-block-cutting"><img alt="imer-masonry-750-30-block-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imer-masonry-750-30-block-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=imer-masonry-saw-for-efficient-block-cutting"><img alt="imer-masonry-750-30-block-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imer-masonry-750-30-block-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 One afternoon, I decided to try out the Imer Masonry 750 Block Saw after hearing great things about it. The first thing I noticed was the size; at 60 inches long, 33 inches wide, and 62 inches tall, it's definitely a substantial piece of machinery. Weighing in at a whopping 440 pounds, it's a sturdy beast. 
 
@@ -74,9 +74,9 @@ The cutting depth of 12 inches was also quite noteworthy, allowing me to make so
 However, no product's perfect. The weight was a bit of a challenge to move around, and I do wish the arbor was a bit larger to accommodate some wider blades. But overall, the Imer Masonry 750 Block Saw is a pretty solid choice for anyone looking to make some serious masonry cuts. 
 
 
-### [Husqvarna Guardmatic MS 610 G Masonry Saw with Clutch Protection](https://serp.ly/amazon/Masonry+Saw?utm\_term=husqvarna-guardmatic-ms-610-g-masonry-saw-with-clutch-protection)
+### [Husqvarna Guardmatic MS 610 G Masonry Saw with Clutch Protection](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=husqvarna-guardmatic-ms-610-g-masonry-saw-with-clutch-protection)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=husqvarna-guardmatic-ms-610-g-masonry-saw-with-clutch-protection"><img alt="husqvarna-guardmatic-ms-610-g-masonry-saw-24-guard-with-clutch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-guardmatic-ms-610-g-masonry-saw-24-guard-with-clutch-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=husqvarna-guardmatic-ms-610-g-masonry-saw-with-clutch-protection"><img alt="husqvarna-guardmatic-ms-610-g-masonry-saw-24-guard-with-clutch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-guardmatic-ms-610-g-masonry-saw-24-guard-with-clutch-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who values efficiency in their daily life, the Husqvarna Guardmatic MS 610 G Masonry Saw has been a game-changer. On several occasions, I had to cut through blocks of brick or large slabs of stone, and this powerhouse delivered the goods effortlessly. The engine itself is a beast, offering a mighty 14 hp to tackle even the most demanding masonry tasks. 
 
@@ -87,27 +87,27 @@ The convenience of controlling the cutting height using a crank control or foot 
 The saw also comes equipped with a clutch to prevent the blade from spinning while idling, providing peace of mind and extra safety during operation. Overall, while there are a few minor setbacks such as the limited availability of ready-made blades, the Husqvarna Guardmatic MS 610 G Masonry Saw is a sturdy workhorse that more than delivers for those seeking a powerful, efficient masonry tool. 
 
 
-### [Husqvarna 14hp 20in Heavy Duty Masonry Saw for Cutting Block Brick or Pavers](https://serp.ly/amazon/Masonry+Saw?utm\_term=husqvarna-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers)
+### [Husqvarna 14hp 20in Heavy Duty Masonry Saw for Cutting Block Brick or Pavers](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=husqvarna-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=husqvarna-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers"><img alt="husqvarna-ms-610-g-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers-967673602" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-ms-610-g-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers-967673602/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=husqvarna-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers"><img alt="husqvarna-ms-610-g-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers-967673602" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/husqvarna-ms-610-g-14hp-20in-heavy-duty-masonry-saw-for-cutting-block-brick-or-pavers-967673602/h=540,fit=pad,background=black"/></a></div>
 
 The Husqvarna MS 610 G, a heavy-duty masonry saw, stands out for its powerful gas engine designed to tackle large jobs, like cutting block, brick, or pavers. But what's even more impressive is the high torque that comes with its continuous-duty dual capacitor motors, making the most of its horsepower while also cutting down on time. Plus, the sta-level blade guard guarantees a straight cut every time by keeping the guard parallel to the cutting table, while the spring-assisted head effortlessly plunges for smooth cutting. 
 
 While it's a bit pricey, this masonry saw is a reliable and efficient tool for the bigger cutting tasks. 
 
 
-### [Norton BBC307 Electric Masonry Saw - Compact Block Buster](https://serp.ly/amazon/Masonry+Saw?utm\_term=norton-bbc307-electric-masonry-saw-compact-block-buster)
+### [Norton BBC307 Electric Masonry Saw - Compact Block Buster](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=norton-bbc307-electric-masonry-saw-compact-block-buster)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=norton-bbc307-electric-masonry-saw-compact-block-buster"><img alt="norton-bbc307-bbc-block-buster-compact-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbc307-bbc-block-buster-compact-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=norton-bbc307-electric-masonry-saw-compact-block-buster"><img alt="norton-bbc307-bbc-block-buster-compact-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbc307-bbc-block-buster-compact-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the Norton BBC Block Buster Compact Masonry Saw-Electric, a powerhouse of a saw that brings the best of both worlds - the incredible performance of a full-sized saw coupled with the ease of portability. This electric saw is part of the BBC series, which is known for its rugged jig-welded frame, designed to handle the toughest of tasks with ease. Say goodbye to the hassle of moving heavy equipment around, as this nifty saw features a standard rear wheel dolly design and removable legs, making transport and setup a breeze. 
 
 Whether you're working on a small project or a massive construction, the Norton BBC Block Buster Compact Masonry Saw-Electric has got you covered. 
 
 
-### [Baldor Masonry Saw with 14" Blade Capacity](https://serp.ly/amazon/Masonry+Saw?utm\_term=baldor-masonry-saw-with-14-blade-capacity)
+### [Baldor Masonry Saw with 14" Blade Capacity](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=baldor-masonry-saw-with-14-blade-capacity)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=baldor-masonry-saw-with-14-blade-capacity"><img alt="diamond-cc515mxl2e1-baldor-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-cc515mxl2e1-baldor-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=baldor-masonry-saw-with-14-blade-capacity"><img alt="diamond-cc515mxl2e1-baldor-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-cc515mxl2e1-baldor-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 The Diamond CC515MXL2E1 Baldor Masonry Saw, from the brand Diamond Products, is a powerful and high performing saw designed for cutting through tile and masonry materials. With its sleek 14" blade capacity, this industrial-grade saw delivers maximum efficiency and precision in tackling even the toughest jobs. 
 
@@ -118,27 +118,27 @@ This impressive Diamond Products' creation boasts a number of features designed 
 The Diamond CC515MXL2E1 Baldor Masonry Saw is a top-quality saw, built to exceed expectations and cater for the most demanding tile and masonry cutting tasks. 
 
 
-### [Powerful Hilti Gas Metal Saw for Concrete and Masonry](https://serp.ly/amazon/Masonry+Saw?utm\_term=powerful-hilti-gas-metal-saw-for-concrete-and-masonry)
+### [Powerful Hilti Gas Metal Saw for Concrete and Masonry](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=powerful-hilti-gas-metal-saw-for-concrete-and-masonry)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=powerful-hilti-gas-metal-saw-for-concrete-and-masonry"><img alt="hilti-dsh700-x-hand-held-70cc-easy-start-gas-metal-and-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hilti-dsh700-x-hand-held-70cc-easy-start-gas-metal-and-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=powerful-hilti-gas-metal-saw-for-concrete-and-masonry"><img alt="hilti-dsh700-x-hand-held-70cc-easy-start-gas-metal-and-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hilti-dsh700-x-hand-held-70cc-easy-start-gas-metal-and-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Hilti Dsh700-x, a hand-held gas metal saw that combines incredible power with user-friendly features. This robust saw, packing a 70cc engine under the hood, is capable of slicing through the toughest concrete slabs and metal pipes with ease. But the Hilti Dsh700-x isn't just about brute force - it's designed to deliver precision and comfort. 
 
 Its ergonomic handles are designed for optimal control, while its anti-vibration bushings ensure a smoother and more comfortable user experience. Plus, this versatile saw comes complete with a hose coupler and maintenance kit, ensuring maximum convenience and ease of use. With the Hilti Dsh700-x, you'll be left wondering how you ever managed without it. 
 
 
-### [Robust Masonry Saw with Versatile Cutting Capabilities](https://serp.ly/amazon/Masonry+Saw?utm\_term=robust-masonry-saw-with-versatile-cutting-capabilities)
+### [Robust Masonry Saw with Versatile Cutting Capabilities](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=robust-masonry-saw-with-versatile-cutting-capabilities)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=robust-masonry-saw-with-versatile-cutting-capabilities"><img alt="norton-bbm307-clipper-14-in-electric-1hp-115v-60hz-mini-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbm307-clipper-14-in-electric-1hp-115v-60hz-mini-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=robust-masonry-saw-with-versatile-cutting-capabilities"><img alt="norton-bbm307-clipper-14-in-electric-1hp-115v-60hz-mini-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbm307-clipper-14-in-electric-1hp-115v-60hz-mini-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 During my daily tasks, I found the Norton BBM307 Clipper 14 in. Electric 1HP 115V 60Hz Mini Masonry Saw to be a game-changer. Its robust construction made of all-steel unibody ensures superior strength and weight distribution, making it perfect for heavy-duty tasks. 
 
 The user-friendly design also caught my attention, with the ergonomic three-position locking cutting head providing a safe, unobstructed view of the cutting area. One downside was that it took a while to figure out the quick-attach garden hose water system for both wet and dry cutting applications. Overall, this compact and powerful saw has made my work much more efficient and enjoyable. 
 
 
-### [Norton Heavy-Duty BBL Masonry Saw - Electric Industrial Cutting Solution](https://serp.ly/amazon/Masonry+Saw?utm\_term=norton-heavy-duty-bbl-masonry-saw-electric-industrial-cutting-solution)
+### [Norton Heavy-Duty BBL Masonry Saw - Electric Industrial Cutting Solution](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=norton-heavy-duty-bbl-masonry-saw-electric-industrial-cutting-solution)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=norton-heavy-duty-bbl-masonry-saw-electric-industrial-cutting-solution"><img alt="norton-bbl547-bbl-block-buster-large-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbl547-bbl-block-buster-large-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=norton-heavy-duty-bbl-masonry-saw-electric-industrial-cutting-solution"><img alt="norton-bbl547-bbl-block-buster-large-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbl547-bbl-block-buster-large-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
 
 The Norton BBL547 BBL Block Buster Large Masonry Saw-Electric is truly a powerhouse in the field of masonry. Having used this saw, I can confidently say that it stands out for its rugged, dependable build. The steel frame resists twisting and damage like no other, ensuring reliable performance for any task at hand. 
 
@@ -149,18 +149,18 @@ That being said, there's always room for improvement. One aspect that could use 
 Overall, the Norton BBL547 BBL Block Buster Large Masonry Saw-Electric is a beast of a machine - powerful and efficient. Though it may require a bit more muscle and space to handle, it's certainly worth the effort in the end. 
 
 
-### [Commercial Grade Masonry Saw with Water Pump and Coller Running Motor](https://serp.ly/amazon/Masonry+Saw?utm\_term=commercial-grade-masonry-saw-with-water-pump-and-coller-running-motor)
+### [Commercial Grade Masonry Saw with Water Pump and Coller Running Motor](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=commercial-grade-masonry-saw-with-water-pump-and-coller-running-motor)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=commercial-grade-masonry-saw-with-water-pump-and-coller-running-motor"><img alt="diamond-products-cc500mxl2-masonry-saw-cc548mhxl2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-products-cc500mxl2-masonry-saw-cc548mhxl2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=commercial-grade-masonry-saw-with-water-pump-and-coller-running-motor"><img alt="diamond-products-cc500mxl2-masonry-saw-cc548mhxl2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-products-cc500mxl2-masonry-saw-cc548mhxl2-1/h=540,fit=pad,background=black"/></a></div>
 
 This Diamond Products CC500MXL2 Masonry Saw offers a solid build with standard legs on all models, ensuring stability and ease of use. The water pump comes included, providing a smooth and efficient cutting experience. A key feature is the easy, safe access to the depth control lock, which allows for customized cutting depths without hassle. 
 
 The saw is available with either a standard 1.5 or deluxe 2.5 horsepower electric motor, depending on your power preference. Additionally, a Honda 5.5 gas motor option is available for those who prefer gas-powered machinery. Overall, this masonry saw is a reliable and versatile choice for tackling your toughest cutting jobs. 
 
 
-### [BBC157 BBC Block Buster Compact Masonry Saw: Electric Masonry Saw for Heavy-Duty Tasks](https://serp.ly/amazon/Masonry+Saw?utm\_term=bbc157-bbc-block-buster-compact-masonry-saw-electric-masonry-saw-for-heavy-duty-tasks)
+### [BBC157 BBC Block Buster Compact Masonry Saw: Electric Masonry Saw for Heavy-Duty Tasks](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=bbc157-bbc-block-buster-compact-masonry-saw-electric-masonry-saw-for-heavy-duty-tasks)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=bbc157-bbc-block-buster-compact-masonry-saw-electric-masonry-saw-for-heavy-duty-tasks"><img alt="norton-bbc157-bbc-block-buster-compact-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbc157-bbc-block-buster-compact-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=bbc157-bbc-block-buster-compact-masonry-saw-electric-masonry-saw-for-heavy-duty-tasks"><img alt="norton-bbc157-bbc-block-buster-compact-masonry-saw-electric-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/norton-bbc157-bbc-block-buster-compact-masonry-saw-electric-1/h=540,fit=pad,background=black"/></a></div>
 
 The Norton BBC BlockBuster Compact Masonry Saw is a versatile tool, offering the performance of a full-size masonry saw with the convenience of portability. It comes in various versions, including gas and electric, making it suitable for a range of heavy-duty masonry tasks. 
 
@@ -175,9 +175,9 @@ With a weight of 250 lbs uncrated and 280 lbs crated, this saw is heavy but dura
 This masonry saw, while powerful and efficient, may be a bit too heavy for some users. However, its features and performance make it a worthy addition for those in need of a compact, yet robust saw for heavy-duty masonry tasks. 
 
 
-### [High-Performance Diamond Masonry Saw](https://serp.ly/amazon/Masonry+Saw?utm\_term=high-performance-diamond-masonry-saw)
+### [High-Performance Diamond Masonry Saw](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=high-performance-diamond-masonry-saw)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=high-performance-diamond-masonry-saw"><img alt="diamond-products-cc500mxl2-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-products-cc500mxl2-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=high-performance-diamond-masonry-saw"><img alt="diamond-products-cc500mxl2-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-products-cc500mxl2-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Diamond Products CC500MXL2 Masonry Saw, and I have to say it exceeded my expectations. You know that feeling when you're cutting through a tough piece of masonry material, and the saw just makes the job so much easier? That's exactly what this saw did for me. 
 
@@ -186,27 +186,27 @@ I particularly liked the stay level blade guard and the removable cutting head. 
 However, there were a couple of things that could be improved. The water pump could be better, and the side carrying handles could use a bit more reinforcement for added durability. But overall, the Diamond Products CC500MXL2 Masonry Saw proved to be a great investment for my masonry projects. 
 
 
-### [IQ Power Tools Dust Controlled 16.5 in Masonry Saw with Stand](https://serp.ly/amazon/Masonry+Saw?utm\_term=iq-power-tools-dust-controlled-16-5-in-masonry-saw-with-stand)
+### [IQ Power Tools Dust Controlled 16.5 in Masonry Saw with Stand](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=iq-power-tools-dust-controlled-16-5-in-masonry-saw-with-stand)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=iq-power-tools-dust-controlled-16-5-in-masonry-saw-with-stand"><img alt="iq-power-tools-16-5-in-masonry-saw-dust-control-with-stand-iqms362i-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iq-power-tools-16-5-in-masonry-saw-dust-control-with-stand-iqms362i-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=iq-power-tools-dust-controlled-16-5-in-masonry-saw-with-stand"><img alt="iq-power-tools-16-5-in-masonry-saw-dust-control-with-stand-iqms362i-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iq-power-tools-16-5-in-masonry-saw-dust-control-with-stand-iqms362i-1/h=540,fit=pad,background=black"/></a></div>
 
 The iQMS362 motor package boasts a powerful propeller-driven blade designed to conquer the limitations typically found in masonry saws. This innovative saw features an integral dust collection system and a Q-Drive blade, which employs the latest diamond tool technology and offers a 40% faster cutting speed compared to other blades in the market. 
 
 Ideal for a broad range of materials, this 2800RPM masonry saw is equipped with an LED amperage indicator and operates on a 20AMP 110 Volt plug, with an optional adaptor available for use with standard 15 Amp outlets. 
 
 
-### [Diamond CC300M High-Quality Masonry Saw for Professional Use](https://serp.ly/amazon/Masonry+Saw?utm\_term=diamond-cc300m-high-quality-masonry-saw-for-professional-use)
+### [Diamond CC300M High-Quality Masonry Saw for Professional Use](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=diamond-cc300m-high-quality-masonry-saw-for-professional-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=diamond-cc300m-high-quality-masonry-saw-for-professional-use"><img alt="diamond-cc300m-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-cc300m-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=diamond-cc300m-high-quality-masonry-saw-for-professional-use"><img alt="diamond-cc300m-masonry-saw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamond-cc300m-masonry-saw-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Diamond CC300M Masonry Saw and was pleasantly surprised by its efficiency and ease of use. This lightweight saw effortlessly cuts through brick and block with a 5-inch depth, thanks to its powerful 3HP motor and 14-inch blade. The smooth sliding cutting table makes the process even smoother, and the cutting head can be pulled down into the material or locked to push the material into the blade, giving you maximum control over your cuts. 
 
 One of the features I appreciated was the tool-free air filter replacement, which extends the motor's life and ensures it continues to run smoothly. The superior foam air filter, along with the two spare filters included, adds to the saw's longevity. Overall, the Diamond CC300M Masonry Saw is a dependable and efficient tool for general brick and block cutting, and I'm happy to recommend it to fellow DIY enthusiasts. 
 
 
-### [Stark Industrial 50120-H2 Circular Concrete Saw with Water Line Attachment (No-Blade)](https://serp.ly/amazon/Masonry+Saw?utm\_term=stark-industrial-50120-h2-circular-concrete-saw-with-water-line-attachment-no-blade)
+### [Stark Industrial 50120-H2 Circular Concrete Saw with Water Line Attachment (No-Blade)](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=stark-industrial-50120-h2-circular-concrete-saw-with-water-line-attachment-no-blade)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=stark-industrial-50120-h2-circular-concrete-saw-with-water-line-attachment-no-blade"><img alt="stark-usa-50120-h2-16-in-3200-watt-circular-cut-concrete-saw-cutter-with-water-line-attachment-no-bl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stark-usa-50120-h2-16-in-3200-watt-circular-cut-concrete-saw-cutter-with-water-line-attachment-no-bl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=stark-industrial-50120-h2-circular-concrete-saw-with-water-line-attachment-no-blade"><img alt="stark-usa-50120-h2-16-in-3200-watt-circular-cut-concrete-saw-cutter-with-water-line-attachment-no-bl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stark-usa-50120-h2-16-in-3200-watt-circular-cut-concrete-saw-cutter-with-water-line-attachment-no-bl-1/h=540,fit=pad,background=black"/></a></div>
 
 The Stark USA 50120-H2 Circular Cut Concrete Saw is a powerful and versatile tool designed for cutting through masonry materials with ease. Its 16-inch blade diameter and 5 horsepower motor make quick work of even the toughest concrete surfaces. With a top speed of 4,700 RPM, this saw offers a smooth and efficient cutting experience. 
 
@@ -217,9 +217,9 @@ While there are no additional features mentioned, this saw's no-blade design mak
 Users who have purchased the Stark USA 50120-H2 Circular Cut Concrete Saw have praised its performance and ease of use. With a rating of 5.0 stars and one review, it's clear that this power tool lives up to its promise of delivering efficient and reliable results in the field of masonry. 
 
 
-### [IQ Power Tools 14" Dust Control Masonry Saw with Built-in Vacuum System](https://serp.ly/amazon/Masonry+Saw?utm\_term=iq-power-tools-14-dust-control-masonry-saw-with-built-in-vacuum-system)
+### [IQ Power Tools 14" Dust Control Masonry Saw with Built-in Vacuum System](https://serp.ly/@outrun/amazon/Masonry+Saw?utm\_term=iq-power-tools-14-dust-control-masonry-saw-with-built-in-vacuum-system)
 
-<div class="image"><a href="https://serp.ly/amazon/Masonry+Saw?utm_term=iq-power-tools-14-dust-control-masonry-saw-with-built-in-vacuum-system"><img alt="iq-power-tools-iq360xt-14-dust-control-masonry-saw-with-built-in-vacuum-system-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iq-power-tools-iq360xt-14-dust-control-masonry-saw-with-built-in-vacuum-system-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Masonry+Saw?utm_term=iq-power-tools-14-dust-control-masonry-saw-with-built-in-vacuum-system"><img alt="iq-power-tools-iq360xt-14-dust-control-masonry-saw-with-built-in-vacuum-system-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iq-power-tools-iq360xt-14-dust-control-masonry-saw-with-built-in-vacuum-system-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the IQ Power Tools masonry saw for cutting brick, stone, and pavers efficiently without needing water. This innovative saw boasts a 100% dry cutting method, while also capturing an impressive 99.5% of dust. 
 

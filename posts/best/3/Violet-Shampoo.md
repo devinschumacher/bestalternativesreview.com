@@ -14,9 +14,9 @@ Introducing Violet Shampoo: Experience the power of nature as you transform your
 ## Reviews
 
 
-### [Pure Blonde Violet Shampoo: Environmentally Friendly, Vegan, and Cruelty-Free](https://serp.ly/amazon/Violet+Shampoo?utm\_term=pure-blonde-violet-shampoo-environmentally-friendly-vegan-and-cruelty-free)
+### [Pure Blonde Violet Shampoo: Environmentally Friendly, Vegan, and Cruelty-Free](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=pure-blonde-violet-shampoo-environmentally-friendly-vegan-and-cruelty-free)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=pure-blonde-violet-shampoo-environmentally-friendly-vegan-and-cruelty-free"><img alt="surface-pure-blonde-violet-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/surface-pure-blonde-violet-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=pure-blonde-violet-shampoo-environmentally-friendly-vegan-and-cruelty-free"><img alt="surface-pure-blonde-violet-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/surface-pure-blonde-violet-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Surface Pure Blonde Violet Shampoo is a fantastic option for those looking to enhance their blonde or gray hair's color while also nourishing and cleansing the hair. One of its key features is its deep purple maqui berry and moringa oil formula, which provides a burst of antioxidants to protect the hair and its color from damage caused by free radicals. This shampoo is also environmentally friendly, vegan, and cruelty-free, making it a great choice for those conscious of their impact on the environment and other living beings. 
 
@@ -25,9 +25,9 @@ Despite being less expensive than some of its competitors, the Surface Pure Blon
 Using this shampoo is as simple as adding it to your hair care routine. Apply the product to your hair and leave it on for a few minutes to allow it to work its magic. Afterward, simply rinse it off and enjoy the vibrant and bright new color of your hair. The Surface Pure Blonde Violet Shampoo is effective and easy to use, making it a top choice for those who want to maintain their hair's color without breaking the bank. 
 
 
-### [Violet Shampoo for Blonde Hair: AGEbeautiful Blonde Care](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-shampoo-for-blonde-hair-agebeautiful-blonde-care)
+### [Violet Shampoo for Blonde Hair: AGEbeautiful Blonde Care](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-shampoo-for-blonde-hair-agebeautiful-blonde-care)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-shampoo-for-blonde-hair-agebeautiful-blonde-care"><img alt="agebeautiful-blonde-care-purple-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/agebeautiful-blonde-care-purple-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-shampoo-for-blonde-hair-agebeautiful-blonde-care"><img alt="agebeautiful-blonde-care-purple-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/agebeautiful-blonde-care-purple-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the AGEbeautiful Blonde Care Purple Shampoo, or what I like to call it, the Unbreakable Blonde Shampoo, for a couple of weeks now and I must say, the results have been amazing. As someone who has always struggled with keeping their blonde hair cool and vibrant, this shampoo has been a game-changer. 
 
@@ -40,9 +40,9 @@ One downside I've noticed is that it can sometimes leave my hair feeling a bit d
 Overall, the AGEbeautiful Blonde Care Purple Shampoo has been a staple in my hair care routine. It's made a noticeable difference in the coolness and strength of my blonde hair. It's nice to know that I'm taking care of my hair while also achieving the desired aesthetic. 
 
 
-### [Violet Duo Shampoo & Conditioner for Unisex Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-duo-shampoo-conditioner-for-unisex-hair)
+### [Violet Duo Shampoo & Conditioner for Unisex Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-duo-shampoo-conditioner-for-unisex-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-duo-shampoo-conditioner-for-unisex-hair"><img alt="catwalk-fashionista-violet-duo-tigi-25-36-oz-shampoo-conditioner-for-unisex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/catwalk-fashionista-violet-duo-tigi-25-36-oz-shampoo-conditioner-for-unisex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-duo-shampoo-conditioner-for-unisex-hair"><img alt="catwalk-fashionista-violet-duo-tigi-25-36-oz-shampoo-conditioner-for-unisex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/catwalk-fashionista-violet-duo-tigi-25-36-oz-shampoo-conditioner-for-unisex-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Tigi Catwalk Fashionista Violet Duo shampoo and conditioner, and I must say that it exceeded my expectations. As someone who struggles with oily hair, I really appreciated the advanced formula that helped in reducing excess oil and impurities from my scalp. The violet and pearl extracts in this duo also promoted healthy-looking hair, and the jojoba seed oil made my hair more manageable. 
 
@@ -51,18 +51,18 @@ While I didn't experience any major disadvantages, I did notice that it might no
 Overall, I am thoroughly satisfied with this product and can confidently say that it's a great value for the price. The sulfate-free formula and captivating results make it a standout choice in the market. 
 
 
-### [Crazy Color Ultraviolet Anti Yellow Shampoo: Violet Shampoo for Lightened or Bleached Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=crazy-color-ultraviolet-anti-yellow-shampoo-violet-shampoo-for-lightened-or-bleached-hair)
+### [Crazy Color Ultraviolet Anti Yellow Shampoo: Violet Shampoo for Lightened or Bleached Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=crazy-color-ultraviolet-anti-yellow-shampoo-violet-shampoo-for-lightened-or-bleached-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=crazy-color-ultraviolet-anti-yellow-shampoo-violet-shampoo-for-lightened-or-bleached-hair"><img alt="crazy-color-ultraviolet-anti-yellow-shampoo-33-8-oz-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/crazy-color-ultraviolet-anti-yellow-shampoo-33-8-oz-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=crazy-color-ultraviolet-anti-yellow-shampoo-violet-shampoo-for-lightened-or-bleached-hair"><img alt="crazy-color-ultraviolet-anti-yellow-shampoo-33-8-oz-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/crazy-color-ultraviolet-anti-yellow-shampoo-33-8-oz-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to yellow and brassy strands with the Crazy Color Ultraviolet Anti Yellow Shampoo, a powerful solution to achieve a refreshed, luminous look. Designed specifically for super lightened, grey, or bleached hair, this 100 percent sulfate-free shampoo boasts an intense purple formula without ammonia. Its innovative ultraviolet coloring provides you with a white-blonde color or a striking fresh silver tone, preparing your hair for a stunning new vibrant shade. 
 
 Users rave about the product's results, giving it a top rating of 5.0. So, if you're ready to enhance your hair's color and radiance, this shampoo might just be your best solution yet. 
 
 
-### [Oligo Blacklight Anti-Yellow Violet Shampoo & Conditioner](https://serp.ly/amazon/Violet+Shampoo?utm\_term=oligo-blacklight-anti-yellow-violet-shampoo-conditioner)
+### [Oligo Blacklight Anti-Yellow Violet Shampoo & Conditioner](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=oligo-blacklight-anti-yellow-violet-shampoo-conditioner)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=oligo-blacklight-anti-yellow-violet-shampoo-conditioner"><img alt="oligo-blacklight-anti-yellow-violet-shampoo-conditioner-8-5-oz-8-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/oligo-blacklight-anti-yellow-violet-shampoo-conditioner-8-5-oz-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=oligo-blacklight-anti-yellow-violet-shampoo-conditioner"><img alt="oligo-blacklight-anti-yellow-violet-shampoo-conditioner-8-5-oz-8-5-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/oligo-blacklight-anti-yellow-violet-shampoo-conditioner-8-5-oz-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Blacklight's Violet Shampoo is a game-changer for highlighted, bleached, white, and natural blonde hair. It's formulated to combat yellow tones, brassiness, and bring a refreshed touch to faded highlights, making hair look cleaner and brighter. Enriched with argan oil and 11 amino acids, this shampoo not only moisturizes and strengthens hair but also repairs surface damage, all while enhancing shine and color retention. 
 
@@ -71,9 +71,9 @@ It's sulfate, salt, and paraben-free, making it perfect for those with sensitive
 This duo is a must-have for anyone looking to maintain their blonde between salon visits. However, one downside is the pump issue, which may cause some leakage. Despite this, the rave reviews from users suggest that the benefits far outweigh the minor drawback. 
 
 
-### [Violet Helio Shampoo by Seven Rinzu](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-helio-shampoo-by-seven-rinzu)
+### [Violet Helio Shampoo by Seven Rinzu](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-helio-shampoo-by-seven-rinzu)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-helio-shampoo-by-seven-rinzu"><img alt="seven-rinzu-helio-violet-shampoo-7-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/seven-rinzu-helio-violet-shampoo-7-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-helio-shampoo-by-seven-rinzu"><img alt="seven-rinzu-helio-violet-shampoo-7-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/seven-rinzu-helio-violet-shampoo-7-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Seven Rinzu Helio Violet Shampoo, and I must say, it's quite the game-changer for my blonde hair. I've always struggled with brassiness and yellowish tones, especially after washing. But with this shampoo, I noticed a significant difference right away. The shampoo's violet pigment effectively counteracts the yellowing, leaving my hair with a cool, ashy gold hue. 
 
@@ -86,18 +86,18 @@ However, there was one downside to my experience with this shampoo. Due to its c
 In conclusion, the Seven Rinzu Helio Violet Shampoo is a great choice for those looking to maintain the vibrancy of their blonde hair while nourishing it with natural ingredients. It effectively reduces brassiness without damaging color-treated hair, making it a worthwhile investment for anyone with blonde locks. 
 
 
-### [Oligo Professionnel Blacklight Anti-Yellow Violet Shampoo & Conditioner Duo](https://serp.ly/amazon/Violet+Shampoo?utm\_term=oligo-professionnel-blacklight-anti-yellow-violet-shampoo-conditioner-duo)
+### [Oligo Professionnel Blacklight Anti-Yellow Violet Shampoo & Conditioner Duo](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=oligo-professionnel-blacklight-anti-yellow-violet-shampoo-conditioner-duo)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=oligo-professionnel-blacklight-anti-yellow-violet-shampoo-conditioner-duo"><img alt="oligo-professionnel-blacklight-anti-yellow-violet-shampoo-condtioner-duo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/oligo-professionnel-blacklight-anti-yellow-violet-shampoo-condtioner-duo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=oligo-professionnel-blacklight-anti-yellow-violet-shampoo-conditioner-duo"><img alt="oligo-professionnel-blacklight-anti-yellow-violet-shampoo-condtioner-duo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/oligo-professionnel-blacklight-anti-yellow-violet-shampoo-condtioner-duo-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Oligo Professionnel Blacklight Anti-Yellow Duo, featuring a professional formula for violet shampoo and conditioner. This dynamic duo is designed to combat yellow tones, brassiness, and refresh faded highlights in highlighted, bleached, white, and natural blonde hair. 
 
 With its unique blend of 11 amino acids and argan oil, it not only moisturizes and strengthens hair structure but also repairs surface damage and boosts shine and color retention. Made sulfate, salt, and paraben-free, this duo caters to adults seeking a reliable and high-quality violet shampoo solution. 
 
 
-### [Joico Blue Shampoo for Blonde Hair - Violet Toning and UV Protection](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-blue-shampoo-for-blonde-hair-violet-toning-and-uv-protection)
+### [Joico Blue Shampoo for Blonde Hair - Violet Toning and UV Protection](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-blue-shampoo-for-blonde-hair-violet-toning-and-uv-protection)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-blue-shampoo-for-blonde-hair-violet-toning-and-uv-protection"><img alt="joico-33-8-oz-blonde-life-violet-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/joico-33-8-oz-blonde-life-violet-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-blue-shampoo-for-blonde-hair-violet-toning-and-uv-protection"><img alt="joico-33-8-oz-blonde-life-violet-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/joico-33-8-oz-blonde-life-violet-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 The Joico Blonde Life Violet Shampoo has been a game-changer in my hair care routine. As someone with blonde locks, I've always struggled to find the right shampoo that effectively tones my hair and keeps it healthy. Blonde Life Violet Shampoo has done just that, creating a beautiful cool-tone that neutralizes brassy hues. 
 
@@ -108,9 +108,9 @@ However, as with any product, there are pros and cons. On the downside, using th
 In conclusion, the Joico Blonde Life Violet Shampoo has become a staple in my hair care regimen. With its toning qualities and hydrating ingredients, it's an excellent product for anyone with blonde hair seeking to maintain a healthy, vibrant look. So, if you're looking to keep your blonde locks shining bright, give this shampoo a try! 
 
 
-### [Joico Blonde Life Violet Shampoo (1000ml)](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-blonde-life-violet-shampoo-1000ml)
+### [Joico Blonde Life Violet Shampoo (1000ml)](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-blonde-life-violet-shampoo-1000ml)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-blonde-life-violet-shampoo-1000ml"><img alt="joico-blonde-life-violet-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-blonde-life-violet-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-blonde-life-violet-shampoo-1000ml"><img alt="joico-blonde-life-violet-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-blonde-life-violet-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Joico's Violet Shampoo from their Blonde Life series, a truly exceptional product designed specifically for blonde and gray hair. The shampoo's unique formula contains violet pigments that effortlessly cover yellow tones, resulting in a cool, vibrant blonde color. 
 
@@ -123,18 +123,18 @@ This product is incredibly user-friendly; simply massage a small amount of the s
 Joico's Violet Shampoo has received an impressive 4.7-star rating on the number of reviews, highlighting how it is a beloved choice for those with blonde and gray hair. Despite its excellent qualities, this shampoo might not be suitable for everyone, so it's essential to give it a try for yourself and see if it works well for your hair type. 
 
 
-### [Oligo BlackLight Violet Shampoo (8.5 oz)](https://serp.ly/amazon/Violet+Shampoo?utm\_term=oligo-blacklight-violet-shampoo-8-5-oz)
+### [Oligo BlackLight Violet Shampoo (8.5 oz)](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=oligo-blacklight-violet-shampoo-8-5-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=oligo-blacklight-violet-shampoo-8-5-oz"><img alt="oligo-blacklight-anti-yellow-violet-shampoo-8-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oligo-blacklight-anti-yellow-violet-shampoo-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=oligo-blacklight-violet-shampoo-8-5-oz"><img alt="oligo-blacklight-anti-yellow-violet-shampoo-8-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oligo-blacklight-anti-yellow-violet-shampoo-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone with highlighted hair, I've struggled with keeping those highlights bright and vibrant. That's why the Oligo BlackLight Violet Shampoo has been a game-changer for me. Not only does it leave my hair looking cleaner and brighter, but it also contains 100% Vegan ingredients which makes it perfect for those looking for a more sustainable option. 
 
 Despite the sometimes messy packaging, the product itself is definitely worth it. 
 
 
-### [Hoyu Violet Color Shampoo for Bleached Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=hoyu-violet-color-shampoo-for-bleached-hair)
+### [Hoyu Violet Color Shampoo for Bleached Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=hoyu-violet-color-shampoo-for-bleached-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=hoyu-violet-color-shampoo-for-bleached-hair"><img alt="hoyu-color-shampoo-purple-150ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hoyu-color-shampoo-purple-150ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=hoyu-violet-color-shampoo-for-bleached-hair"><img alt="hoyu-color-shampoo-purple-150ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hoyu-color-shampoo-purple-150ml-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hoyu Color Shampoo Purple 150ml from the Coloring Care Series is a professional shampoo designed with amino acid-based and amphoteric cleaning ingredients to help you care for color-treated hair. It's perfect for those bleached and blond hair, as it helps suppress yellowing and adds a beautiful floral scent to your hair. The product offers plenty of foam, allowing you an easy and approachable hair coloring experience. 
 
@@ -145,9 +145,9 @@ This shampoo is a popular choice among hair stylists, as it helps maintain the v
 In conclusion, Hoyu Color Shampoo Purple 150ml is a great product for anyone looking to maintain and enhance their dyed hair's color. It's perfect for addressing the yellowing that sometimes occurs after bleaching, while also providing a light floral scent to your hair. Its popularity among users and its gentle nature on the skin make it a trusted choice for many. 
 
 
-### [John Frieda Violet Crush - Blonde Hair Purple Shampoo (16 oz)](https://serp.ly/amazon/Violet+Shampoo?utm\_term=john-frieda-violet-crush-blonde-hair-purple-shampoo-16-oz)
+### [John Frieda Violet Crush - Blonde Hair Purple Shampoo (16 oz)](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=john-frieda-violet-crush-blonde-hair-purple-shampoo-16-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=john-frieda-violet-crush-blonde-hair-purple-shampoo-16-oz"><img alt="john-frieda-violet-crush-purple-shampoo-for-blonde-hair-16-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/john-frieda-violet-crush-purple-shampoo-for-blonde-hair-16-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=john-frieda-violet-crush-blonde-hair-purple-shampoo-16-oz"><img alt="john-frieda-violet-crush-purple-shampoo-for-blonde-hair-16-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/john-frieda-violet-crush-purple-shampoo-for-blonde-hair-16-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 John Frieda Violet Crush is a unique shampoo designed for those with blonde hair who want to maintain the vibrancy of their color. It's infused with crushed violet and blue pigments, which work together to counteract brassy tones in your hair, helping to keep your blonde locks looking lighter and brighter. 
 
@@ -158,9 +158,9 @@ One of the key features and benefits of this shampoo is its ability to instantly
 However, it should be noted that the shampoo can potentially stain hands, but this is a minor drawback when compared to the overall benefit it provides. Overall, John Frieda Violet Crush can be consider a good option for individuals looking to keep their blonde hair looking fresh and vibrant. 
 
 
-### [Colorproof Signature Blonde Violet Shampoo and Conditioner Kit](https://serp.ly/amazon/Violet+Shampoo?utm\_term=colorproof-signature-blonde-violet-shampoo-and-conditioner-kit)
+### [Colorproof Signature Blonde Violet Shampoo and Conditioner Kit](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=colorproof-signature-blonde-violet-shampoo-and-conditioner-kit)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=colorproof-signature-blonde-violet-shampoo-and-conditioner-kit"><img alt="colorproof-signature-blonde-violet-shampoo-and-conditioner-2-pc-kit-25-3oz-shampoo-25oz-conditioner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colorproof-signature-blonde-violet-shampoo-and-conditioner-2-pc-kit-25-3oz-shampoo-25oz-conditioner-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=colorproof-signature-blonde-violet-shampoo-and-conditioner-kit"><img alt="colorproof-signature-blonde-violet-shampoo-and-conditioner-2-pc-kit-25-3oz-shampoo-25oz-conditioner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colorproof-signature-blonde-violet-shampoo-and-conditioner-2-pc-kit-25-3oz-shampoo-25oz-conditioner-1/h=540,fit=pad,background=black"/></a></div>
 
 This Colorproof Signature Blonde Violet Shampoo and Conditioner 2 PC Kit promises to instantly neutralize brassy and yellow tones while providing gentle cleansing. Enriched with pure violet pigment, these sulfate-free products aim to brighten, maintain, and protect your blonde shade. 
 
@@ -169,27 +169,27 @@ The shampoo and conditioner work together to dramatically increase tensile stren
 With a satisfaction rating of 4.6 out of 5 and a high number of positive reviews, this product seems to be a favorite for those looking to achieve a luminous, glossy blonde look. 
 
 
-### [Joico Blonde Life Violet Shampoo and Conditioner Set for Blondes](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-blonde-life-violet-shampoo-and-conditioner-set-for-blondes)
+### [Joico Blonde Life Violet Shampoo and Conditioner Set for Blondes](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-blonde-life-violet-shampoo-and-conditioner-set-for-blondes)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-blonde-life-violet-shampoo-and-conditioner-set-for-blondes"><img alt="blonde-life-violet-conditioner-and-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blonde-life-violet-conditioner-and-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-blonde-life-violet-shampoo-and-conditioner-set-for-blondes"><img alt="blonde-life-violet-conditioner-and-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blonde-life-violet-conditioner-and-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blonde Life Violet Conditioner and Shampoo offers a solution for those looking to maintain the vibrancy of their blonder hair. With a rich blend of nourishing ingredients like Tamanu and Monoi oils, this duo works to rejuvenate and soften hair, making it a luxurious choice for those with blonde locks. Users love how it effectively neutralizes yellow tones and leaves their hair with a luminous shine. 
 
 However, some users have noted negative experiences, such as increased static and tangling. Overall, this advanced shampoo and conditioner set caters to those seeking a touch of violet for their blonde tresses. 
 
 
-### [Harmony Haircare Violet Brightening Shampoo & Conditioner Duo](https://serp.ly/amazon/Violet+Shampoo?utm\_term=harmony-haircare-violet-brightening-shampoo-conditioner-duo)
+### [Harmony Haircare Violet Brightening Shampoo & Conditioner Duo](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=harmony-haircare-violet-brightening-shampoo-conditioner-duo)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=harmony-haircare-violet-brightening-shampoo-conditioner-duo"><img alt="aquage-violet-brightening-shampoo-conditioner-8-oz-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquage-violet-brightening-shampoo-conditioner-8-oz-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=harmony-haircare-violet-brightening-shampoo-conditioner-duo"><img alt="aquage-violet-brightening-shampoo-conditioner-8-oz-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquage-violet-brightening-shampoo-conditioner-8-oz-set-1/h=540,fit=pad,background=black"/></a></div>
 
 The Aquage Violet Brightening Shampoo & Conditioner Set is an essential hair care duo for those with color-treated hair. These products boast SeaExtend AlgaePlex technology, which works to strengthen your hair while enhancing its shine. The violet-infused formula helps neutralize brassiness and is perfect for those with blonde, platinum, or grey hair. 
 
 This set comes in a convenient 8 oz size, making it an ideal addition to your daily hair care routine. 
 
 
-### [Intense Purple Blonde Violet Shampoo by Sexy Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=intense-purple-blonde-violet-shampoo-by-sexy-hair)
+### [Intense Purple Blonde Violet Shampoo by Sexy Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=intense-purple-blonde-violet-shampoo-by-sexy-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=intense-purple-blonde-violet-shampoo-by-sexy-hair"><img alt="healthy-bright-blonde-violet-shampoo-33-8-oz-by-sexy-hair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/healthy-bright-blonde-violet-shampoo-33-8-oz-by-sexy-hair-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=intense-purple-blonde-violet-shampoo-by-sexy-hair"><img alt="healthy-bright-blonde-violet-shampoo-33-8-oz-by-sexy-hair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/healthy-bright-blonde-violet-shampoo-33-8-oz-by-sexy-hair-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to brassiness and yellow tones with the Healthy Bright Blonde Violet Shampoo by Sexy Hair! This gentle, hydrating shampoo is perfect for color-treated blonde hair, thanks to its combination of chamomile, honey, and quinoa. With the ability to reduce breakage by up to 70% and moisturize your locks, this violet shampoo is also perfect for improving hair manageability by up to 50%. 
 
@@ -198,18 +198,18 @@ What sets it apart from other purple shampoos? This one is free of harsh sulfate
 But don't just take our word for it – with a 4.8 rating and 7.0 reviews, users are raving about the shampoo's results. From improved color vibrancy to an easier-to-manage mane, the Healthy Bright Blonde Violet Shampoo is a must-have for any blonde-haired beauty. Just be aware that due to seasonal branding updates and potential ingredient changes, packaging and ingredients may vary slightly from time to time. 
 
 
-### [Colorproof SignatureBlonde Violet Shampoo & Conditioner Duo](https://serp.ly/amazon/Violet+Shampoo?utm\_term=colorproof-signatureblonde-violet-shampoo-conditioner-duo)
+### [Colorproof SignatureBlonde Violet Shampoo & Conditioner Duo](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=colorproof-signatureblonde-violet-shampoo-conditioner-duo)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=colorproof-signatureblonde-violet-shampoo-conditioner-duo"><img alt="colorproof-signatureblonde-violet-shampoo-10-1-oz-conditioner-8-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colorproof-signatureblonde-violet-shampoo-10-1-oz-conditioner-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=colorproof-signatureblonde-violet-shampoo-conditioner-duo"><img alt="colorproof-signatureblonde-violet-shampoo-10-1-oz-conditioner-8-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colorproof-signatureblonde-violet-shampoo-10-1-oz-conditioner-8-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Colorproof SignatureBlonde Violet Shampoo and Conditioner create a vibrant, brightening experience for blonde, bleached, and silver color-treated hair. This sulfate-free, gluten-free, salt-free formula comes with a rich, 10.1 oz shampoo and an 8.5 oz conditioner, both vegan-friendly. The Violet Shampoo is perfect for customizing your toning experience, while the soft Conditioner works wonders to keep your hair from feeling dry or dull. 
 
 Its ease of use and long-lasting results make it an ideal choice for those seeking a perfect blonde hue. Although it comes with a higher price point, customers rave about the excellent quality, leaving many satisfied with their decision to use Colorproof SignatureBlonde. 
 
 
-### [Amika Mini Bust Your Brass Purple Shampoo & Conditioner Set: Violet Shampoo for Optimal Brunette Care](https://serp.ly/amazon/Violet+Shampoo?utm\_term=amika-mini-bust-your-brass-purple-shampoo-conditioner-set-violet-shampoo-for-optimal-brunette-care)
+### [Amika Mini Bust Your Brass Purple Shampoo & Conditioner Set: Violet Shampoo for Optimal Brunette Care](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=amika-mini-bust-your-brass-purple-shampoo-conditioner-set-violet-shampoo-for-optimal-brunette-care)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=amika-mini-bust-your-brass-purple-shampoo-conditioner-set-violet-shampoo-for-optimal-brunette-care"><img alt="amika-mini-bust-your-brass-purple-shampoo-conditioner-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amika-mini-bust-your-brass-purple-shampoo-conditioner-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=amika-mini-bust-your-brass-purple-shampoo-conditioner-set-violet-shampoo-for-optimal-brunette-care"><img alt="amika-mini-bust-your-brass-purple-shampoo-conditioner-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amika-mini-bust-your-brass-purple-shampoo-conditioner-set-1/h=540,fit=pad,background=black"/></a></div>
 
 As a blonde with naturally bright hair, I was excited to try out the Amika Mini Bust Your Brass Purple Shampoo & Conditioner Set. The thought of having a product that could potentially enhance my hair's natural brightness was intriguing. 
 
@@ -222,9 +222,9 @@ However, one downside I noticed is that the purple color of the shampoo and cond
 Overall, I'm quite pleased with the Amika Mini Bust Your Brass Purple Shampoo & Conditioner Set. It provided noticeable results in terms of brightening and repairing my hair. As a blonde, I feel that this product has been a game-changer in maintaining my hair's vibrant color. 
 
 
-### [Violet Shampoo for Colored and Blond Hair by L'Oréal Professionnel Chroma Crème](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-shampoo-for-colored-and-blond-hair-by-loréal-professionnel-chroma-crème)
+### [Violet Shampoo for Colored and Blond Hair by L'Oréal Professionnel Chroma Crème](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-shampoo-for-colored-and-blond-hair-by-loréal-professionnel-chroma-crème)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-shampoo-for-colored-and-blond-hair-by-loréal-professionnel-chroma-crème"><img alt="lor-al-professionnel-chroma-cr-me-purple-shampoo-500-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lor-al-professionnel-chroma-cr-me-purple-shampoo-500-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-shampoo-for-colored-and-blond-hair-by-loréal-professionnel-chroma-crème"><img alt="lor-al-professionnel-chroma-cr-me-purple-shampoo-500-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lor-al-professionnel-chroma-cr-me-purple-shampoo-500-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the L'Oréal Professionnel Chroma Crème Purple Shampoo, your go-to solution for achieving that enviable, vibrant color for your highlighted hair. Made with a unique pigment technology that leaves your hair looking fresh and vibrant, this 500 ml shampoo works wonders on both natural and highlighted blonde hair. It not only neutralizes unwanted yellow tones but also leaves your hair nourished and soft. The intense cleansing action not only removes impurities but also brightens your hair, making it an excellent choice for those looking to boost their hair's shine. 
 
@@ -233,9 +233,9 @@ Applying this wonderful shampoo is simple - just lather and leave it on for a fe
 Overall, the L'Oréal Professionnel Chroma Crème Purple Shampoo is a fantastic option for anyone looking to enhance their hair's color and appearance. With its unique color technology, nourishing properties, and long-lasting results, it is a must-try for those who want to maintain a beautiful, vibrant, and radiant head of hair. 
 
 
-### [Violet Shampoo and Conditioner Duo for Color-Preserving Hair Care](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-shampoo-and-conditioner-duo-for-color-preserving-hair-care)
+### [Violet Shampoo and Conditioner Duo for Color-Preserving Hair Care](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-shampoo-and-conditioner-duo-for-color-preserving-hair-care)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-shampoo-and-conditioner-duo-for-color-preserving-hair-care"><img alt="loma-hair-care-violet-shampoo-violet-conditioner-duo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loma-hair-care-violet-shampoo-violet-conditioner-duo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-shampoo-and-conditioner-duo-for-color-preserving-hair-care"><img alt="loma-hair-care-violet-shampoo-violet-conditioner-duo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loma-hair-care-violet-shampoo-violet-conditioner-duo-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first laid my hands on LOMA's Violet Collection Duo, I was intrigued by its promise of maintaining my hair color. As someone with silver hair, I've always been on the lookout for a product that can help keep those beautiful tones bright and vibrant. 
 
@@ -256,9 +256,9 @@ Despite this minor inconvenience, I would highly recommend LOMA's Violet Collect
 So, if you're looking for a product that can keep your hair looking vibrant and healthy, this shampoo and conditioner duo might just be what you've been searching for. Give it a try, and you won't be disappointed! 
 
 
-### [Purple Radiance: Intense Colorwash Shampoo for Vibrant Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=purple-radiance-intense-colorwash-shampoo-for-vibrant-hair)
+### [Purple Radiance: Intense Colorwash Shampoo for Vibrant Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=purple-radiance-intense-colorwash-shampoo-for-vibrant-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=purple-radiance-intense-colorwash-shampoo-for-vibrant-hair"><img alt="celeb-luxury-viral-colorwash-8-25-oz-extreme-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-colorwash-8-25-oz-extreme-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=purple-radiance-intense-colorwash-shampoo-for-vibrant-hair"><img alt="celeb-luxury-viral-colorwash-8-25-oz-extreme-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-colorwash-8-25-oz-extreme-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 The Celeb Luxury Extreme Purple Colorwash is a vibrant violet shampoo that offers a vivid hue for those looking to turn heads. Suitable for very light blonde and white hair, the product provides gentle cleansing while offering protection against fading. Its mild formula, free from parabens, sulfates, ammonia, PPD, and peroxide, makes it a reliable choice for scalp and hair health. 
 
@@ -267,9 +267,9 @@ To achieve the best results, pre-treat with the Luxury Blonditioner and apply th
 With its easy-to-use application and striking color depositing capabilities, the Celeb Luxury Extreme Purple Colorwash caters to various hair types and preferences. However, it's essential to note that some users may experience a greasy or rubbery texture, which might require adjustments in usage or product choice. 
 
 
-### [TIGI Violet Shampoo: Illuminating & Tonalizing for Blonde, Gray, and White Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=tigi-violet-shampoo-illuminating-tonalizing-for-blonde-gray-and-white-hair)
+### [TIGI Violet Shampoo: Illuminating & Tonalizing for Blonde, Gray, and White Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=tigi-violet-shampoo-illuminating-tonalizing-for-blonde-gray-and-white-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=tigi-violet-shampoo-illuminating-tonalizing-for-blonde-gray-and-white-hair"><img alt="tigi-catwalk-fashionista-violet-shampoo-750-ml-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tigi-catwalk-fashionista-violet-shampoo-750-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=tigi-violet-shampoo-illuminating-tonalizing-for-blonde-gray-and-white-hair"><img alt="tigi-catwalk-fashionista-violet-shampoo-750-ml-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tigi-catwalk-fashionista-violet-shampoo-750-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the TIGI Catwalk Fashionista Violet Shampoo and I must say, it's been a game-changer in my daily hair care routine. I've been struggling with brassy tones and my highlights not looking as vibrant as they used to. This shampoo, however, has been amazing in reviving my hair's color and making it look much more luminous. The fact that it's sulfate-free makes a difference and it's great to see that it's not stripping my hair of its natural oils. 
 
@@ -280,9 +280,9 @@ However, there's one thing I'd like to mention as a slight drawback. While it's 
 Overall, the TIGI Catwalk Fashionista Violet Shampoo has made a significant difference in my hair care routine, and I can't help but recommend it to anyone who's struggling with brassy tones and dull-looking highlights. The benefits definitely outweigh the minor drawbacks, and I'll definitely continue to use it in the future. 
 
 
-### [Redken Violet Pigment Shampoo: Color Extend Blondage for Vibrant Blonde Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=redken-violet-pigment-shampoo-color-extend-blondage-for-vibrant-blonde-hair)
+### [Redken Violet Pigment Shampoo: Color Extend Blondage for Vibrant Blonde Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=redken-violet-pigment-shampoo-color-extend-blondage-for-vibrant-blonde-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=redken-violet-pigment-shampoo-color-extend-blondage-for-vibrant-blonde-hair"><img alt="redken-shampoo-color-extend-bondage-violet-pigment-10-1-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/redken-shampoo-color-extend-bondage-violet-pigment-10-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=redken-violet-pigment-shampoo-color-extend-blondage-for-vibrant-blonde-hair"><img alt="redken-shampoo-color-extend-bondage-violet-pigment-10-1-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/redken-shampoo-color-extend-bondage-violet-pigment-10-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As a blonde who's always struggled with brassy tones, I was excited to try the Redken Color Extend Blondage Violet Pigment Shampoo. The salon-grade formula and purple pigments sounded promising for neutralizing unwanted tones and leaving my hair looking bright and refreshed. 
 
@@ -295,18 +295,18 @@ In terms of cons, I do wish the color wasn't as strong when left on the hair for
 Overall, the Redken Color Extend Blondage Violet Pigment Shampoo is a fantastic product for blonde hair. It effectively neutralizes brassy tones, adds shine, and strengthens hair. If you're looking for a salon-grade shampoo that delivers on its promises, this one is definitely worth trying. 
 
 
-### [Anti-Brass Violet Shampoo and Conditioner for Grey Hair with Biotin](https://serp.ly/amazon/Violet+Shampoo?utm\_term=anti-brass-violet-shampoo-and-conditioner-for-grey-hair-with-biotin)
+### [Anti-Brass Violet Shampoo and Conditioner for Grey Hair with Biotin](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=anti-brass-violet-shampoo-and-conditioner-for-grey-hair-with-biotin)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=anti-brass-violet-shampoo-and-conditioner-for-grey-hair-with-biotin"><img alt="hair-biology-purple-shampoo-and-conditioner-set-for-grey-hair-with-biotin-safe-for-color-treated-hai-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hair-biology-purple-shampoo-and-conditioner-set-for-grey-hair-with-biotin-safe-for-color-treated-hai-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=anti-brass-violet-shampoo-and-conditioner-for-grey-hair-with-biotin"><img alt="hair-biology-purple-shampoo-and-conditioner-set-for-grey-hair-with-biotin-safe-for-color-treated-hai-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hair-biology-purple-shampoo-and-conditioner-set-for-grey-hair-with-biotin-safe-for-color-treated-hai-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to drab, dull hair as you step into your golden years. The Hair Biology Silver Shampoo and Conditioner Set is specially designed to keep your hair luminous and radiant, without weighing it down. 
 
 Enriched with biotin and free of parabens, these products gently nourish and moisturize your hair, allowing the true silver tones to shine through. The pleasant violet scent is an added bonus, creating a truly luxurious experience for your hair. Experience a newfound love for your hair with the complete line of age-inspiring hair care products from Hair Biology. 
 
 
-### [Aluram Violet Color Enhancing Shampoo, 33.8 oz](https://serp.ly/amazon/Violet+Shampoo?utm\_term=aluram-violet-color-enhancing-shampoo-33-8-oz)
+### [Aluram Violet Color Enhancing Shampoo, 33.8 oz](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=aluram-violet-color-enhancing-shampoo-33-8-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=aluram-violet-color-enhancing-shampoo-33-8-oz"><img alt="aluram-purple-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aluram-purple-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=aluram-violet-color-enhancing-shampoo-33-8-oz"><img alt="aluram-purple-shampoo-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aluram-purple-shampoo-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Aluram Purple Shampoo a try in my daily hair care routine, and I must say, it's been a game-changer for me. As someone who has struggled with finding the right shampoo for my highlighted hair, I was pleasantly surprised by the results of this product. 
 
@@ -321,9 +321,9 @@ Despite these minor issues, the Aluram Purple Shampoo definitely proved to be a 
 In conclusion, the Aluram Purple Shampoo is a versatile, effective product that has helped me achieve the blonde glow I've always desired. While it had some minor shortcomings, I believe the pros outweigh the cons. It's definitely a shampoo worth considering if you're a blonde beauty like me. 
 
 
-### [Violet Toning Purple Shampoo by Lange Hair for Color](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-toning-purple-shampoo-by-lange-hair-for-color)
+### [Violet Toning Purple Shampoo by Lange Hair for Color](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-toning-purple-shampoo-by-lange-hair-for-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-toning-purple-shampoo-by-lange-hair-for-color"><img alt="lange-hair-violet-purple-toning-shampoo-color-purple-size-8-45-oz-js78133s-closet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lange-hair-violet-purple-toning-shampoo-color-purple-size-8-45-oz-js78133s-closet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-toning-purple-shampoo-by-lange-hair-for-color"><img alt="lange-hair-violet-purple-toning-shampoo-color-purple-size-8-45-oz-js78133s-closet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lange-hair-violet-purple-toning-shampoo-color-purple-size-8-45-oz-js78133s-closet-1/h=540,fit=pad,background=black"/></a></div>
 
 Using the Lange Hair Violet Purple Toning Shampoo was an interesting experience. I had heard great things about it, and with a 4.7 rating on the website, I was excited to try it. However, it came in a smaller bottle than I expected, which made the price feel a bit steep. 
 
@@ -332,9 +332,9 @@ The shampoo is packed with vitamins and rich oils that help with shiny and soft 
 However, I did experience some drawbacks. The shampoo was highly pigmented, and I had to use gloves when applying it to avoid staining my hands. I also noticed that it left a slight lather, which made me feel like I hadn't used enough. Despite its shortcomings, the Lange Hair Violet Purple Toning Shampoo did make my hair look brighter and more vibrant, and for that, I'll continue to give it a try. 
 
 
-### [Kristin Ess Violet Shampoo for Bleached Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=kristin-ess-violet-shampoo-for-bleached-hair)
+### [Kristin Ess Violet Shampoo for Bleached Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=kristin-ess-violet-shampoo-for-bleached-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=kristin-ess-violet-shampoo-for-bleached-hair"><img alt="kristin-ess-hair-the-one-purple-shampoo-33-8-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kristin-ess-hair-the-one-purple-shampoo-33-8-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=kristin-ess-violet-shampoo-for-bleached-hair"><img alt="kristin-ess-hair-the-one-purple-shampoo-33-8-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kristin-ess-hair-the-one-purple-shampoo-33-8-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Kristin Ess The One Purple Shampoo a try, and I must say, it's made quite the difference in my hair. As someone who struggles with brassiness and unwanted warm tones, I found this product to be a game-changer. The ultra-violet pigment in the shampoo is the star of the show, providing a gentle yet effective toning experience. I particularly appreciated that it's cruelty-free and formulated without parabens, phthalates, sulfates, and silicones. 
 
@@ -343,9 +343,9 @@ In using the shampoo, I found that it worked well in conjunction with the Kristi
 Overall, I'd highly recommend the Kristin Ess The One Purple Shampoo to anyone looking to banish brassiness, restore shine, and enhance their hair's overall health. And don't worry – as long as you follow the suggested usage guidelines, your hair color should remain intact, although some may experience a slight shift towards ashiness. Give it a try! 
 
 
-### [Violet Hour Purple Shampoo for Vibrant Hair Tones](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-hour-purple-shampoo-for-vibrant-hair-tones)
+### [Violet Hour Purple Shampoo for Vibrant Hair Tones](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-hour-purple-shampoo-for-vibrant-hair-tones)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-hour-purple-shampoo-for-vibrant-hair-tones"><img alt="dae-violet-hour-purple-shampoo-10-oz-300-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dae-violet-hour-purple-shampoo-10-oz-300-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-hour-purple-shampoo-for-vibrant-hair-tones"><img alt="dae-violet-hour-purple-shampoo-10-oz-300-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dae-violet-hour-purple-shampoo-10-oz-300-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Dae Violet Hour Purple Shampoo, and it's been a game changer for my blonde hair. When I first opened the bottle, I was impressed with its dark purple color that gave it an almost magical vibe. The shampoo itself has a delightful lavender scent, making my shower time feel more relaxing. 
 
@@ -358,9 +358,9 @@ However, there were a couple of downsides to this product. Firstly, the packagin
 Overall, I would highly recommend Dae Violet Hour Purple Shampoo to anyone looking for a high-quality, natural, and effective purple shampoo. It's a bit on the expensive side, but the results are definitely worth it. Just remember to be gentle when washing and drying your hair to avoid any color fading or damage. 
 
 
-### [Tresemme Purple Blonde Shampoo - Color Enhancing Paraben-Free Formula](https://serp.ly/amazon/Violet+Shampoo?utm\_term=tresemme-purple-blonde-shampoo-color-enhancing-paraben-free-formula)
+### [Tresemme Purple Blonde Shampoo - Color Enhancing Paraben-Free Formula](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=tresemme-purple-blonde-shampoo-color-enhancing-paraben-free-formula)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=tresemme-purple-blonde-shampoo-color-enhancing-paraben-free-formula"><img alt="tresemme-purple-blonde-shampoo-28-0-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresemme-purple-blonde-shampoo-28-0-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=tresemme-purple-blonde-shampoo-color-enhancing-paraben-free-formula"><img alt="tresemme-purple-blonde-shampoo-28-0-fl-oz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/tresemme-purple-blonde-shampoo-28-0-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're searching for a high-quality purple shampoo that not only effectively eliminates brassy tones but is also kind to your hair, you might want to give the Tresemme Pro Style Tech Purple Blonde Shampoo a try. This shampoo is formulated with an ultra-violet neutralizer to help combat brassiness and enhance the vibrancy of your blonde and silver locks. 
 
@@ -373,18 +373,18 @@ What's more, the formula features a luxury fragrance recognized by PETA for adhe
 Overall, the Tresemme Pro Style Tech Purple Blonde Shampoo offers a pleasant scent, adds shine, and doesn't dry your hair out. It cleanses well, moisturizes well, adds volume, controls frizz, improves curl texture, and doesn't weigh your hair down. With a user-friendly dispenser style, "squeeze, " and a hair product form of "liquids, " this shampoo is an excellent choice for those looking to enhance their blonde or silver locks with a professional-grade purple shampoo. 
 
 
-### [Anti-Brassiness Violet Shampoo with Lotus Scent for Gray and Color-Treated Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=anti-brassiness-violet-shampoo-with-lotus-scent-for-gray-and-color-treated-hair)
+### [Anti-Brassiness Violet Shampoo with Lotus Scent for Gray and Color-Treated Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=anti-brassiness-violet-shampoo-with-lotus-scent-for-gray-and-color-treated-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=anti-brassiness-violet-shampoo-with-lotus-scent-for-gray-and-color-treated-hair"><img alt="pantene-silver-expressions-purple-shampoo-and-hair-toner-pro-v-for-grey-and-color-treated-hair-lotus-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pantene-silver-expressions-purple-shampoo-and-hair-toner-pro-v-for-grey-and-color-treated-hair-lotus-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=anti-brassiness-violet-shampoo-with-lotus-scent-for-gray-and-color-treated-hair"><img alt="pantene-silver-expressions-purple-shampoo-and-hair-toner-pro-v-for-grey-and-color-treated-hair-lotus-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pantene-silver-expressions-purple-shampoo-and-hair-toner-pro-v-for-grey-and-color-treated-hair-lotus-1/h=540,fit=pad,background=black"/></a></div>
 
 Say goodbye to those brass tones and welcome back your natural glow with the Pantene Silver Expressions Purple Shampoo and Hair Toner Pro-V. Designed specifically for gray and color-treated hair, this purple-pigmented treat works wonders, leaving your locks looking healthy and vibrant. It's gentle enough for daily use, helping to restore your hair to its original luster. The addition of a convenient pump dispenser ensures you get the perfect amount every time, making your hair care routine as simple as it is effective. 
 
 Besides the fantastic performance, the Pantene Silver Expressions Purple Shampoo and Hair Toner Pro-V also comes with a luxurious scent of lotus flowers, promising to keep your hair fresh all day long. Its high rating and positive reviews from satisfied customers speak for its outstanding quality and effectiveness. Say 'hello' to great hair days with this superb purple shampoo. 
 
 
-### [Effortless Purple Violet Shampoo for Brilliant Blonde Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=effortless-purple-violet-shampoo-for-brilliant-blonde-hair)
+### [Effortless Purple Violet Shampoo for Brilliant Blonde Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=effortless-purple-violet-shampoo-for-brilliant-blonde-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=effortless-purple-violet-shampoo-for-brilliant-blonde-hair"><img alt="purple-shampoo-for-blonde-hair-blonde-shampoo-eliminates-brassy-yellow-tones-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-shampoo-for-blonde-hair-blonde-shampoo-eliminates-brassy-yellow-tones-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=effortless-purple-violet-shampoo-for-brilliant-blonde-hair"><img alt="purple-shampoo-for-blonde-hair-blonde-shampoo-eliminates-brassy-yellow-tones-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-shampoo-for-blonde-hair-blonde-shampoo-eliminates-brassy-yellow-tones-1/h=540,fit=pad,background=black"/></a></div>
 
 Purple shampoo is a lifesaver for blonde hair, as it tackles brassy yellow tones with ease. Packaged in a striking bottle, BOLD UNIQ Shampoo for blonde hair is a versatile product designed for all types of color-treated blonde, bleached, highlighted, and natural hair. Whether your hair is grey or silvery, this vibrant violet shampoo will give it a boost of cool tones. 
 
@@ -393,18 +393,18 @@ Some users found the shampoo a bit drying, requiring a moisturizing conditioner 
 When using purple shampoo, remember to follow the instructions for the perfect application, including leave-in times. Although it may feel different from traditional shampoos, the results are well worth it - a brilliant, salon-worthy shine that keeps your hair color vibrant and eye-catching. 
 
 
-### [Aussie Beat the Brass Purple Shampoo for Color-Treated Hair - 8 oz](https://serp.ly/amazon/Violet+Shampoo?utm\_term=aussie-beat-the-brass-purple-shampoo-for-color-treated-hair-8-oz)
+### [Aussie Beat the Brass Purple Shampoo for Color-Treated Hair - 8 oz](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=aussie-beat-the-brass-purple-shampoo-for-color-treated-hair-8-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=aussie-beat-the-brass-purple-shampoo-for-color-treated-hair-8-oz"><img alt="aussie-beat-the-brass-purple-shampoo-8-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aussie-beat-the-brass-purple-shampoo-8-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=aussie-beat-the-brass-purple-shampoo-for-color-treated-hair-8-oz"><img alt="aussie-beat-the-brass-purple-shampoo-8-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aussie-beat-the-brass-purple-shampoo-8-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Aussie Purple Beat the Brass Paraben-Free Purple Shampoo is a highly effective solution for those looking to brighten their colored or natural blonde hair. This shampoo targets and cancels out unwanted yellow and orange tones, leaving your light locks looking radiant and ashy. Made from Australian ingredients such as passionfruit and jasmine flower, this product is not only paraben-free but also certified PETA cruelty-free, ensuring a gentle and ethical experience. 
 
 The citrus, green tea, and white floral fragrance is both refreshing and pleasing to the senses, while its easy-to-use formula allows for convenient daily use or every other day, depending on desired results. 
 
 
-### [Kristin Ess Purple Violet Shampoo and Conditioner Set for All Hair Colors](https://serp.ly/amazon/Violet+Shampoo?utm\_term=kristin-ess-purple-violet-shampoo-and-conditioner-set-for-all-hair-colors)
+### [Kristin Ess Purple Violet Shampoo and Conditioner Set for All Hair Colors](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=kristin-ess-purple-violet-shampoo-and-conditioner-set-for-all-hair-colors)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=kristin-ess-purple-violet-shampoo-and-conditioner-set-for-all-hair-colors"><img alt="kristin-ess-hair-purple-shampoo-and-conditioner-set-for-blonde-brunette-silver-gray-hair-anti-brass--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kristin-ess-hair-purple-shampoo-and-conditioner-set-for-blonde-brunette-silver-gray-hair-anti-brass--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=kristin-ess-purple-violet-shampoo-and-conditioner-set-for-all-hair-colors"><img alt="kristin-ess-hair-purple-shampoo-and-conditioner-set-for-blonde-brunette-silver-gray-hair-anti-brass--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kristin-ess-hair-purple-shampoo-and-conditioner-set-for-blonde-brunette-silver-gray-hair-anti-brass--1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who has struggled with brassy hair tones, I was ecstatic to give the Kristin Ess Hair Purple Shampoo and Conditioner Set for Blonde, Brunette, Silver + Gray Hair a try. The first thing that caught my eye was the vibrant purple color, which I found to be a refreshing change from my previous shampoo. Upon using it, I immediately noticed how my hair felt lighter and less weighed down—a welcome feeling after being used to heavy, commercial shampoos. 
 
@@ -413,9 +413,9 @@ One of the highlights for me was the use of keratin and coconut oil, which not o
 However, it should be noted that I had to adjust the amount of product I used initially, as I felt like too much of the shampoo was too harsh on my scalp. It's always important to use the appropriate amount of product to achieve the desired results without causing irritation. Other than that small issue, I was extremely satisfied with the Kristin Ess Hair Purple Shampoo and Conditioner Set. It not only met my expectations but exceeded them, leaving me with enviable, luscious locks. 
 
 
-### [L'Oreal Paris Everpure Sulfate-Free Brass Toning Purple Shampoo and Conditioner](https://serp.ly/amazon/Violet+Shampoo?utm\_term=loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner)
+### [L'Oreal Paris Everpure Sulfate-Free Brass Toning Purple Shampoo and Conditioner](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner"><img alt="loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner"><img alt="loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/loreal-paris-everpure-sulfate-free-brass-toning-purple-shampoo-and-conditioner-1/h=540,fit=pad,background=black"/></a></div>
 
 The L'Oreal Paris Ever Pure Purple shampoo and conditioner is a game-changer for those dealing with brassiness in their hair. Infused with hibiscus and purple dye, the formula effectively neutralizes brassy yellow to orange tones while leaving hair deeply moisturized. This sulfate-free and paraben-free duo is perfect for blonde, bleached, highlighted brunettes, and silver hair. 
 
@@ -424,9 +424,9 @@ Easing the process of maintaining luscious hair, this shampoo and conditioner ha
 However, the only downside of this product might be its detangling abilities. Some users have reported it doesn't make their hair tangles-free as effectively as other products. Overall, the L'Oreal Paris Ever Pure Purple shampoo and conditioner are a worthwhile investment for those seeking to revive and maintain the vibrancy of their colored hair. 
 
 
-### [Olaplex No.4P Toning Shampoo: Blonde Enhancer for Repair & Brightness - Cruelty-Free & Vegan-Friendly](https://serp.ly/amazon/Violet+Shampoo?utm\_term=olaplex-no-4p-toning-shampoo-blonde-enhancer-for-repair-brightness-cruelty-free-vegan-friendly)
+### [Olaplex No.4P Toning Shampoo: Blonde Enhancer for Repair & Brightness - Cruelty-Free & Vegan-Friendly](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=olaplex-no-4p-toning-shampoo-blonde-enhancer-for-repair-brightness-cruelty-free-vegan-friendly)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=olaplex-no-4p-toning-shampoo-blonde-enhancer-for-repair-brightness-cruelty-free-vegan-friendly"><img alt="olaplex-no-4p-blonde-enhancer-toning-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/olaplex-no-4p-blonde-enhancer-toning-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=olaplex-no-4p-toning-shampoo-blonde-enhancer-for-repair-brightness-cruelty-free-vegan-friendly"><img alt="olaplex-no-4p-blonde-enhancer-toning-shampoo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/olaplex-no-4p-blonde-enhancer-toning-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Olaplex No 4P Blonde Enhancer Toning Shampoo, a game-changer for anyone with blonde, lightened, or grey hair. This innovative shampoo is designed to repair, cleanse, and tone your locks with its patented, special action. One of the standout features of this shampoo is its ability to deposit just the right amount of color to neutralize and remove any brassy or warm hues from your hair between salon visits, giving you stunning results in just 5 minutes. 
 
@@ -437,9 +437,9 @@ If you're looking for a shampoo that doesn't dry your hair out, adds shine, and 
 The bottom line? If you want a product that improves curl texture and delivers impressive results, give this shampoo a try. Your blonde or gray hair will thank you! 
 
 
-### [Violet Toning Blonde Shampoo for Color-Treated Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-toning-blonde-shampoo-for-color-treated-hair)
+### [Violet Toning Blonde Shampoo for Color-Treated Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-toning-blonde-shampoo-for-color-treated-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-toning-blonde-shampoo-for-color-treated-hair"><img alt="fudge-clean-blonde-violet-toning-shampoo-250-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fudge-clean-blonde-violet-toning-shampoo-250-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-toning-blonde-shampoo-for-color-treated-hair"><img alt="fudge-clean-blonde-violet-toning-shampoo-250-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fudge-clean-blonde-violet-toning-shampoo-250-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Fudge Clean Blonde Violet Toning Shampoo in my effort to combat yellow tones in my blonde hair. Let me tell you, I was amazed by the results! This shampoo worked wonders, neutralizing my brassy locks and leaving my hair smooth, soft, and looking fresh out of the salon. 
 
@@ -448,9 +448,9 @@ I also appreciated the long-lasting fragrance that made my hair smell delightful
 The only downside was the mess it left in my shower, but considering the incredible benefits it provided, it was totally worth it! 
 
 
-### [Botanic Hearth Purple Enhancing Shampoo & Conditioner Set for Blonde, Silver, and Gray Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=botanic-hearth-purple-enhancing-shampoo-conditioner-set-for-blonde-silver-and-gray-hair)
+### [Botanic Hearth Purple Enhancing Shampoo & Conditioner Set for Blonde, Silver, and Gray Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=botanic-hearth-purple-enhancing-shampoo-conditioner-set-for-blonde-silver-and-gray-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=botanic-hearth-purple-enhancing-shampoo-conditioner-set-for-blonde-silver-and-gray-hair"><img alt="botanic-hearth-purple-shampoo-and-conditioner-set-for-all-shades-of-blonde-silver-and-gray-hair-enha-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/botanic-hearth-purple-shampoo-and-conditioner-set-for-all-shades-of-blonde-silver-and-gray-hair-enha-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=botanic-hearth-purple-enhancing-shampoo-conditioner-set-for-blonde-silver-and-gray-hair"><img alt="botanic-hearth-purple-shampoo-and-conditioner-set-for-all-shades-of-blonde-silver-and-gray-hair-enha-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/botanic-hearth-purple-shampoo-and-conditioner-set-for-all-shades-of-blonde-silver-and-gray-hair-enha-1/h=540,fit=pad,background=black"/></a></div>
 
 During a recent haircare adventure, I found myself reaching for the Botanic Hearth Purple Shampoo and Conditioner Set for those gorgeous blonde highlights. The packaging exuded a chic and modern vibe, with the bold title and simple yet elegant design. 
 
@@ -461,9 +461,9 @@ As I lathered up the shampoo, I noticed that the color seemed to hold onto the p
 Although it might not have been perfectly formulated (as a few reviewers pointed out), the Botanic Hearth Purple Shampoo and Conditioner Set still offered a nice solution for maintaining those radiant highlights. It managed to moisturize my hair without weighing it down, and the pleasant scent was an added bonus during my self-care routine. 
 
 
-### [Violet Purple Shampoo for Blonde Hair by The Beachwaver Co.](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-purple-shampoo-for-blonde-hair-by-the-beachwaver-co)
+### [Violet Purple Shampoo for Blonde Hair by The Beachwaver Co.](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-purple-shampoo-for-blonde-hair-by-the-beachwaver-co)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-purple-shampoo-for-blonde-hair-by-the-beachwaver-co"><img alt="the-beachwaver-co-brb-blonde-purple-shampoo-6-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-beachwaver-co-brb-blonde-purple-shampoo-6-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-purple-shampoo-for-blonde-hair-by-the-beachwaver-co"><img alt="the-beachwaver-co-brb-blonde-purple-shampoo-6-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-beachwaver-co-brb-blonde-purple-shampoo-6-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out The Beachwaver Co. 's BRB Blonde Purple Shampoo, and I was pleasantly surprised! As someone who has bleached and colored hair, it's always a challenge to find the right purple shampoo that actually makes a difference. 
 
@@ -476,9 +476,9 @@ The fragrance of the shampoo is also something to note. It's a fresh, fruity ble
 Overall, I'm really impressed with The Beachwaver Co. 's BRB Blonde Purple Shampoo. It's a great product for those of us with bleached and colored hair who want to maintain a bright, blonde hue. I would highly recommend it to anyone looking for an effective purple shampoo. 
 
 
-### [Joico Violet Shampoo for Blondes (10.1 oz)](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-violet-shampoo-for-blondes-10-1-oz)
+### [Joico Violet Shampoo for Blondes (10.1 oz)](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-violet-shampoo-for-blondes-10-1-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-violet-shampoo-for-blondes-10-1-oz"><img alt="joico-10-1-oz-blonde-life-violet-shampoo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-10-1-oz-blonde-life-violet-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-violet-shampoo-for-blondes-10-1-oz"><img alt="joico-10-1-oz-blonde-life-violet-shampoo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-10-1-oz-blonde-life-violet-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Joico Blonde Life Violet Shampoo for a few weeks now, and I must say, it has been quite the experience. As someone with blonde hair, I know all too well the struggle of maintaining vibrant, brass-free locks. This shampoo promises to deliver just that, and I'm happy to report that it does not disappoint. 
 
@@ -491,9 +491,9 @@ Now, for the cons. With a price tag of $10, it's not the cheapest shampoo on the
 Overall, the Joico Blonde Life Violet Shampoo is a solid choice for those looking to maintain and enhance their blonde hair. While it's a bit pricier than some other options, the results are worth it. Just be mindful of the sulfate content if you're sensitive to it. 
 
 
-### [Joico Blue Shampoo for Vibrant Blonde/Gray Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-blue-shampoo-for-vibrant-blonde-gray-hair)
+### [Joico Blue Shampoo for Vibrant Blonde/Gray Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-blue-shampoo-for-vibrant-blonde-gray-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-blue-shampoo-for-vibrant-blonde-gray-hair"><img alt="joico-10-1-oz-color-balance-purple-shampoo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-10-1-oz-color-balance-purple-shampoo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-blue-shampoo-for-vibrant-blonde-gray-hair"><img alt="joico-10-1-oz-color-balance-purple-shampoo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-10-1-oz-color-balance-purple-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
 The Joico Color Balance Purple Shampoo is a game-changer for anyone with blonde or gray hair, as it effectively neutralizes yellow tones while strengthening and protecting your locks. This vibrant shampoo not only preserves the cool hues of platinum blondes and silver foxes, but also acts as a robust shield against damage, keeping your hair both vibrant and healthy. 
 
@@ -506,9 +506,9 @@ While it's ideal for blondes (especially platinum) and gray/silver hair, the Col
 Don't let your hair color suffer – give it the boost it needs with the Joico Color Balance Purple Shampoo. The benefits are clear, and the satisfaction of users speaks for itself. Say goodbye to brassiness, and welcome a new era of vibrant, healthy hair with this top-rated shampoo. 
 
 
-### [Kerastase Blond Absolu Ultra-Violet Violet Shampoo for Blond or Discolored Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=kerastase-blond-absolu-ultra-violet-violet-shampoo-for-blond-or-discolored-hair)
+### [Kerastase Blond Absolu Ultra-Violet Violet Shampoo for Blond or Discolored Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=kerastase-blond-absolu-ultra-violet-violet-shampoo-for-blond-or-discolored-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=kerastase-blond-absolu-ultra-violet-violet-shampoo-for-blond-or-discolored-hair"><img alt="kerastase-blond-absolu-bain-ultra-violet-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kerastase-blond-absolu-bain-ultra-violet-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=kerastase-blond-absolu-ultra-violet-violet-shampoo-for-blond-or-discolored-hair"><img alt="kerastase-blond-absolu-bain-ultra-violet-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kerastase-blond-absolu-bain-ultra-violet-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest for the perfect daily care for my lovely blonde hair, I stumbled upon the Kerastase Blond Absolu Bain Ultra-Violet. I decided to give it a try as it boasted some serious anti-yellow and anti-copper benefits, an essential element for my hair type. 
 
@@ -521,9 +521,9 @@ However, do not be fooled by the luxurious lather it provides. A little goes a l
 Despite the price tag, it's definitely a product that's worth the investment. I highly recommend it to anyone looking for a shampoo that goes beyond just washing, promising to keep your blonde radiant and nourished. It is truly a game-changer for those with blonde hair! 
 
 
-### [L'ange Purple Toning Shampoo](https://serp.ly/amazon/Violet+Shampoo?utm\_term=lange-purple-toning-shampoo)
+### [L'ange Purple Toning Shampoo](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=lange-purple-toning-shampoo)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=lange-purple-toning-shampoo"><img alt="lange-hair-violet-purple-toning-shampoo-restores-hair-color-tone-correcting-shampoo-removes-yellow-o-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lange-hair-violet-purple-toning-shampoo-restores-hair-color-tone-correcting-shampoo-removes-yellow-o-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=lange-purple-toning-shampoo"><img alt="lange-hair-violet-purple-toning-shampoo-restores-hair-color-tone-correcting-shampoo-removes-yellow-o-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lange-hair-violet-purple-toning-shampoo-restores-hair-color-tone-correcting-shampoo-removes-yellow-o-1/h=540,fit=pad,background=black"/></a></div>
 
 I decided to give L'ange Violet Purple Toning Shampoo a try, as it seemed like a popular choice for people trying to maintain their blonde or gray hair color. The first thing I noticed was the packaging, which looked quite attractive and professional. However, upon opening the bottle, I was met with disappointment. The bottle was significantly smaller than I expected, especially considering the price. 
 
@@ -534,18 +534,18 @@ Another concern I had was the scent. While it was described as having a light, f
 Despite these drawbacks, the shampoo did perform well in toning down yellow tones in my hair, giving it a more natural, blonder appearance. However, the negative aspects outweighed the positive for me. I would not recommend this product to others, as there are better options available in the market that provide the same results without causing dryness and an overpowering scent. 
 
 
-### [Fanola No Yellow Purple Shampoo for Grey Hair: Soften, Shine and Moisturize](https://serp.ly/amazon/Violet+Shampoo?utm\_term=fanola-no-yellow-purple-shampoo-for-grey-hair-soften-shine-and-moisturize)
+### [Fanola No Yellow Purple Shampoo for Grey Hair: Soften, Shine and Moisturize](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=fanola-no-yellow-purple-shampoo-for-grey-hair-soften-shine-and-moisturize)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=fanola-no-yellow-purple-shampoo-for-grey-hair-soften-shine-and-moisturize"><img alt="fanola-no-yellow-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fanola-no-yellow-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=fanola-no-yellow-purple-shampoo-for-grey-hair-soften-shine-and-moisturize"><img alt="fanola-no-yellow-shampoo-1000-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fanola-no-yellow-shampoo-1000-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Fanola No Yellow Shampoo and was blown away by its effectiveness in reducing the visibility of grey hair. Its unique violet pigment not only leaves your locks looking more consistent but also makes them feel softer and shinier. The shampoo's scent might not be for everyone, but it effectively does the job of toning and moisturizing your hair. 
 
 I'd definitely recommend giving it a try, especially if you're looking to maintain your hair's color consistency and vibrancy. 
 
 
-### [Violet Shampoo and Conditioner Set for Blonde and Gray Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-shampoo-and-conditioner-set-for-blonde-and-gray-hair)
+### [Violet Shampoo and Conditioner Set for Blonde and Gray Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-shampoo-and-conditioner-set-for-blonde-and-gray-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-shampoo-and-conditioner-set-for-blonde-and-gray-hair"><img alt="luseta-color-brightening-purple-shampoo-and-conditioner-set-for-blonde-and-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luseta-color-brightening-purple-shampoo-and-conditioner-set-for-blonde-and-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-shampoo-and-conditioner-set-for-blonde-and-gray-hair"><img alt="luseta-color-brightening-purple-shampoo-and-conditioner-set-for-blonde-and-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luseta-color-brightening-purple-shampoo-and-conditioner-set-for-blonde-and-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I've been using the Luseta Color Brightening Purple Shampoo and Conditioner Set for Blonde and Gray as part of my hair care routine and it's been quite the experience. It's a pH balanced shampoo designed to prevent damage caused by hair coloring agents and it's infused with cocos nucifera oil that provides nourishment and shine to my hair. 
 
@@ -558,9 +558,9 @@ The key ingredients like coco nucifera oil, hydrolyzed keratin, quinoa seed extr
 However, one minor downside is the packaging. While it still gets the job done, I would have preferred a pump instead of having to pick up the bottle and squeeze it. Overall, this Luseta Color Brightening Purple Shampoo and Conditioner Set for Blonde and Gray has been a great addition to my hair care routine. 
 
 
-### [Violet Shampoo Blond Care for Radiant Blonde Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=violet-shampoo-blond-care-for-radiant-blonde-hair)
+### [Violet Shampoo Blond Care for Radiant Blonde Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=violet-shampoo-blond-care-for-radiant-blonde-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=violet-shampoo-blond-care-for-radiant-blonde-hair"><img alt="hask-blond-care-shampoo-purple-toning-355-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hask-blond-care-shampoo-purple-toning-355-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=violet-shampoo-blond-care-for-radiant-blonde-hair"><img alt="hask-blond-care-shampoo-purple-toning-355-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hask-blond-care-shampoo-purple-toning-355-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Keeping your blonde hair bright and shiny can be a challenge, but Hask's Blond Care Purple Toning Shampoo, a 12 fl oz bottle, is here to save the day. This violet-tinted shampoo cancels unwanted warm tones in your hair and helps to achieve a cooler shade of blonde. Enhance your hair's shine and restore moisture with the help of elderberry and Vitamin C. 
 
@@ -571,9 +571,9 @@ While the shampoo might leave your hair feeling slightly dry, it does an excelle
 For the best results, apply the shampoo to wet hair, massage it in, and leave it on for 1 to 3 minutes before rinsing. Be sure not to let it dry out your hair further, however, as this can be an issue for some users. Make the most of this shampoo with the conveniently sized 12 fl oz bottle and enjoy the long-lasting benefits of radiant blonde hair. 
 
 
-### [Bright Blonde Shampoo for Vibrant Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=bright-blonde-shampoo-for-vibrant-hair)
+### [Bright Blonde Shampoo for Vibrant Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=bright-blonde-shampoo-for-vibrant-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=bright-blonde-shampoo-for-vibrant-hair"><img alt="healthy-sexy-hair-bright-blonde-shampoo-10-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/healthy-sexy-hair-bright-blonde-shampoo-10-1-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=bright-blonde-shampoo-for-vibrant-hair"><img alt="healthy-sexy-hair-bright-blonde-shampoo-10-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/healthy-sexy-hair-bright-blonde-shampoo-10-1-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Sexy Hair Healthy Bright Blonde Shampoo, and I must say it's a real game-changer for my blonde hair. As someone who dyes her hair at home, I'm always on the lookout for a product that can help brighten my hair and maintain its vibrancy. This shampoo definitely delivers on that front. 
 
@@ -586,9 +586,9 @@ However, there are a couple of downsides to mention. Firstly, the scent is quite
 Overall, I'm really happy with this shampoo and would definitely recommend it to anyone looking to brighten their blonde hair. Just make sure to rinse it thoroughly, as the violet dye can be a bit stubborn. Apart from that, it's a fantastic product that I'm excited to continue using. 
 
 
-### [L'Oreal Paris Sulfate-Free Violet Shampoo for Blonde Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=loreal-paris-sulfate-free-violet-shampoo-for-blonde-hair)
+### [L'Oreal Paris Sulfate-Free Violet Shampoo for Blonde Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=loreal-paris-sulfate-free-violet-shampoo-for-blonde-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=loreal-paris-sulfate-free-violet-shampoo-for-blonde-hair"><img alt="loreal-paris-sulfate-free-purple-shampoo-for-blonde-hair-2-5-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-paris-sulfate-free-purple-shampoo-for-blonde-hair-2-5-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=loreal-paris-sulfate-free-violet-shampoo-for-blonde-hair"><img alt="loreal-paris-sulfate-free-purple-shampoo-for-blonde-hair-2-5-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/loreal-paris-sulfate-free-purple-shampoo-for-blonde-hair-2-5-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The L'Oreal Ever Pure Sulfate Free Shampoo is a color care product designed to neutralize brassy yellow and orange tones in hair. It contains a vegan formula with purple pigments to enhance brightness, making it an ideal choice for those with blonde hair. The shampoo deeply moisturizes hair while respecting its integrity, and it is sulfate-free, paraben-free, and free of harsh salts. One of its standout features is its ability to maintain hair color when used religiously. 
 
@@ -599,9 +599,9 @@ Despite these negative aspects, many users have expressed satisfaction with the 
 All in all, the L'Oreal Ever Pure Sulfate Free Shampoo for Blonde Hair is a color care product that offers potential benefits for those with blonde hair. It is sulfate-free and contains a vegan formula, and many users have praised its ability to neutralize brassy yellow and orange tones in their hair. However, it's essential to keep in mind that it may not work for everyone, as shown by the mixed reviews. 
 
 
-### [Bellissio Biotin Purple Shampoo & Conditioner Set](https://serp.ly/amazon/Violet+Shampoo?utm\_term=bellissio-biotin-purple-shampoo-conditioner-set)
+### [Bellissio Biotin Purple Shampoo & Conditioner Set](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=bellissio-biotin-purple-shampoo-conditioner-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=bellissio-biotin-purple-shampoo-conditioner-set"><img alt="purple-shampoo-and-conditioner-set-sulfate-free-salon-grade-2-x-16-9-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-shampoo-and-conditioner-set-sulfate-free-salon-grade-2-x-16-9-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=bellissio-biotin-purple-shampoo-conditioner-set"><img alt="purple-shampoo-and-conditioner-set-sulfate-free-salon-grade-2-x-16-9-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-shampoo-and-conditioner-set-sulfate-free-salon-grade-2-x-16-9-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Purple Shampoo and Conditioner Set from BELLISSO, and I must say, I'm quite impressed. As someone with fine, thinning hair, I was hoping for a product that would add volume and promote healthy hair growth. The first thing I noticed was the pleasant scent of the shampoo and conditioner; it had a light, refreshing fragrance that lasted even after washing. 
 
@@ -614,18 +614,18 @@ One downside I encountered was that the conditioner pump seemed to be broken rig
 Overall, I'm very pleased with the Purple Shampoo and Conditioner Set from BELLISSO. It has added volume to my hair and left it feeling soft, moisturized, and stronger. I'll definitely continue using it and would recommend it to others looking for a sulfate-free shampoo and conditioner that promotes healthy hair growth. 
 
 
-### [Joico Color Balance Violet Shampoo for Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=joico-color-balance-violet-shampoo-for-hair)
+### [Joico Color Balance Violet Shampoo for Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=joico-color-balance-violet-shampoo-for-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=joico-color-balance-violet-shampoo-for-hair"><img alt="joico-color-balance-purple-shampoo-10-1-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-color-balance-purple-shampoo-10-1-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=joico-color-balance-violet-shampoo-for-hair"><img alt="joico-color-balance-purple-shampoo-10-1-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/joico-color-balance-purple-shampoo-10-1-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're lucky enough to possess golden or silver locks, Joico's Color Balance Purple Shampoo is an outstanding choice for you. Boasting a distinctive multi-spectrum defense complex and color-correcting pigments, this product is designed to safeguard vibrant color and ensure your locks maintain an eye-catching cool sheen. 
 
 But, beware, there have been reports of dryness and hair loss associated with this shampoo. Overall, it's an excellent option for those with lighter locks, but those with concerns about hair health should proceed with caution. 
 
 
-### [Kativa Color Therapy Blue-Violet Shampoo for Vibrant Hair](https://serp.ly/amazon/Violet+Shampoo?utm\_term=kativa-color-therapy-blue-violet-shampoo-for-vibrant-hair)
+### [Kativa Color Therapy Blue-Violet Shampoo for Vibrant Hair](https://serp.ly/@outrun/amazon/Violet+Shampoo?utm\_term=kativa-color-therapy-blue-violet-shampoo-for-vibrant-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Violet+Shampoo?utm_term=kativa-color-therapy-blue-violet-shampoo-for-vibrant-hair"><img alt="kativa-color-therapy-blue-violet-shampoo-355ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kativa-color-therapy-blue-violet-shampoo-355ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Violet+Shampoo?utm_term=kativa-color-therapy-blue-violet-shampoo-for-vibrant-hair"><img alt="kativa-color-therapy-blue-violet-shampoo-355ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kativa-color-therapy-blue-violet-shampoo-355ml-1/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, using the Kativa Color Therapy Blue Violet Shampoo has been a game-changer for my blonde hair. The luxurious liquid texture and gentle application during my shower routine keep my locks feeling clean and well-maintained. 
 

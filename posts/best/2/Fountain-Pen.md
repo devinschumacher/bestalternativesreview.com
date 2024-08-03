@@ -14,9 +14,9 @@ Welcome to our comprehensive roundup of the latest and greatest fountain pens on
 ## Reviews
 
 
-### [Laban Wisteria Fountain Pen - 1.5mm Stub](https://serp.ly/amazon/Fountain+Pen?utm\_term=laban-wisteria-fountain-pen-1-5mm-stub)
+### [Laban Wisteria Fountain Pen - 1.5mm Stub](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=laban-wisteria-fountain-pen-1-5mm-stub)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=laban-wisteria-fountain-pen-1-5mm-stub"><img alt="laban-fountain-pen-wisteria-stub-1-5mm-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/laban-fountain-pen-wisteria-stub-1-5mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=laban-wisteria-fountain-pen-1-5mm-stub"><img alt="laban-fountain-pen-wisteria-stub-1-5mm-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/laban-fountain-pen-wisteria-stub-1-5mm-1/h=540,fit=pad,background=black"/></a></div>
 
 The Laban Fountain Pen in Wisteria features a stunning and elegant design that radiates sophistication. The pen is adorned with an intricate gold-tone nib, a gold-plated clip, and a cap top, all of which showcase the pen's refined appearance. The ivory white cap and dark purple barrel are crafted from durable acrylic resin, adding to the pen's overall aesthetic. 
 
@@ -25,9 +25,9 @@ One of the standout features of this fountain pen is its comfortable grip sectio
 While the pen's quality materials and intricate details are certainly commendable, other users have reported issues with durability, particularly when using it in extreme temperatures. This disappointment is reflected in the pen's rating and reviews. Overall, the Laban Wisteria Fountain Pen offers a luxurious and stylish writing experience, but may not withstand the test of time or varying weather conditions. 
 
 
-### [Retro 51 Tornado: Limited Edition Cat Rescue Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=retro-51-tornado-limited-edition-cat-rescue-fountain-pen)
+### [Retro 51 Tornado: Limited Edition Cat Rescue Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=retro-51-tornado-limited-edition-cat-rescue-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=retro-51-tornado-limited-edition-cat-rescue-fountain-pen"><img alt="retro-51-tornado-cat-rescue-series-5-fountain-pen-stub-1-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/retro-51-tornado-cat-rescue-series-5-fountain-pen-stub-1-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=retro-51-tornado-limited-edition-cat-rescue-fountain-pen"><img alt="retro-51-tornado-cat-rescue-series-5-fountain-pen-stub-1-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/retro-51-tornado-cat-rescue-series-5-fountain-pen-stub-1-5-1/h=540,fit=pad,background=black"/></a></div>
 
 The Retro 51 Tornado Cat Rescue Series 5 Fountain Pen Stub 1.5 is a unique and eye-catching writing instrument that's perfect for capturing your dreams and goals for the new year. Featuring a vibrant, dreamy Expressionist palette and an intricate ombre pattern, this limited-edition fountain pen is sure to inspire you to plan and plot your way to success. The screw cap keeps the pen secure and the durable steel nib provides a smooth and reliable writing experience. 
 
@@ -36,9 +36,9 @@ With a length of 5.5 inches when capped and 6.4 inches when posted, this fountai
 Take the first step toward making your 2021 dreams a reality with the Retro 51 Tornado Cat Rescue Series 5 Fountain Pen Stub 1.5. 
 
 
-### [Platinum Plaisir Fountain Pen with Citrus Bali Body](https://serp.ly/amazon/Fountain+Pen?utm\_term=platinum-plaisir-fountain-pen-with-citrus-bali-body)
+### [Platinum Plaisir Fountain Pen with Citrus Bali Body](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=platinum-plaisir-fountain-pen-with-citrus-bali-body)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=platinum-plaisir-fountain-pen-with-citrus-bali-body"><img alt="platinum-plaisir-fountain-pen-pgb-1000-bali-citrus-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/platinum-plaisir-fountain-pen-pgb-1000-bali-citrus-fine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=platinum-plaisir-fountain-pen-with-citrus-bali-body"><img alt="platinum-plaisir-fountain-pen-pgb-1000-bali-citrus-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/platinum-plaisir-fountain-pen-pgb-1000-bali-citrus-fine-1/h=540,fit=pad,background=black"/></a></div>
 
 The Platinum Plaisir Fountain Pen, with its Bali Citrus coloring, is a pen of both beauty and functionality. Its sleek, aluminum finish has a pearl effect that catches the eye, while still being sturdy enough to withstand daily use. This pen is not only eye-catching, but also conveniently capped with a clip for easy transportation. The lightweight nature of this pen makes it comfortable to handle, even during prolonged writing sessions. 
 
@@ -49,9 +49,9 @@ In terms of compatibility, the pen comes equipped with a cartridge ink system, a
 In conclusion, the Platinum Plaisir Fountain Pen with its Bali Citrus finish combines both aesthetic appeal and reliable performance. Its lightweight design, innovative features, and compatibility with various ink types make it a desirable addition for any fountain pen lover or those seeking a higher quality pen without breaking the bank. 
 
 
-### [Faber-Castell School+ Blue Fountain Pen: Stainless Steel Nib, Comfortable Grip, and Ink Cartridges](https://serp.ly/amazon/Fountain+Pen?utm\_term=faber-castell-school-blue-fountain-pen-stainless-steel-nib-comfortable-grip-and-ink-cartridges)
+### [Faber-Castell School+ Blue Fountain Pen: Stainless Steel Nib, Comfortable Grip, and Ink Cartridges](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=faber-castell-school-blue-fountain-pen-stainless-steel-nib-comfortable-grip-and-ink-cartridges)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=faber-castell-school-blue-fountain-pen-stainless-steel-nib-comfortable-grip-and-ink-cartridges"><img alt="faber-castell-school-fountain-pen-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/faber-castell-school-fountain-pen-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=faber-castell-school-blue-fountain-pen-stainless-steel-nib-comfortable-grip-and-ink-cartridges"><img alt="faber-castell-school-fountain-pen-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/faber-castell-school-fountain-pen-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 This Faber-Castell School+ Fountain Pen is a fantastic choice for school use. Its durable plastic barrel, which comes in a sleek stainless steel finish, delivers a comfortable grip with the addition of a rubber grip section. 
 
@@ -60,9 +60,9 @@ It's perfect for left or right-handed users and comes complete with a metal pock
 Notably, this pen accompanies a pack of six ink cartridge refills in your preferred blue color. Despite its sturdy construction, this pen isn't the most robust for everyday use, but its affordability makes it a great option, especially for students who need a reliable pen for day-to-day note-taking. 
 
 
-### [Smooth Writing Dryden Fountain Pen with Convertible Ink Refill](https://serp.ly/amazon/Fountain+Pen?utm\_term=smooth-writing-dryden-fountain-pen-with-convertible-ink-refill)
+### [Smooth Writing Dryden Fountain Pen with Convertible Ink Refill](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=smooth-writing-dryden-fountain-pen-with-convertible-ink-refill)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=smooth-writing-dryden-fountain-pen-with-convertible-ink-refill"><img alt="dryden-designs-fountain-pen-fine-nib-includes-24-ink-cartridges-12-black-and-12-blue-comes-with-ink--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/dryden-designs-fountain-pen-fine-nib-includes-24-ink-cartridges-12-black-and-12-blue-comes-with-ink--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=smooth-writing-dryden-fountain-pen-with-convertible-ink-refill"><img alt="dryden-designs-fountain-pen-fine-nib-includes-24-ink-cartridges-12-black-and-12-blue-comes-with-ink--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/dryden-designs-fountain-pen-fine-nib-includes-24-ink-cartridges-12-black-and-12-blue-comes-with-ink--1/h=540,fit=pad,background=black"/></a></div>
 
 The Dryden Designs Fountain Pen is a classy addition to any writer's arsenal. Its smooth metallic finish gives it a refined, upscale look, and the ease of use means it's perfect for both left and right-handed writers. Hand-assembled with care, this pen is perfect for those who enjoy journaling, calligraphy, or simply meticulous note-taking. 
 
@@ -73,9 +73,9 @@ What sets this pen apart from others, however, is its suitability for everyday u
 So, if you fancy writing in a more classic, sophisticated style, the Dryden Designs Fountain Pen could be the pen you've been waiting for. 
 
 
-### [Platinum President Fountain Pen in Wine Red](https://serp.ly/amazon/Fountain+Pen?utm\_term=platinum-president-fountain-pen-in-wine-red)
+### [Platinum President Fountain Pen in Wine Red](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=platinum-president-fountain-pen-in-wine-red)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=platinum-president-fountain-pen-in-wine-red"><img alt="platinum-president-fountain-pen-wine-red-ptb-20000p-medium-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/platinum-president-fountain-pen-wine-red-ptb-20000p-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=platinum-president-fountain-pen-in-wine-red"><img alt="platinum-president-fountain-pen-wine-red-ptb-20000p-medium-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/platinum-president-fountain-pen-wine-red-ptb-20000p-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the sleek Wine Red Platinum 3776 President, a contemporary fountain pen that combines beauty and functionality in one package. Using this pen daily, I've come to appreciate the balance in its design that ensures a comfortable writing experience. The fountain pen delivers a smooth flow of ink, and with a fast-drying quality, I find myself using it repeatedly without any issues. 
 
@@ -84,9 +84,9 @@ One feature that stands out is its dual-purpose mechanism, making it versatile a
 Despite this minor issue, I have grown quite fond of the Platinum 3776 President. It has become my go-to fountain pen for daily writing, and I've seen a significant improvement in my handwriting ever since using it. Overall, the Platinum 3776 President Wine Red Fountain Pen is a must-try for those who appreciate quality and style in their writing instruments. 
 
 
-### [Luxury Scriveiner Stainless Steel Fountain Pen with Schmidt Steel Nib (Fine)](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-scriveiner-stainless-steel-fountain-pen-with-schmidt-steel-nib-fine)
+### [Luxury Scriveiner Stainless Steel Fountain Pen with Schmidt Steel Nib (Fine)](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-scriveiner-stainless-steel-fountain-pen-with-schmidt-steel-nib-fine)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-scriveiner-stainless-steel-fountain-pen-with-schmidt-steel-nib-fine"><img alt="scriveiner-stainless-steel-fountain-pen-stunning-luxury-pen-with-steel-finish-schmidt-steel-nib-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scriveiner-stainless-steel-fountain-pen-stunning-luxury-pen-with-steel-finish-schmidt-steel-nib-fine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-scriveiner-stainless-steel-fountain-pen-with-schmidt-steel-nib-fine"><img alt="scriveiner-stainless-steel-fountain-pen-stunning-luxury-pen-with-steel-finish-schmidt-steel-nib-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scriveiner-stainless-steel-fountain-pen-stunning-luxury-pen-with-steel-finish-schmidt-steel-nib-fine-1/h=540,fit=pad,background=black"/></a></div>
 
 As a writer, I have always appreciated the finer things in life, especially when it comes to tools that can elevate my work. That's why I was instantly drawn to the Scriveiner Stainless Steel Fountain Pen. Its exquisite design and understated luxury caught my attention, but it was the experience of using it that truly won me over. 
 
@@ -99,9 +99,9 @@ However, despite all these positive aspects, I did find one minor drawback. The 
 For me, this pen wasn't just a tool, but a piece of elegant craftsmanship that added a touch of sophistication to my writing. It makes a perfect gift for any occasion, and I can't recommend it enough to those who appreciate the finer things in life. 
 
 
-### [Scrivi Luxury Black Fountain Pen Set with Ink Converter and Cartridges](https://serp.ly/amazon/Fountain+Pen?utm\_term=scrivi-luxury-black-fountain-pen-set-with-ink-converter-and-cartridges)
+### [Scrivi Luxury Black Fountain Pen Set with Ink Converter and Cartridges](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=scrivi-luxury-black-fountain-pen-set-with-ink-converter-and-cartridges)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=scrivi-luxury-black-fountain-pen-set-with-ink-converter-and-cartridges"><img alt="scrivi-pens-luxury-fountain-pen-set-black-fountain-pens-for-writing-smooth-medium-nib-includes-refil-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scrivi-pens-luxury-fountain-pen-set-black-fountain-pens-for-writing-smooth-medium-nib-includes-refil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=scrivi-luxury-black-fountain-pen-set-with-ink-converter-and-cartridges"><img alt="scrivi-pens-luxury-fountain-pen-set-black-fountain-pens-for-writing-smooth-medium-nib-includes-refil-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scrivi-pens-luxury-fountain-pen-set-black-fountain-pens-for-writing-smooth-medium-nib-includes-refil-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of trying out the Scrivi Pens Luxury Fountain Pen Set in black. At first glance, I was drawn to the pen's distinctive wide-barrelled executive design, but upon closer inspection, I noticed the contoured grip that felt so comfortable in my hand, ensuring an effortless writing experience. The understated confidence of this pen made me feel like I was holding something special, and its smooth medium nib glided effortlessly on the page, leaving a trail of impeccable lines. 
 
@@ -110,9 +110,9 @@ The Scrivi Pens set comes with a refillable ink converter and 5 ink cartridges, 
 While I was overall satisfied with the Scrivi Pens Luxury Fountain Pen Set, I did notice a minor issue with the ink cartridge's flow. However, after trying the converter and a bottle of ink, the performance improved significantly. Overall, I highly recommend this pen for those seeking a classic yet modern writing experience. 
 
 
-### [Hugo Boss Pure Black Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=hugo-boss-pure-black-fountain-pen)
+### [Hugo Boss Pure Black Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=hugo-boss-pure-black-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=hugo-boss-pure-black-fountain-pen"><img alt="hugo-boss-pure-black-fountain-pen-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hugo-boss-pure-black-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=hugo-boss-pure-black-fountain-pen"><img alt="hugo-boss-pure-black-fountain-pen-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hugo-boss-pure-black-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Hugo Boss Pure Black Fountain Pen, and let me tell you, it's a real game-changer. The sleek black barrel made from lacquer and its tapered shape provide not only an elegant look but also a comfortable grip. My favorite feature, though, is the brass cap that's been chrome-plated and polished to a shine, really making this pen a head-turner. 
 
@@ -121,18 +121,18 @@ The brass trim, including the clip, barrel tip, and cone, complements the black 
 However, one minor downside is that it can be a bit difficult to use bottled ink without converters or ink sold separately. But considering the overall sophisticated look and the smooth writing experience it provides, I'm willing to overlook that little hiccup. Finally, the pen comes with a two-year international guarantee and packaged in a bespoke black gift box, so it's perfect for those who appreciate a quality writing instrument. 
 
 
-### [Faber-Castell Oceanic Sparkle Fountain Pen Set](https://serp.ly/amazon/Fountain+Pen?utm\_term=faber-castell-oceanic-sparkle-fountain-pen-set)
+### [Faber-Castell Oceanic Sparkle Fountain Pen Set](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=faber-castell-oceanic-sparkle-fountain-pen-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=faber-castell-oceanic-sparkle-fountain-pen-set"><img alt="faber-castell-sparkle-fountain-pen-set-ocean-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/faber-castell-sparkle-fountain-pen-set-ocean-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=faber-castell-oceanic-sparkle-fountain-pen-set"><img alt="faber-castell-sparkle-fountain-pen-set-ocean-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/faber-castell-sparkle-fountain-pen-set-ocean-1/h=540,fit=pad,background=black"/></a></div>
 
 This Faber-Castell Sparkle Fountain Pen Set, with its Ocean color scheme, is sure to brighten up your workspace. The ergonomic grip zone provides a comfortable writing experience, making it perfect for long sessions. The sturdy steel nib ensures smooth writing and is easy to clean by simply washing it under warm water. However, it's essential to avoid waterproof inks and to replace the cap immediately after use for the best results. Store the pen upright to maintain its functionality. 
 
 This fountain pen is a fantastic choice as a gift, offering a touch of elegance and luxury. Although the item has a plastic body, it complements the sparkle theme quite well. The pen uses ink cartridges as its refill type, ensuring a hassle-free replacement process. 
 
 
-### [Classmate Octane Fountain Pen - Professional Writing Experience with Blue Ink](https://serp.ly/amazon/Fountain+Pen?utm\_term=classmate-octane-fountain-pen-professional-writing-experience-with-blue-ink)
+### [Classmate Octane Fountain Pen - Professional Writing Experience with Blue Ink](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=classmate-octane-fountain-pen-professional-writing-experience-with-blue-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=classmate-octane-fountain-pen-professional-writing-experience-with-blue-ink"><img alt="classmate-fountain-ink-pen-octane-1-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/classmate-fountain-ink-pen-octane-1-pen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=classmate-octane-fountain-pen-professional-writing-experience-with-blue-ink"><img alt="classmate-fountain-ink-pen-octane-1-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/classmate-fountain-ink-pen-octane-1-pen-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Classmate Fountain Ink Pen - Octane, and let me tell you, it's a pretty impressive piece. The pen has a sleek design that exudes elegance and professionalism, which definitely adds a touch of sophistication to your daily writing. 
 
@@ -141,9 +141,9 @@ One of the first things I noticed was the refined pen's precision nib, which mad
 However, I must point out that the pen’s material is plastic, and it might not exude the same luxurious feel that metal pens have. It's also non-returnable, which is something to consider before making your purchase. But overall, the Classmate Octane Fountain Pen is a well-designed writing instrument that offers a refined writing experience. 
 
 
-### [High-Quality Chrome Arete Fountain Pen Kit](https://serp.ly/amazon/Fountain+Pen?utm\_term=high-quality-chrome-arete-fountain-pen-kit)
+### [High-Quality Chrome Arete Fountain Pen Kit](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=high-quality-chrome-arete-fountain-pen-kit)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=high-quality-chrome-arete-fountain-pen-kit"><img alt="woodriver-arete-fountain-pen-kit-chrome-kit-only-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woodriver-arete-fountain-pen-kit-chrome-kit-only-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=high-quality-chrome-arete-fountain-pen-kit"><img alt="woodriver-arete-fountain-pen-kit-chrome-kit-only-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woodriver-arete-fountain-pen-kit-chrome-kit-only-1/h=540,fit=pad,background=black"/></a></div>
 
 Crafting a fountain pen from the Woodriver Arete Fountain Pen Kit Chrome is an enjoyable and rewarding experience. The kit boasts a striking chrome plated finish, giving it a durable and elegant appearance. Its single barrel design makes it simple and easy to assemble, even for beginners. 
 
@@ -152,9 +152,9 @@ However, it's essential to note that the kit requires additional components like
 The high-quality fountain pen nib, which is sourced from the Arete collection, emphasizes the excellence of the finished product. This fountain pen kit offers a touch of sophistication and luxury, making it a great choice for those looking to create a special pen or gift it to someone who appreciates finer things. 
 
 
-### [Nahvalur Horizon Habitat Limited Edition Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=nahvalur-horizon-habitat-limited-edition-fountain-pen)
+### [Nahvalur Horizon Habitat Limited Edition Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=nahvalur-horizon-habitat-limited-edition-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=nahvalur-horizon-habitat-limited-edition-fountain-pen"><img alt="nahvalur-horizon-fountain-pen-habitat-limited-edition-broad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nahvalur-horizon-fountain-pen-habitat-limited-edition-broad-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=nahvalur-horizon-habitat-limited-edition-fountain-pen"><img alt="nahvalur-horizon-fountain-pen-habitat-limited-edition-broad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nahvalur-horizon-fountain-pen-habitat-limited-edition-broad-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest to find the perfect daily pen, I stumbled upon Nahvalur's Habitat broad fountain pen. This limited edition beauty not only boasts a sleek, modern design, but also offers a writing experience unlike any I've encountered. With its smooth-flowing ink and distinct color scheme - inspired by the marine habitat - this pen sets itself apart from the rest. 
 
@@ -165,9 +165,9 @@ Although at first glance, the Habitat might seem a bit heavy to some, it feels p
 Overall, I'm completely in love with this pen - it's the perfect blend of function and style. 
 
 
-### [Penlux Masterpiece Grande Rainforest Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=penlux-masterpiece-grande-rainforest-fountain-pen)
+### [Penlux Masterpiece Grande Rainforest Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=penlux-masterpiece-grande-rainforest-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=penlux-masterpiece-grande-rainforest-fountain-pen"><img alt="penlux-masterpiece-grande-fountain-pen-rainforest-1-1mm-stub-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/penlux-masterpiece-grande-fountain-pen-rainforest-1-1mm-stub-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=penlux-masterpiece-grande-rainforest-fountain-pen"><img alt="penlux-masterpiece-grande-fountain-pen-rainforest-1-1mm-stub-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/penlux-masterpiece-grande-fountain-pen-rainforest-1-1mm-stub-1/h=540,fit=pad,background=black"/></a></div>
 
 The Penlux Masterpiece Grande Fountain Pen in Rainforest was the perfect addition to my daily journal routine. The oversized translucent green resin body was a beautiful touch, complemented by the rose gold-plated trim. The clip, featuring a roller for easy use, was an unexpected and satisfying extra. The pen's cap closing through a threaded mechanism worked well for me, and I appreciated the piston filling mechanism for using bottled ink. However, I discovered that writing with this pen was a bit lightweight for my preference. 
 
@@ -176,18 +176,18 @@ This fountain pen's best feature was the smooth-writing #6 German-made JoWo stee
 Despite the few shortcomings, I found this pen to be a masterpiece and a unique writing companion in my journey. 
 
 
-### [Lamy Safari Fountain Pen - Bold Red Ink](https://serp.ly/amazon/Fountain+Pen?utm\_term=lamy-safari-fountain-pen-bold-red-ink)
+### [Lamy Safari Fountain Pen - Bold Red Ink](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=lamy-safari-fountain-pen-bold-red-ink)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=lamy-safari-fountain-pen-bold-red-ink"><img alt="lamy-safari-fountain-pen-red-broad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lamy-safari-fountain-pen-red-broad-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=lamy-safari-fountain-pen-bold-red-ink"><img alt="lamy-safari-fountain-pen-red-broad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lamy-safari-fountain-pen-red-broad-1/h=540,fit=pad,background=black"/></a></div>
 
 The Lamy Safari Fountain Pen is a timeless and ergonomic pen, characterized by its easy-to-grip shape and sturdy clip. This classic pen, designed by Wolfgang Fabian, features a comfortable grip made from ABS plastic, the same material used in Lego bricks, which adds to its durability. The pen uses a stainless steel nib and can be refilled with Lamy ink cartridges or a Lamy converter for bottled ink, making it a versatile choice for ink enthusiasts. 
 
 Lamy Safari pens are loved for their smooth writing experience and are widely regarded as one of the best value pens on the market. 
 
 
-### [Crafted Fountain Pen with Exceptional Blue Resin Finish](https://serp.ly/amazon/Fountain+Pen?utm\_term=crafted-fountain-pen-with-exceptional-blue-resin-finish)
+### [Crafted Fountain Pen with Exceptional Blue Resin Finish](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=crafted-fountain-pen-with-exceptional-blue-resin-finish)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=crafted-fountain-pen-with-exceptional-blue-resin-finish"><img alt="nahvalur-schuylkill-fountain-pen-dragonet-sapphire-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nahvalur-schuylkill-fountain-pen-dragonet-sapphire-fine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=crafted-fountain-pen-with-exceptional-blue-resin-finish"><img alt="nahvalur-schuylkill-fountain-pen-dragonet-sapphire-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nahvalur-schuylkill-fountain-pen-dragonet-sapphire-fine-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nahvalur Schuylkill Fountain Pen - Dragonet Sapphire Fine brought me back to my pen-loving days. This Californian company has crafted a stunning pen with its unique mix of resins, resulting in a beautiful blue barrel with red flashes. 
 
@@ -198,9 +198,9 @@ I really enjoy using this pen for my daily scribbling, particularly on Tomoe Riv
 Overall, the Nahvalur Schuylkill Fountain Pen - Dragonet Sapphire Fine is a beautiful, well-designed pen, and I'm happy to be a part of its fanbase. 
 
 
-### [Opus 88 Mini Pocket Fountain Pen with High-Capacity Eyedropper Fill for Fine Writing Experience](https://serp.ly/amazon/Fountain+Pen?utm\_term=opus-88-mini-pocket-fountain-pen-with-high-capacity-eyedropper-fill-for-fine-writing-experience)
+### [Opus 88 Mini Pocket Fountain Pen with High-Capacity Eyedropper Fill for Fine Writing Experience](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=opus-88-mini-pocket-fountain-pen-with-high-capacity-eyedropper-fill-for-fine-writing-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=opus-88-mini-pocket-fountain-pen-with-high-capacity-eyedropper-fill-for-fine-writing-experience"><img alt="opus-88-mini-pocket-pen-fountain-pen-dot-broad-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/opus-88-mini-pocket-pen-fountain-pen-dot-broad-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=opus-88-mini-pocket-fountain-pen-with-high-capacity-eyedropper-fill-for-fine-writing-experience"><img alt="opus-88-mini-pocket-pen-fountain-pen-dot-broad-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/opus-88-mini-pocket-pen-fountain-pen-dot-broad-1/h=540,fit=pad,background=black"/></a></div>
 
 The Opus 88 Mini Dot Fountain Pen is a sleek and stylish writing instrument that comes in a silver stainless steel finish with a transparent green body and a dotted cap in beige. This pen boasts a high-capacity eyedropper filling system that lets you write for longer periods without refills. 
 
@@ -213,9 +213,9 @@ Make sure to wipe excess ink off the nib before capping the pen. A Taiwanese bra
 Get this sophisticated writer from OnlineMantra. in today! 
 
 
-### [Luxury Walnut Fountain Pen with German-made Fine Nib](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-walnut-fountain-pen-with-german-made-fine-nib)
+### [Luxury Walnut Fountain Pen with German-made Fine Nib](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-walnut-fountain-pen-with-german-made-fine-nib)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-walnut-fountain-pen-with-german-made-fine-nib"><img alt="lachieva-luxury-walnut-fountain-pen-nice-pen-with-german-made-fine-nib-converter-cartridges-nice-woo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lachieva-luxury-walnut-fountain-pen-nice-pen-with-german-made-fine-nib-converter-cartridges-nice-woo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-walnut-fountain-pen-with-german-made-fine-nib"><img alt="lachieva-luxury-walnut-fountain-pen-nice-pen-with-german-made-fine-nib-converter-cartridges-nice-woo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lachieva-luxury-walnut-fountain-pen-nice-pen-with-german-made-fine-nib-converter-cartridges-nice-woo-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine opening up a beautifully packed wooden box, revealing a sleek and smooth natural walnut fountain pen. This LACHIEVA Luxury Fountain Pen brings elegance and style to your daily writing routine, making it a perfect gift for any occasion. The beautifully crafted pen, with a metal screw-on/off cap, is not only visually stunning, but also comfortable in the hand, perfect for left-handed writers too. 
 
@@ -226,18 +226,18 @@ While it is a beautifully crafted pen, the downside is that you cannot change th
 Gift-giving season is here and this LACHIEVA Luxury Walnut Fountain Pen set is the ideal present, standing out from the crowd and impressing any recipient. Whether you're looking for a meaningful gift for a special occasion or simply want to elevate your daily pen usage, this stunning pen is sure to win the hearts of many. 
 
 
-### [Ferris Wheel Press Limited Edition Harlequin Dream Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=ferris-wheel-press-limited-edition-harlequin-dream-fountain-pen)
+### [Ferris Wheel Press Limited Edition Harlequin Dream Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=ferris-wheel-press-limited-edition-harlequin-dream-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=ferris-wheel-press-limited-edition-harlequin-dream-fountain-pen"><img alt="ferris-wheel-press-aluminum-carousel-fountain-pen-harlequin-dream-limited-edition-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ferris-wheel-press-aluminum-carousel-fountain-pen-harlequin-dream-limited-edition-fine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=ferris-wheel-press-limited-edition-harlequin-dream-fountain-pen"><img alt="ferris-wheel-press-aluminum-carousel-fountain-pen-harlequin-dream-limited-edition-fine-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ferris-wheel-press-aluminum-carousel-fountain-pen-harlequin-dream-limited-edition-fine-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Ferris Wheel Press Aluminum Carousel Fountain Pen, and I must say, it's a beauty to behold. The Harlequin Dream, a limited edition fine pen, exudes luxury and elegance with its handcrafted copper, brass, and stainless steel body. Not only is it a visual delight, but it also offers a substantial and balanced writing experience. 
 
 The fine tip, made of high-quality steel, glides smoothly across the page, making every stroke a pleasure to create. Overall, this pen is a true work of art and an excellent addition to any writing enthusiast's collection. 
 
 
-### [Luxury 24K Gold Fountain Pen - Elevate Your Writing Experience](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-24k-gold-fountain-pen-elevate-your-writing-experience)
+### [Luxury 24K Gold Fountain Pen - Elevate Your Writing Experience](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-24k-gold-fountain-pen-elevate-your-writing-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-24k-gold-fountain-pen-elevate-your-writing-experience"><img alt="kingboom-24k-gold-fountain-pen-luxury-pen-with-medium-nib-gift-for-business-professional-executive-a-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kingboom-24k-gold-fountain-pen-luxury-pen-with-medium-nib-gift-for-business-professional-executive-a-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-24k-gold-fountain-pen-elevate-your-writing-experience"><img alt="kingboom-24k-gold-fountain-pen-luxury-pen-with-medium-nib-gift-for-business-professional-executive-a-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kingboom-24k-gold-fountain-pen-luxury-pen-with-medium-nib-gift-for-business-professional-executive-a-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the KINGBOOM 24K Gold Fountain Pen, and let me tell you, it's more than just a pen. This sleek and stylish writing instrument is a perfect blend of luxury and functionality. It's a true gem that's both exquisite and versatile. 
 
@@ -250,9 +250,9 @@ However, there's one thing I'd like to mention—the pen requires a bit of effor
 In conclusion, the KINGBOOM 24K Gold Fountain Pen is a stunning and versatile writing instrument that's more than worth its price. It's not just a pen; it's a statement piece that elevates your writing experience and leaves a lasting impression. 
 
 
-### [Scriveiner Gold Luxury Fountain Pen (Medium) - Award Winning](https://serp.ly/amazon/Fountain+Pen?utm\_term=scriveiner-gold-luxury-fountain-pen-medium-award-winning)
+### [Scriveiner Gold Luxury Fountain Pen (Medium) - Award Winning](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=scriveiner-gold-luxury-fountain-pen-medium-award-winning)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=scriveiner-gold-luxury-fountain-pen-medium-award-winning"><img alt="scriveiner-gold-luxury-fountain-pen-medium-award-winning-heavy-pocket-pen-22k-gold-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scriveiner-gold-luxury-fountain-pen-medium-award-winning-heavy-pocket-pen-22k-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=scriveiner-gold-luxury-fountain-pen-medium-award-winning"><img alt="scriveiner-gold-luxury-fountain-pen-medium-award-winning-heavy-pocket-pen-22k-gold-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/scriveiner-gold-luxury-fountain-pen-medium-award-winning-heavy-pocket-pen-22k-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Scriveiner Gold Luxury Fountain Pen and was intrigued by its heavy pocket design. It turns out, the heft of the pen is what makes it a pleasure to use. Writing with it is a delight, and the premium German-made Schmidt nib makes every stroke effortless. 
 
@@ -261,18 +261,18 @@ The gold plating adds a touch of luxury, and the brass construction gives the pe
 This pen is designed for those who love to write every day, and it's a great conversation starter. Its presentation box makes it an excellent gift for any occasion. Overall, the Scriveiner Gold Luxury Fountain Pen is a beautiful, functional, and luxurious writing instrument. 
 
 
-### [GC Quill Collection: Ambidextrous Refillable Fountain Pens for Calligraphy](https://serp.ly/amazon/Fountain+Pen?utm\_term=gc-quill-collection-ambidextrous-refillable-fountain-pens-for-calligraphy)
+### [GC Quill Collection: Ambidextrous Refillable Fountain Pens for Calligraphy](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=gc-quill-collection-ambidextrous-refillable-fountain-pens-for-calligraphy)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=gc-quill-collection-ambidextrous-refillable-fountain-pens-for-calligraphy"><img alt="gc-quill-calligraphy-pen-set-7-calligraphy-fountain-pens-with-different-nibs-and-40-ink-cartridges-c-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gc-quill-calligraphy-pen-set-7-calligraphy-fountain-pens-with-different-nibs-and-40-ink-cartridges-c-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=gc-quill-collection-ambidextrous-refillable-fountain-pens-for-calligraphy"><img alt="gc-quill-calligraphy-pen-set-7-calligraphy-fountain-pens-with-different-nibs-and-40-ink-cartridges-c-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gc-quill-calligraphy-pen-set-7-calligraphy-fountain-pens-with-different-nibs-and-40-ink-cartridges-c-1/h=540,fit=pad,background=black"/></a></div>
 
 The GC Quill Calligraphy Pen Set offers a versatile collection of 7 fountain pens, each featuring different nib sizes and a brush tip for an excellent variety of lettering styles. With 40 ink cartridges in 14 vibrant colors, you can explore the world of calligraphy and discover the joy of creating with different hues. The package also includes ink converters for refillable use, making this set a top gift for calligraphy enthusiasts of all ages, from kids to professionals. 
 
 As you embark on your calligraphy journey, the set is beginner-friendly and easy to use, with detailed instructions on how to insert ink cartridges. The pens are ambidextrous and can be held comfortably by both left and right-handed users. The round body shape and snap closure make the pens user-friendly and suitable for various writing situations. Overall, the GC Quill Calligraphy Pen Set is a perfect gift to spark a love for calligraphy and unleash creativity in the recipient. 
 
 
-### [MUJI Aluminum Writing Instrument](https://serp.ly/amazon/Fountain+Pen?utm\_term=muji-aluminum-writing-instrument)
+### [MUJI Aluminum Writing Instrument](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=muji-aluminum-writing-instrument)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=muji-aluminum-writing-instrument"><img alt="muji-aluminum-fountain-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/muji-aluminum-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=muji-aluminum-writing-instrument"><img alt="muji-aluminum-fountain-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/muji-aluminum-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
 
 The MUJI Aluminum Fountain Pen has been my go-to for daily writing needs. With its sleek, professional design and lightweight feel, it's a delight to work with. I've noticed that the aluminum body is not only durable but also ergonomic, providing a secure grip. The black finish adds a touch of elegance to the pen, making it suitable for any setting. 
 
@@ -281,9 +281,9 @@ One of the standout features of this pen is its compatibility with Muji ink cart
 Overall, this MUJI Aluminum Fountain Pen is a reliable and stylish choice for writing enthusiasts looking for an affordable and high-quality option. While there are minor imperfections, the positive aspects of this pen make it worth considering. 
 
 
-### [Esterbrook Estie Nouveau Bleu Fountain Pen with Gold Trim](https://serp.ly/amazon/Fountain+Pen?utm\_term=esterbrook-estie-nouveau-bleu-fountain-pen-with-gold-trim)
+### [Esterbrook Estie Nouveau Bleu Fountain Pen with Gold Trim](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=esterbrook-estie-nouveau-bleu-fountain-pen-with-gold-trim)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=esterbrook-estie-nouveau-bleu-fountain-pen-with-gold-trim"><img alt="esterbrook-estie-fountain-pen-nouveau-bleu-gold-trim-stub-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/esterbrook-estie-fountain-pen-nouveau-bleu-gold-trim-stub-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=esterbrook-estie-nouveau-bleu-fountain-pen-with-gold-trim"><img alt="esterbrook-estie-fountain-pen-nouveau-bleu-gold-trim-stub-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/esterbrook-estie-fountain-pen-nouveau-bleu-gold-trim-stub-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fountain pen enthusiast, I recently had the chance to try out the Esterbrook Estie Nouveau Bleu Fountain Pen. Its crackled blue resin body, coupled with the gold trim, really caught my eye. The pen is comfortable to hold and the nib performs exceptionally well, giving my handwriting a unique touch. 
 
@@ -292,9 +292,9 @@ One of the standout features of this pen is the variety of nib options it offers
 In conclusion, the Esterbrook Estie Nouveau Bleu Fountain Pen is a beautiful and reliable addition to any writing lover's collection. Its comfort, nib options, and elegant design make it a delight to use and an impressive accessory to show off. 
 
 
-### [Vibrant Purple Zebra Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=vibrant-purple-zebra-fountain-pen)
+### [Vibrant Purple Zebra Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=vibrant-purple-zebra-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=vibrant-purple-zebra-fountain-pen"><img alt="zebra-fountain-pen-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zebra-fountain-pen-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=vibrant-purple-zebra-fountain-pen"><img alt="zebra-fountain-pen-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zebra-fountain-pen-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 Writing with the Zebra Fountain Pen has been quite the experience. The purple color is vibrant and stands out on the paper, making it perfect for adding some flair to my daily to-do lists. The pen itself feels sturdy and well-built, and the stainless steel nib glides smoothly across the page. 
 
@@ -305,18 +305,18 @@ However, the cap on the pen has been a bit of a problem. After about a week of u
 Despite the cap issue, I still enjoy using the Zebra Fountain Pen on a daily basis. Its vibrant color and smooth writing experience make it a standout addition to my collection of writing tools. 
 
 
-### [Luxury Bamboo Wood Fountain Pen Set](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-bamboo-wood-fountain-pen-set)
+### [Luxury Bamboo Wood Fountain Pen Set](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-bamboo-wood-fountain-pen-set)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-bamboo-wood-fountain-pen-set"><img alt="wordsworth-black-fountain-pen-set-luxury-bamboo-wood-medium-nib-gift-case-includes-6-ink-cartridges--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-set-luxury-bamboo-wood-medium-nib-gift-case-includes-6-ink-cartridges--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-bamboo-wood-fountain-pen-set"><img alt="wordsworth-black-fountain-pen-set-luxury-bamboo-wood-medium-nib-gift-case-includes-6-ink-cartridges--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-set-luxury-bamboo-wood-medium-nib-gift-case-includes-6-ink-cartridges--1/h=540,fit=pad,background=black"/></a></div>
 
 I received this Wordsworth & Black Fountain Pen Set as a gift and was instantly drawn to its luxurious bamboo wood and high-end craftsmanship. The pen itself is beautifully handcrafted with a brass body, black lacquer finish, and 18K gilded nib and gold appointments. The medium nib writes smoothly and the ink flows effortlessly, although it may not be for everyone due to the slight feathering effect it leaves on the paper. 
 
 One of my favorite features is the included gift case, which makes this pen set perfect for both personal use and as a thoughtful gift for someone special. With its timeless appearance and elegant design, this fountain pen set stands out as a dependable writing instrument that will surely impress anyone who holds it in their hand. 
 
 
-### [Luxury Fountain Pen Set with Refillable Ink Converter - Ambidextrous, Smooth Medium Nib Design](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-fountain-pen-set-with-refillable-ink-converter-ambidextrous-smooth-medium-nib-design)
+### [Luxury Fountain Pen Set with Refillable Ink Converter - Ambidextrous, Smooth Medium Nib Design](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-fountain-pen-set-with-refillable-ink-converter-ambidextrous-smooth-medium-nib-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-fountain-pen-set-with-refillable-ink-converter-ambidextrous-smooth-medium-nib-design"><img alt="ellington-pens-luxury-fountain-pen-set-for-writing-smooth-medium-nib-includes-refillable-ink-convert-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ellington-pens-luxury-fountain-pen-set-for-writing-smooth-medium-nib-includes-refillable-ink-convert-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-fountain-pen-set-with-refillable-ink-converter-ambidextrous-smooth-medium-nib-design"><img alt="ellington-pens-luxury-fountain-pen-set-for-writing-smooth-medium-nib-includes-refillable-ink-convert-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ellington-pens-luxury-fountain-pen-set-for-writing-smooth-medium-nib-includes-refillable-ink-convert-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're looking for a sophisticated and smooth writing experience, the Ellington Pens Luxury Fountain Pen Set might be just what you need. With its stylish round body and comfortable ergonomic grip, this pen is perfect for both left and right-handed writers. The set comes complete with a refillable ink converter and three ink cartridges in black and blue, allowing you to switch up your ink colors with ease. 
 
@@ -325,9 +325,9 @@ One of the highlights of this set is its smooth medium nib, which ensures a cons
 However, it's essential to note that this pen might not suit everyone's needs or preferences. The refillable ink converter and ink cartridges may require some maintenance and upkeep, which could be seen as a drawback for those who prefer low-maintenance writing tools. Despite this, the Ellington Pens Luxury Fountain Pen Set offers a touch of luxury at an affordable price, providing a unique writing experience that is sure to impress. 
 
 
-### [Montblanc Writers Edition Homage to Brothers Grimm Limited Edition Fountain Pen](https://serp.ly/amazon/Fountain+Pen?utm\_term=montblanc-writers-edition-homage-to-brothers-grimm-limited-edition-fountain-pen)
+### [Montblanc Writers Edition Homage to Brothers Grimm Limited Edition Fountain Pen](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=montblanc-writers-edition-homage-to-brothers-grimm-limited-edition-fountain-pen)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=montblanc-writers-edition-homage-to-brothers-grimm-limited-edition-fountain-pen"><img alt="montblanc-writers-edition-homage-to-brothers-grimm-limited-edition1812-fountain-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/montblanc-writers-edition-homage-to-brothers-grimm-limited-edition1812-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=montblanc-writers-edition-homage-to-brothers-grimm-limited-edition-fountain-pen"><img alt="montblanc-writers-edition-homage-to-brothers-grimm-limited-edition1812-fountain-pen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/montblanc-writers-edition-homage-to-brothers-grimm-limited-edition1812-fountain-pen-1/h=540,fit=pad,background=black"/></a></div>
 
 The Montblanc Writers Edition Homage to Brothers Grimm Limited Edition 1812 Fountain Pen is a magical piece of writing instrument, inspired by the tales of Jacob and Wilhelm Grimm. The pen's design captures the essence of the stories like "Snow White", "Cinderella", and "Sleeping Beauty in the Wood". 
 
@@ -336,9 +336,9 @@ With a body made of metal and antique finish, it looks like an ancient mountain 
 The Montblanc Writers Edition is a fountain pen worth the tale, with a writing system that captivates imagination and the beauty of storytelling. 
 
 
-### [Wordsworth & Black Fountain Pen Set - Elegant Design and Customizable Experience](https://serp.ly/amazon/Fountain+Pen?utm\_term=wordsworth-black-fountain-pen-set-elegant-design-and-customizable-experience)
+### [Wordsworth & Black Fountain Pen Set - Elegant Design and Customizable Experience](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=wordsworth-black-fountain-pen-set-elegant-design-and-customizable-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=wordsworth-black-fountain-pen-set-elegant-design-and-customizable-experience"><img alt="wordsworth-black-fountain-pen-set-medium-nib-includes-6-ink-cartridges-and-ink-refill-converter-gift-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-set-medium-nib-includes-6-ink-cartridges-and-ink-refill-converter-gift-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=wordsworth-black-fountain-pen-set-elegant-design-and-customizable-experience"><img alt="wordsworth-black-fountain-pen-set-medium-nib-includes-6-ink-cartridges-and-ink-refill-converter-gift-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-set-medium-nib-includes-6-ink-cartridges-and-ink-refill-converter-gift-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the charm of the Wordsworth & Black Fountain Pen Set, a delightful blend of classic design and modern functionality. The set arrives in a stylish gift case, perfect for any occasion, and includes 6 ink cartridges and an ink refill converter, ensuring you never run out of ink. The medium nib provides smooth, precise writing, perfect for journaling, calligraphy, and more. 
 
@@ -347,9 +347,9 @@ Crafted with thoughtful attention to detail, this fountain pen boasts a sleek, e
 The Wordsworth & Black Fountain Pen Set promises a unique blend of style, craftsmanship, and comfort, offering a delightful touch of elegance to your daily writing routine. 
 
 
-### [Luxury Aluminum Carousel Fountain Pen - Plaited Gold Tress Edition](https://serp.ly/amazon/Fountain+Pen?utm\_term=luxury-aluminum-carousel-fountain-pen-plaited-gold-tress-edition)
+### [Luxury Aluminum Carousel Fountain Pen - Plaited Gold Tress Edition](https://serp.ly/@outrun/amazon/Fountain+Pen?utm\_term=luxury-aluminum-carousel-fountain-pen-plaited-gold-tress-edition)
 
-<div class="image"><a href="https://serp.ly/amazon/Fountain+Pen?utm_term=luxury-aluminum-carousel-fountain-pen-plaited-gold-tress-edition"><img alt="ferris-wheel-press-aluminum-carousel-fountain-pen-plaited-gold-tress-limited-edition-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ferris-wheel-press-aluminum-carousel-fountain-pen-plaited-gold-tress-limited-edition-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen?utm_term=luxury-aluminum-carousel-fountain-pen-plaited-gold-tress-edition"><img alt="ferris-wheel-press-aluminum-carousel-fountain-pen-plaited-gold-tress-limited-edition-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ferris-wheel-press-aluminum-carousel-fountain-pen-plaited-gold-tress-limited-edition-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the magic and nostalgia of a carousel with the Ferris Wheel Press Plaited Gold Tress Carousel fountain pen. This limited edition pen is crafted with aircraft-grade aluminum and features a custom-cut nib that offers delicate lines and ink flow. 
 
@@ -367,7 +367,7 @@ Fountain pens have been around for centuries, and despite the rise of ballpoint 
 
 Fountain pens are typically made from high-quality materials. The most common materials include metal, plastic, and resin. Metal pens are usually durable and have a classic appearance, while plastic and resin pens are often more lightweight and affordable. Some luxury pens are made from materials like gold or silver, adding a touch of elegance and durability to the pen. 
 
-<div><a href="https://serp.ly/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-2/h=540,fit=pad,background=black" alt="Fountain-Pen-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-2/h=540,fit=pad,background=black" alt="Fountain-Pen-2" height="540"></a></div>
 
 
 ### Nib Types
@@ -379,7 +379,7 @@ A fountain pen's nib is the writing tip. There are several types of nibs to choo
 
 Fountain pens use ink cartridges or converters to hold ink. There are many ink options available, including waterproof, water-soluble, and even scented inks. Consider the type of writing you will be doing and choose an ink that suits your needs. If you plan to use the pen for calligraphy or lettering, look for ink specifically designed for these purposes. 
 
-<div><a href="https://serp.ly/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-3/h=540,fit=pad,background=black" alt="Fountain-Pen-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-3/h=540,fit=pad,background=black" alt="Fountain-Pen-3" height="540"></a></div>
 
 
 ### Maintenance and Compatibility
@@ -389,7 +389,7 @@ Proper maintenance is essential to ensure your fountain pen performs well and la
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-4/h=540,fit=pad,background=black" alt="Fountain-Pen-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-4/h=540,fit=pad,background=black" alt="Fountain-Pen-4" height="540"></a></div>
 
 
 ### What is a fountain pen?
@@ -411,7 +411,7 @@ There are several types of fountain pen nibs, each with its unique characteristi
 
 Each type of nib has its unique characteristics and writing style, so it is essential to choose the one that best suits your writing needs and preferences. Some fountain pens also allow you to swap out the nibs, so you can experiment with different writing styles and find the one that works best for you.
 
-<div><a href="https://serp.ly/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-5/h=540,fit=pad,background=black" alt="Fountain-Pen-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-5/h=540,fit=pad,background=black" alt="Fountain-Pen-5" height="540"></a></div>
 
 
 ### How do fountain pens write differently than other pens?
@@ -427,7 +427,7 @@ Yes, fountain pens can be suitable for left-handed writers. The ink flow and wri
 
 In addition, there are left-handed fountain pens available on the market that are specifically designed for left-handed users. These pens feature a nib that is angled to the left, making it easier for left-handed writers to use without smudging or ink bleed. Some left-handed fountain pens also have a clip that is designed to be used with the left hand, making them a convenient and practical choice for left-handed writers.
 
-<div><a href="https://serp.ly/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-6/h=540,fit=pad,background=black" alt="Fountain-Pen-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Fountain+Pen"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Fountain-Pen-6/h=540,fit=pad,background=black" alt="Fountain-Pen-6" height="540"></a></div>
 
 
 ### What are some common fountain pen accessories?

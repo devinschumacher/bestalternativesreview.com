@@ -14,9 +14,9 @@ Skateboards have become a popular mode of transportation and recreational activi
 ## Reviews
 
 
-### [661 Youth Dirt Lid Helmet - Skateboard & BMX Essentials](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=661-youth-dirt-lid-helmet-skateboard-bmx-essentials)
+### [661 Youth Dirt Lid Helmet - Skateboard & BMX Essentials](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=661-youth-dirt-lid-helmet-skateboard-bmx-essentials)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=661-youth-dirt-lid-helmet-skateboard-bmx-essentials"><img alt="661-youth-dirt-lid-helmet-purple-small-medium-cpsc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/661-youth-dirt-lid-helmet-purple-small-medium-cpsc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=661-youth-dirt-lid-helmet-skateboard-bmx-essentials"><img alt="661-youth-dirt-lid-helmet-purple-small-medium-cpsc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/661-youth-dirt-lid-helmet-purple-small-medium-cpsc-1/h=540,fit=pad,background=black"/></a></div>
 
 The 661 Youth Dirt Lid Helmet is an excellent addition to your child's skateboarding gear. Its traditional skate style profile gives it a stylish and distinctive look, while the durable shell made from ABS ensures longevity and protection during use. The best part? 
 
@@ -25,9 +25,9 @@ One size fits most, making it perfect for sharing among siblings or friends. Cus
 The helmet also caters to various multi-sport activities, making it versatile and a practical investment. Overall, this helmet is a great value at a reasonable price, providing a balance of style, protection, and versatility for your child's skateboarding adventures. 
 
 
-### [Giro Ledge Helmet: Matte Graphite - Skateboard Safety](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=giro-ledge-helmet-matte-graphite-skateboard-safety)
+### [Giro Ledge Helmet: Matte Graphite - Skateboard Safety](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=giro-ledge-helmet-matte-graphite-skateboard-safety)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=giro-ledge-helmet-matte-graphite-skateboard-safety"><img alt="giro-ledge-helmet-matte-graphite-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/giro-ledge-helmet-matte-graphite-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=giro-ledge-helmet-matte-graphite-skateboard-safety"><img alt="giro-ledge-helmet-matte-graphite-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/giro-ledge-helmet-matte-graphite-s-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Giro Ledge Helmet while hitting the slopes and it exceeded my expectations. Its minimalist skate-style design and hard shell construction made it perfect for freestyle and park riding, offering both strength and style. 
 
@@ -36,9 +36,9 @@ I loved the Auto Loc 2 Fit System, which allowed for a custom fit, and the Stack
 Overall, I would highly recommend this helmet to anyone in the market for a quality snowboarding helmet. 
 
 
-### [Retro 70s Skateboard Helmet with Full Ear Coverage](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=retro-70s-skateboard-helmet-with-full-ear-coverage)
+### [Retro 70s Skateboard Helmet with Full Ear Coverage](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=retro-70s-skateboard-helmet-with-full-ear-coverage)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=retro-70s-skateboard-helmet-with-full-ear-coverage"><img alt="pro-tec-full-cut-skate-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-full-cut-skate-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=retro-70s-skateboard-helmet-with-full-ear-coverage"><img alt="pro-tec-full-cut-skate-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-full-cut-skate-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first tried on the Pro-Tec Full Cut Skate Helmet, I was amazed at how sturdy and solid it felt. The outer ABS shell and 2-stage premium foam liner are perfect for absorbing those low impacts we often face during action sports. 
 
@@ -49,9 +49,9 @@ The helmet's full coverage design is simply fantastic, as the ear coverage gives
 Overall, the Pro-Tec Full Cut Skate Helmet is an excellent choice for skating enthusiasts who want both style and protection. 
 
 
-### [Gonz Checkers Pro Tec Full Cut Skateboard Helmet - High Impact Protection](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=gonz-checkers-pro-tec-full-cut-skateboard-helmet-high-impact-protection)
+### [Gonz Checkers Pro Tec Full Cut Skateboard Helmet - High Impact Protection](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=gonz-checkers-pro-tec-full-cut-skateboard-helmet-high-impact-protection)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=gonz-checkers-pro-tec-full-cut-skateboard-helmet-high-impact-protection"><img alt="pro-tec-full-cut-skate-helmet-gonz-checkers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-full-cut-skate-helmet-gonz-checkers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=gonz-checkers-pro-tec-full-cut-skateboard-helmet-high-impact-protection"><img alt="pro-tec-full-cut-skate-helmet-gonz-checkers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-full-cut-skate-helmet-gonz-checkers-1/h=540,fit=pad,background=black"/></a></div>
 
 The Gonz Checkers Pro Tec Full Cut Skate Helmet masterfully balances style and safety. Featuring a high-impact ABS plastic liner, a dual-stage foam venting system, and a generous 11 interior vents, this protective headgear ensures both your head's security and your comfort during your skating escapades. 
 
@@ -60,9 +60,9 @@ The Dri-Lex 2-stage, dual-density foam liner ensures a secure fit for any shape 
 This helmet guarantees your head's well-being, putting worries at ease as you embark on your skateboarding adventures. 
 
 
-### [K2 Varsity Skateboard and Bike Helmet for Skaters and Cyclists](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=k2-varsity-skateboard-and-bike-helmet-for-skaters-and-cyclists)
+### [K2 Varsity Skateboard and Bike Helmet for Skaters and Cyclists](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=k2-varsity-skateboard-and-bike-helmet-for-skaters-and-cyclists)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=k2-varsity-skateboard-and-bike-helmet-for-skaters-and-cyclists"><img alt="k2-varsity-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-varsity-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=k2-varsity-skateboard-and-bike-helmet-for-skaters-and-cyclists"><img alt="k2-varsity-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-varsity-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 For those looking for a dependable and stylish helmet for skating and biking, the K2 Varsity helmet is a top contender. Available in sizes S, M, and L, this versatile protective gear is perfect for adventurists of all levels. 
 
@@ -73,9 +73,9 @@ Boasting a DIN EN 1078 certification, this helmet is suitable for various activi
 Celebrated for its classic style and exceptional value, the K2 Varsity is an ideal choice for any outdoor enthusiast looking to elevate their skating and biking experience. 
 
 
-### [Triple Eight Gotham Dual Certified MIPS Skateboard Helmet - White](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=triple-eight-gotham-dual-certified-mips-skateboard-helmet-white)
+### [Triple Eight Gotham Dual Certified MIPS Skateboard Helmet - White](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=triple-eight-gotham-dual-certified-mips-skateboard-helmet-white)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=triple-eight-gotham-dual-certified-mips-skateboard-helmet-white"><img alt="triple-eight-gotham-dual-certified-with-mips-skateboard-helmet-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-gotham-dual-certified-with-mips-skateboard-helmet-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=triple-eight-gotham-dual-certified-mips-skateboard-helmet-white"><img alt="triple-eight-gotham-dual-certified-with-mips-skateboard-helmet-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-gotham-dual-certified-with-mips-skateboard-helmet-white-1/h=540,fit=pad,background=black"/></a></div>
 
 The Gotham MIPS helmet from Triple Eight truly stands out among its competitors. With its dual certification for both bike and skate use, this robust and stylish helmet is a must-have for all active skaters and cyclists. It boasts an ABS outer shell and Conehead EPS liner, which work together to provide a superior level of protection that's perfect for those daring tricks. The addition of the MIPS layer takes protection to the next level, making this helmet an excellent choice for those who prioritize safety. 
 
@@ -86,9 +86,9 @@ One of the standout features of this helmet is the availability of extra padding
 In conclusion, the Gotham MIPS helmet from Triple Eight is the perfect combination of style, comfort, and protection for all skateboarders and cyclists. With its impressive features and affordable price, it's the ultimate choice for anyone looking to take their skateboarding and cycling experiences to the next level. 
 
 
-### [Triple Eight Gotham Skateboard Helmet with Adjustable Fit](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=triple-eight-gotham-skateboard-helmet-with-adjustable-fit)
+### [Triple Eight Gotham Skateboard Helmet with Adjustable Fit](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=triple-eight-gotham-skateboard-helmet-with-adjustable-fit)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=triple-eight-gotham-skateboard-helmet-with-adjustable-fit"><img alt="skate-helmet-triple-eight-gotham-darklight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skate-helmet-triple-eight-gotham-darklight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=triple-eight-gotham-skateboard-helmet-with-adjustable-fit"><img alt="skate-helmet-triple-eight-gotham-darklight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skate-helmet-triple-eight-gotham-darklight-1/h=540,fit=pad,background=black"/></a></div>
 
 The Triple Eight Gotham helmet has become my go-to choice for both skateboarding and cycling. Its stylish yet practical design caught my eye from the start, with the subtle brim and Triple Eight logo venting adding a nice touch. But what really impressed me was the adjustable fit dial system. It allowed me to customize the helmet to fit like a glove, ensuring optimal comfort and safety during my adventures. 
 
@@ -99,9 +99,9 @@ However, there were a few areas that could use improvement. The package I receiv
 In the end, I have to say that I'm quite satisfied with my choice. The Triple Eight Gotham helmet offers a perfect blend of style and safety, and I've found it to be both comfortable and reliable during my rides. 
 
 
-### [Premium Youth Skateboard & BMX Bike Helmet with Interchangeable Size Adjustment](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment)
+### [Premium Youth Skateboard & BMX Bike Helmet with Interchangeable Size Adjustment](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment"><img alt="punisher-skateboards-youth-13-vent-bright-neon-green-dual-safety-certified-bmx-bike-and-skateboard-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/punisher-skateboards-youth-13-vent-bright-neon-green-dual-safety-certified-bmx-bike-and-skateboard-h-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment"><img alt="punisher-skateboards-youth-13-vent-bright-neon-green-dual-safety-certified-bmx-bike-and-skateboard-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/punisher-skateboards-youth-13-vent-bright-neon-green-dual-safety-certified-bmx-bike-and-skateboard-h-1/h=540,fit=pad,background=black"/></a></div>
 
 Lately, I've been trying out the Punisher Skateboards Premium Youth Helmet for skateboarding and BMX biking, which has been quite a thrill. The first thing that struck me was the vibrant neon green color, which was sure to stand out in the crowd. It's a cool mix of style and practicality, perfect for adrenaline junkies who love living life on the edge. 
 
@@ -114,9 +114,9 @@ While the helmet's design, ventilation, and easy usage all get top marks, there'
 Overall, the Punisher Skateboards Premium Youth Helmet is a reliable choice for any child who's eager to make a statement while keeping their head protected and cool during their BMX bike and skateboard adventures. It may be a bit heavier, but the benefits far outweigh the issue. 
 
 
-### [Razor Full Face Multi-Sport Helmet for Ages 8 Up](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=razor-full-face-multi-sport-helmet-for-ages-8-up)
+### [Razor Full Face Multi-Sport Helmet for Ages 8 Up](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=razor-full-face-multi-sport-helmet-for-ages-8-up)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=razor-full-face-multi-sport-helmet-for-ages-8-up"><img alt="razor-full-face-multi-sport-helmet-black-red-for-ages-8-up-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/razor-full-face-multi-sport-helmet-black-red-for-ages-8-up-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=razor-full-face-multi-sport-helmet-for-ages-8-up"><img alt="razor-full-face-multi-sport-helmet-black-red-for-ages-8-up-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/razor-full-face-multi-sport-helmet-black-red-for-ages-8-up-1/h=540,fit=pad,background=black"/></a></div>
 
 As a dad who's always been cautious about his children's safety, I had high expectations for the Razor Full-Face Helmet Black/Red. I wanted something that offered complete coverage and protection, and this helmet seemed like a perfect choice. When it arrived, I excitedly threw it on my 9-year-old for a test ride. The fit was surprisingly comfortable, and the large eye ports meant we could even pop some goggles on for extra eye protection. 
 
@@ -125,9 +125,9 @@ Initially, I was a bit concerned about the visor screws not holding as tight as 
 One thing I noticed, though, was that this helmet might not be appropriate for motorized sports like go-karts or scooters that exceed 17 mph. Apart from that, it's a solid choice for keeping the kiddos safe during all sorts of outdoor activities. The Razor Full-Face Helmet has become an essential part of our family's safety gear, and I wholeheartedly recommend it to other parents who want to ensure their kids' protection while enjoying some awesome skateboarding fun. 
 
 
-### [TSG Evolution Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-skateboard-helmet)
+### [TSG Evolution Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=tsg-evolution-skateboard-helmet"><img alt="tsg-evolution-helmet-satin-coal-s-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-satin-coal-s-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=tsg-evolution-skateboard-helmet"><img alt="tsg-evolution-helmet-satin-coal-s-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-satin-coal-s-m-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to experience the ultimate in skateboard helmet protection with TSG's Evolution model in Satin Coal. This sleek and stylish design offers a custom low, snug fit, making it one of the slimmest hardshell helmets on the market. 
 
@@ -140,9 +140,9 @@ Each helmet shell is size-specific, ensuring a proper and comfortable fit for va
 Rated 4.6 out of 5 stars by satisfied customers, the TSG Evolution Satin Coal skateboard helmet sets a new standard for protection, style, and comfort. 
 
 
-### [Bern Watts 2.0 MIPS Skateboard Helmet - Matte Sand](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=bern-watts-2-0-mips-skateboard-helmet-matte-sand)
+### [Bern Watts 2.0 MIPS Skateboard Helmet - Matte Sand](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=bern-watts-2-0-mips-skateboard-helmet-matte-sand)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=bern-watts-2-0-mips-skateboard-helmet-matte-sand"><img alt="bern-watts-2-0-mips-helmet-matte-sand-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-2-0-mips-helmet-matte-sand-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=bern-watts-2-0-mips-skateboard-helmet-matte-sand"><img alt="bern-watts-2-0-mips-helmet-matte-sand-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-2-0-mips-helmet-matte-sand-l-1/h=540,fit=pad,background=black"/></a></div>
 
 The new and improved Bern Watts 2.0 MIPS Helmet boasts our iconic brim-style design, added protection, and comfort, perfect for any season or sport. With 11 vents, you'll stay comfortable while maintaining airflow. 
 
@@ -151,9 +151,9 @@ The Compass Fit system ensures your perfect fit with a twist of the dial, keepin
 This all-season, multi-sport lid features a half-shell style and can be easily transformed for use year-round with the winter knit attachment. 
 
 
-### [SFR Skateboard Helmet in Purple - XXS/XS - ABS Material with 11 Ventilation Holes](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=sfr-skateboard-helmet-in-purple-xxs-xs-abs-material-with-11-ventilation-holes)
+### [SFR Skateboard Helmet in Purple - XXS/XS - ABS Material with 11 Ventilation Holes](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=sfr-skateboard-helmet-in-purple-xxs-xs-abs-material-with-11-ventilation-holes)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=sfr-skateboard-helmet-in-purple-xxs-xs-abs-material-with-11-ventilation-holes"><img alt="sfr-skate-helmet-xxs-xs-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sfr-skate-helmet-xxs-xs-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=sfr-skateboard-helmet-in-purple-xxs-xs-abs-material-with-11-ventilation-holes"><img alt="sfr-skate-helmet-xxs-xs-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sfr-skate-helmet-xxs-xs-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 The SFR Skate Helmet in a vibrant purple hue has been a lifesaver when it comes to keeping my little one safe while skating. With its adjustable chin strap, it perfectly fits my daughter's head, ensuring her comfort and style. 
 
@@ -164,9 +164,9 @@ No more sweating profusely! Even my friends compliment the helmet's sturdiness a
 Highly recommended for skateboard enthusiasts who value safety and style. 
 
 
-### [Status Youth Skateboard Helmet: Comfort, Protection, and Style](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=status-youth-skateboard-helmet-comfort-protection-and-style)
+### [Status Youth Skateboard Helmet: Comfort, Protection, and Style](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=status-youth-skateboard-helmet-comfort-protection-and-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=status-youth-skateboard-helmet-comfort-protection-and-style"><img alt="100-youth-status-black-helmet-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-youth-status-black-helmet-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=status-youth-skateboard-helmet-comfort-protection-and-style"><img alt="100-youth-status-black-helmet-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-youth-status-black-helmet-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the 100% Youth Status Black Helmet, designed specifically for younger riders. Offering an ultra-lightweight design with a fiberglass shell that provides enhanced protection without adding extra weight, this helmet is a top choice for those looking for comfort and safety on their mountain bike. 
 
@@ -177,9 +177,9 @@ Engineered with two shell sizes and two EPS sizes, the Youth Status Black Helmet
 The padded PU chinbar enhances all-around protection, and the adjustable visor allows you to customize the helmet's fit to your preferences. Overall, the Status Youth helmet is an excellent choice for those seeking quality protection and comfort for their little shredders. 
 
 
-### [K2 Varsity Skateboard Helmet (Blue)](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=k2-varsity-skateboard-helmet-blue)
+### [K2 Varsity Skateboard Helmet (Blue)](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=k2-varsity-skateboard-helmet-blue)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=k2-varsity-skateboard-helmet-blue"><img alt="k2-skate-varsity-helmet-blue-l-30g4221-1-1-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-helmet-blue-l-30g4221-1-1-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=k2-varsity-skateboard-helmet-blue"><img alt="k2-skate-varsity-helmet-blue-l-30g4221-1-1-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-helmet-blue-l-30g4221-1-1-l-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I tried out the K2 Skate Varsity Helmet in Blue, and I have to say, it's a great option for both kids and adults who enjoy skate sessions. The first thing I noticed was the sturdy ABS shell that provides excellent protection for your head. It's reassuring to know that this helmet is designed with safety in mind. 
 
@@ -190,9 +190,9 @@ One downside I experienced was the helmet's certification only for bicycle safet
 Overall, the K2 Skate Varsity Helmet is a durable and comfortable option for anyone looking to stay safe while enjoying their favorite skate activities. 
 
 
-### [Adjustable Skateboard Helmet for HURTSHBL (Hurtsh)](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=adjustable-skateboard-helmet-for-hurtshbl-hurtsh)
+### [Adjustable Skateboard Helmet for HURTSHBL (Hurtsh)](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=adjustable-skateboard-helmet-for-hurtshbl-hurtsh)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=adjustable-skateboard-helmet-for-hurtshbl-hurtsh"><img alt="adjustable-skate-helmet-hurtshlbl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adjustable-skate-helmet-hurtshlbl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=adjustable-skateboard-helmet-for-hurtshbl-hurtsh"><img alt="adjustable-skate-helmet-hurtshlbl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adjustable-skate-helmet-hurtshlbl-1/h=540,fit=pad,background=black"/></a></div>
 
 This hurtslbl skate helmet stands out with its adjustable fit, ensuring you find the perfect comfort for your head. With dual certifications from CPSC and ASTM, it's a multi-sport helmet designed to protect you during intense activities. 
 
@@ -201,9 +201,9 @@ The combination of a strong ABS shell and thick black EPS foam offers excellent 
 Though a bit on the heavy side, its rugged and durable design is built to withstand the test of time, making it a worthy investment for skateboarding enthusiasts. 
 
 
-### [Kryptonics Pink Starter Skate Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=kryptonics-pink-starter-skate-helmet)
+### [Kryptonics Pink Starter Skate Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=kryptonics-pink-starter-skate-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=kryptonics-pink-starter-skate-helmet"><img alt="kryptonics-pink-starter-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kryptonics-pink-starter-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=kryptonics-pink-starter-skate-helmet"><img alt="kryptonics-pink-starter-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kryptonics-pink-starter-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to wear the Kryptonics Pink Starter Helmet while riding my skateboard. The adjustable nylon chin strap was a cinch to pull tight for a snug fit, and it even came with easy-to-spot reflective material for increased visibility. The outer shell, made of ABS, felt sturdy, and the matte finish added a touch of style to the helmet. 
 
@@ -212,9 +212,9 @@ The foam core with padded liners did a great job of absorbing impacts during my 
 Kryptonics has been leading the skateboarding industry since 1965, and with their innovative attitude, they continue to push the boundaries of helmet design. 
 
 
-### [Protective 67i Skateboard Helmet for Multiple Sports](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=protective-67i-skateboard-helmet-for-multiple-sports)
+### [Protective 67i Skateboard Helmet for Multiple Sports](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=protective-67i-skateboard-helmet-for-multiple-sports)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=protective-67i-skateboard-helmet-for-multiple-sports"><img alt="67i-skateboard-helmet-adult-bike-helmet-adjustable-and-protection-for-skating-helmet-adults-multi-sp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/67i-skateboard-helmet-adult-bike-helmet-adjustable-and-protection-for-skating-helmet-adults-multi-sp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=protective-67i-skateboard-helmet-for-multiple-sports"><img alt="67i-skateboard-helmet-adult-bike-helmet-adjustable-and-protection-for-skating-helmet-adults-multi-sp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/67i-skateboard-helmet-adult-bike-helmet-adjustable-and-protection-for-skating-helmet-adults-multi-sp-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the 67i Skateboard Helmet for a while now, and I must say I'm quite impressed. As an avid skateboarder myself, I can attest to the fact that safety is of utmost importance. This helmet, made from an impressive combination of ABS and EPS, provides the ultimate protection I need. 
 
@@ -223,9 +223,9 @@ One feature that stood out for me is its full adjustability. Being able to perfe
 I also appreciate the versatility of this helmet. It's not just for skateboarding; it's suitable for a wide range of sports, including mountain biking. With multiple colors and sizes available, this helmet has got everyone in the family covered. Overall, I highly recommend the 67i Skateboard Helmet to anyone looking for a reliable and comfortable helmet for a variety of outdoor activities. 
 
 
-### [Thousand Heritage 2.0 Skateboard Helmet Navy](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=thousand-heritage-2-0-skateboard-helmet-navy)
+### [Thousand Heritage 2.0 Skateboard Helmet Navy](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=thousand-heritage-2-0-skateboard-helmet-navy)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=thousand-heritage-2-0-skateboard-helmet-navy"><img alt="heritage-2-0-bike-skate-helmet-thousand-helmets-navy-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heritage-2-0-bike-skate-helmet-thousand-helmets-navy-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=thousand-heritage-2-0-skateboard-helmet-navy"><img alt="heritage-2-0-bike-skate-helmet-thousand-helmets-navy-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heritage-2-0-bike-skate-helmet-thousand-helmets-navy-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 The Heritage 2.0 Bike & Skate Helmet from Thousand Helmets is an updated version of their classic helmet, designed with a focus on improved ventilation, enhanced fit, and increased safety. The lightweight helmet is constructed using ABS plastic and boasts 6 ventilation ports, ensuring a cooler riding experience. The fit is adjustable through a dial mechanism, making it suitable for a wide range of head sizes. The built-in low profile visor is not only sleek but also serves as a convenient way to keep the sun or rain out of your eyes during your activities. 
 
@@ -236,9 +236,9 @@ In addition to its high-quality construction and active ventilation, the Heritag
 While the Heritage 2.0 Bike & Skate Helmet has received largely positive reviews, some users have noted that the helmet's outer shell is prone to scratches and scuffs when in contact with rough surfaces. Nevertheless, the helmet's stylish design, excellent ventilation, and commitment to protecting your head make it a solid choice for fans of skateboarding and other outdoor activities. 
 
 
-### [Madd Gear CPSC Certified Multi-Sport Adjustable Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=madd-gear-cpsc-certified-multi-sport-adjustable-skateboard-helmet)
+### [Madd Gear CPSC Certified Multi-Sport Adjustable Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=madd-gear-cpsc-certified-multi-sport-adjustable-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=madd-gear-cpsc-certified-multi-sport-adjustable-skateboard-helmet"><img alt="madd-gear-cpsc-certified-helmet-multi-sport-adjustable-bike-skate-inline-scoot-medium-large-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madd-gear-cpsc-certified-helmet-multi-sport-adjustable-bike-skate-inline-scoot-medium-large-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=madd-gear-cpsc-certified-multi-sport-adjustable-skateboard-helmet"><img alt="madd-gear-cpsc-certified-helmet-multi-sport-adjustable-bike-skate-inline-scoot-medium-large-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madd-gear-cpsc-certified-helmet-multi-sport-adjustable-bike-skate-inline-scoot-medium-large-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Madd Gear EPS Helmet is a versatile choice for a wide range of skating activities, perfect for ages 5 and up. With a head circumference of 22-23.6 inches, this helmet offers a comfortable and lightweight fit, making it ideal for young riders. The CPS-certified helmet features an adjustable dial-fit system, ensuring the best fit for each individual. This helmet meets the highest testing and safety standards, providing riders with a sense of confidence and security during their adventures. 
 
@@ -249,9 +249,9 @@ The helmet also includes adjustable straps that can be easily adjusted to achiev
 Some users have reported issues with the light-up wheels, as they only work when ridden at high speeds, which may not be suitable for young children. However, overall, the Madd Gear skateboard helmet is a reliable and well-designed option for those looking for a helmet that can cater to a variety of skating activities while providing a safe and comfortable fit for kids of all ages. 
 
 
-### [TSG Evolution Skateboard Helmet - Custom Fit & CE Certified Safety](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-skateboard-helmet-custom-fit-ce-certified-safety)
+### [TSG Evolution Skateboard Helmet - Custom Fit & CE Certified Safety](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-skateboard-helmet-custom-fit-ce-certified-safety)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=tsg-evolution-skateboard-helmet-custom-fit-ce-certified-safety"><img alt="tsg-evolution-helmet-satin-cauma-green-l-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-satin-cauma-green-l-xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=tsg-evolution-skateboard-helmet-custom-fit-ce-certified-safety"><img alt="tsg-evolution-helmet-satin-cauma-green-l-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-satin-cauma-green-l-xl-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the TSG Evolution Helmet, a hardshell design that offers a snug fit and anatomically correct protection for your head. The low-profile, easy-to-wear helmet features a tuned fit system, allowing you to personalize your fit with different thickness pads, and a snug fit system that ensures your head touches the helmet all around. The slender design provides a comfortable fit without impairing your hearing or vision. 
 
@@ -260,9 +260,9 @@ Safety is at the forefront of TSG, and the Evolution helmet is no exception. It'
 The Evolution helmet comes with size-specific shells and two sets of pad for a true custom snug fit, ensuring your safety and comfort. This versatile, high-quality, and stylish helmet is the ideal choice for skateboard enthusiasts and is even suitable for other fun activities like scooting and BMX biking. Don't compromise on safety; choose the TSG Evolution Helmet for your next session on the board. 
 
 
-### [K2 Skate Varsity Pro Orange Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=k2-skate-varsity-pro-orange-skateboard-helmet)
+### [K2 Skate Varsity Pro Orange Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=k2-skate-varsity-pro-orange-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=k2-skate-varsity-pro-orange-skateboard-helmet"><img alt="k2-skate-varsity-pro-helmet-orange-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-pro-helmet-orange-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=k2-skate-varsity-pro-orange-skateboard-helmet"><img alt="k2-skate-varsity-pro-helmet-orange-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-pro-helmet-orange-m-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the K2 Skate Varsity Pro Helmet Orange M for a couple of months now, and I must say, it's been a game-changer for me. As someone who enjoys both biking and skateboarding, I need a helmet that can keep up with my active lifestyle. 
 
@@ -275,9 +275,9 @@ However, there are a couple of things that could be improved. The pads could use
 Overall, the K2 Skate Varsity Pro Helmet Orange M has been a reliable and comfortable companion during my biking and skateboarding adventures. Its lightweight design and customizable fit make it a great choice for anyone looking for a versatile and high-quality helmet. 
 
 
-### [Bern Watts EPS Matte Black Skate Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=bern-watts-eps-matte-black-skate-helmet)
+### [Bern Watts EPS Matte Black Skate Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=bern-watts-eps-matte-black-skate-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=bern-watts-eps-matte-black-skate-helmet"><img alt="bern-helmets-watts-eps-matte-black-skate-helmet-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-helmets-watts-eps-matte-black-skate-helmet-small-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=bern-watts-eps-matte-black-skate-helmet"><img alt="bern-helmets-watts-eps-matte-black-skate-helmet-small-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-helmets-watts-eps-matte-black-skate-helmet-small-1/h=540,fit=pad,background=black"/></a></div>
 
 Protect your noggin in style with the Bern Helmets Watts EPS Matte Black Skate Helmet. Designed for skaters in mind, this helmet boasts a classic, yet modern look, perfect for cruising down the pavement or hitting the ramps. 
 
@@ -292,9 +292,9 @@ One downside is the wind noise from the helmet strap, which can be a bit of a nu
 Overall, I would highly recommend the Bern Helmets Watts EPS Matte Black Skate Helmet to any skateboarder looking for a stylish yet functional helmet to protect their head while ripping the streets or ramps. 
 
 
-### [TSG Evolution Black Skateboard Helmet for Youth](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-black-skateboard-helmet-for-youth)
+### [TSG Evolution Black Skateboard Helmet for Youth](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-black-skateboard-helmet-for-youth)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=tsg-evolution-black-skateboard-helmet-for-youth"><img alt="tsg-evolution-youth-helmet-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-youth-helmet-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=tsg-evolution-black-skateboard-helmet-for-youth"><img alt="tsg-evolution-youth-helmet-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-youth-helmet-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The TSG Evolution Youth Helmet in black is a fantastic choice for a slim, comfortable helmet to wear during your daily life. I was impressed with its tough skate-style hardshell construction that securely protects your head. The low cut fit made the helmet quite comfortable to wear, and the Tuned Fit size adjustment system made it a breeze to wear. 
 
@@ -305,18 +305,18 @@ However, I noticed that this helmet had limited head circumference sizes for bot
 Overall, the TSG Evolution Youth Helmet is a great investment for those seeking comfort, safety, and quality at an affordable price point. I highly recommend it for anyone looking to stay protected during their various activities without sacrificing comfort. 
 
 
-### [Bern Watts Skateboarding EPS Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=bern-watts-skateboarding-eps-helmet)
+### [Bern Watts Skateboarding EPS Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=bern-watts-skateboarding-eps-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=bern-watts-skateboarding-eps-helmet"><img alt="bern-watts-eps-helmet-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-eps-helmet-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=bern-watts-skateboarding-eps-helmet"><img alt="bern-watts-eps-helmet-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-eps-helmet-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer who loves to spend time on the skateboard, I have been using the Bern Watts EPS Helmet in Matte Black for quite some time now. This helmet not only looks great but also feels comfortable during my rides. The Crank Fit Dial adjustment feature stands out for me as it allows me to fine-tune the fit on my head perfectly, while the thin shell technology with EPS foam insert ensures a lightweight and burly helmet during my skateboarding sessions. 
 
 However, I've found that the helmet can be a bit warm during hot days, probably due to the lack of ventilation options. Nonetheless, the Bern Watts EPS Helmet is a worthy investment for anyone looking for both style and safety while skateboarding. 
 
 
-### [Onewheel S1 Retro XXL Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=onewheel-s1-retro-xxl-skateboard-helmet)
+### [Onewheel S1 Retro XXL Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=onewheel-s1-retro-xxl-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=onewheel-s1-retro-xxl-skateboard-helmet"><img alt="onewheel-s1-retro-helmet-xxl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/onewheel-s1-retro-helmet-xxl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=onewheel-s1-retro-xxl-skateboard-helmet"><img alt="onewheel-s1-retro-helmet-xxl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/onewheel-s1-retro-helmet-xxl-1/h=540,fit=pad,background=black"/></a></div>
 
 Protect your head and turn heads in style with the Onewheel S1 Retro Helmet. This modern yet retro take on headgear is perfect for someone who wants to make a statement while staying safe. 
 
@@ -325,27 +325,27 @@ The helmet comes in a variety of sizes, so you can find the right fit for your h
 So, whether you're a skateboarder, snowboarder, or just someone who wants to stay protected while having fun, the Onewheel S1 Retro Helmet is a must-have. 
 
 
-### [Sleek and Safe K2 Varsity MIPS Skateboard Helmet with CPSC Certification](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=sleek-and-safe-k2-varsity-mips-skateboard-helmet-with-cpsc-certification)
+### [Sleek and Safe K2 Varsity MIPS Skateboard Helmet with CPSC Certification](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=sleek-and-safe-k2-varsity-mips-skateboard-helmet-with-cpsc-certification)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=sleek-and-safe-k2-varsity-mips-skateboard-helmet-with-cpsc-certification"><img alt="k2-skate-varsity-mips-helmet-black-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-mips-helmet-black-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=sleek-and-safe-k2-varsity-mips-skateboard-helmet-with-cpsc-certification"><img alt="k2-skate-varsity-mips-helmet-black-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-mips-helmet-black-m-1/h=540,fit=pad,background=black"/></a></div>
 
 The K2 Varsity MIPS helmet has been my go-to choice for skateboarding recently. Not only does it look great with its sleek design, but it also prioritizes safety. I love the Adjustments feature as it allows both my husband and son to have a proper fit, and the Certification ensures it meets safety standards. 
 
 On the downside, I wish the sizing chart was a bit clearer, and it has a tendency to get a little warm during longer sessions. Overall, a solid choice for those who value style and safety in their skateboarding gear. 
 
 
-### [High-Performance Skateboard Helmet with EPS Foam and ASTM Certification](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=high-performance-skateboard-helmet-with-eps-foam-and-astm-certification)
+### [High-Performance Skateboard Helmet with EPS Foam and ASTM Certification](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=high-performance-skateboard-helmet-with-eps-foam-and-astm-certification)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=high-performance-skateboard-helmet-with-eps-foam-and-astm-certification"><img alt="destroyer-certified-skate-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/destroyer-certified-skate-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=high-performance-skateboard-helmet-with-eps-foam-and-astm-certification"><img alt="destroyer-certified-skate-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/destroyer-certified-skate-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 The Destroyer Certified Skate Helmet boasts a top-notch reputation for ensuring safety and adaptability for individuals aged 5 and above who engage in skateboarding, biking, and skiing. This premium helmet is equipped with a sturdy EPS Foam Insert and a durable ABS Outer Shell, designed to handle impacts and safeguard the wearer in case of accidents. The High Flow Articulated Venting System guarantees optimal air circulation, maintaining the user's comfort and coolness during physically demanding activities. 
 
 The Matte Finish and Gloss Tonal Logo add a touch of sophistication to the helmet. Furthermore, it is certified with vital safety standards such as CPSC, ASTM, and CE EN 1078 certifications. Users commend its prompt shipping and its versatility, making it a sought-after choice for those who enjoy diverse outdoor pursuits. 
 
 
-### [Triple Eight Certified Sweatsaver Skateboard Helmet with CPSC Bike and ASTM Safety Standards](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=triple-eight-certified-sweatsaver-skateboard-helmet-with-cpsc-bike-and-astm-safety-standards)
+### [Triple Eight Certified Sweatsaver Skateboard Helmet with CPSC Bike and ASTM Safety Standards](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=triple-eight-certified-sweatsaver-skateboard-helmet-with-cpsc-bike-and-astm-safety-standards)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=triple-eight-certified-sweatsaver-skateboard-helmet-with-cpsc-bike-and-astm-safety-standards"><img alt="triple-eight-the-certified-sweatsaver-helmet-white-xl-xxl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-the-certified-sweatsaver-helmet-white-xl-xxl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=triple-eight-certified-sweatsaver-skateboard-helmet-with-cpsc-bike-and-astm-safety-standards"><img alt="triple-eight-the-certified-sweatsaver-helmet-white-xl-xxl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-the-certified-sweatsaver-helmet-white-xl-xxl-1/h=540,fit=pad,background=black"/></a></div>
 
 Triple Eight's Certified Sweatsaver Helmet is a standout, providing both comfort and protection for skaters and cyclists of all ages. This top-tier helmet is packed with features, including high impact absorption EPS foam, dual-certified protection meeting CPSC Bike and ASTM Skate safety standards, and a Sweatsaver Liner for an adjustable and comfortable fit. 
 
@@ -354,9 +354,9 @@ Reviewers rave about the perfect size and fit, with children adoring the vibrant
 With a low profile design and two sets of Sweatsaver Liners, the Certified Sweatsaver Helmet is not just a stylish accessory, but a reliable and sturdy investment for enthusiasts of all ages. 
 
 
-### [Affordable Skateboard Helmet with Adjustable Fit](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=affordable-skateboard-helmet-with-adjustable-fit)
+### [Affordable Skateboard Helmet with Adjustable Fit](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=affordable-skateboard-helmet-with-adjustable-fit)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=affordable-skateboard-helmet-with-adjustable-fit"><img alt="bullet-deluxe-skateboard-helmet-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullet-deluxe-skateboard-helmet-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=affordable-skateboard-helmet-with-adjustable-fit"><img alt="bullet-deluxe-skateboard-helmet-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullet-deluxe-skateboard-helmet-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience a significant upgrade in skateboarding safety with the Matte Black Bullet Deluxe Skateboard Helmet. Combining unmatched comfort and outstanding protection, this helmet is a standout choice for enthusiasts seeking top-notch headgear.
 
@@ -369,9 +369,9 @@ Although it carries a higher price tag compared to some other skateboard helmets
 In conclusion, the Matte Black Bullet Deluxe Skateboard Helmet showcases exceptional style, functionality, and safety. If you prioritize your protection on the board and seek a high-end helmet, this is the perfect choice for you.
 
 
-### [TSG Evolution Black/L/XL Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-black-l-xl-skateboard-helmet)
+### [TSG Evolution Black/L/XL Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=tsg-evolution-black-l-xl-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=tsg-evolution-black-l-xl-skateboard-helmet"><img alt="tsg-evolution-helmet-injected-black-l-xl-57-59-cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-injected-black-l-xl-57-59-cm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=tsg-evolution-black-l-xl-skateboard-helmet"><img alt="tsg-evolution-helmet-injected-black-l-xl-57-59-cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-injected-black-l-xl-57-59-cm-1/h=540,fit=pad,background=black"/></a></div>
 
 The TSG Evolution helmet takes skateboard protection to the next level, with a tough skate-style hardshell construction that securely protects the noggin. Its low snug fit is one of the slimmest hardshell designs available, providing tailored wearing comfort. 
 
@@ -380,9 +380,9 @@ The ventilation system features 14 aerodynamic vents and air flow channels in th
 However, a few users mentioned issues with sizing and the lack of an adjustable occipital strap. Regardless, the TSG Evolution helmet has received high ratings and is a popular choice among skateboarders. 
 
 
-### [Pro Tec Old School Skateboard Helmet - Matte Seaweed](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=pro-tec-old-school-skateboard-helmet-matte-seaweed)
+### [Pro Tec Old School Skateboard Helmet - Matte Seaweed](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=pro-tec-old-school-skateboard-helmet-matte-seaweed)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=pro-tec-old-school-skateboard-helmet-matte-seaweed"><img alt="pro-tec-old-school-skate-helmet-matte-seaweed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-old-school-skate-helmet-matte-seaweed-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=pro-tec-old-school-skateboard-helmet-matte-seaweed"><img alt="pro-tec-old-school-skate-helmet-matte-seaweed-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-old-school-skate-helmet-matte-seaweed-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're on the hunt for a classic skateboarding helmet with a modern twist, consider the Pro Tec Old School Matte Seaweed Helmet. This helmet boasts a high-impact ABS shell for durability, ensuring that you're well-protected as you cruise down the sidewalk or tackle the halfpipe. 
 
@@ -391,9 +391,9 @@ The snug regular fit of the helmet feels comfortable without sacrificing protect
 While it's an excellent choice for skateboarding, it's important to note that this Pro Tec helmet is not certified for bicycles or snowboarding. Still, the balance of style and safety is something worth considering if you're looking for a retro-inspired helmet with modern features. Imported and available in a variety of styles, you're sure to find one that suits your taste. 
 
 
-### [K2 Ultimate Skateboard Safety Gear - Varsity Pro Helmet Black](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=k2-ultimate-skateboard-safety-gear-varsity-pro-helmet-black)
+### [K2 Ultimate Skateboard Safety Gear - Varsity Pro Helmet Black](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=k2-ultimate-skateboard-safety-gear-varsity-pro-helmet-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=k2-ultimate-skateboard-safety-gear-varsity-pro-helmet-black"><img alt="k2-skate-varsity-pro-helmet-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-pro-helmet-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=k2-ultimate-skateboard-safety-gear-varsity-pro-helmet-black"><img alt="k2-skate-varsity-pro-helmet-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-skate-varsity-pro-helmet-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The K2 Skate Varsity Pro Helmet in Black is an excellent addition to any skater's gear. With a classic design, this helmet is perfect for rollersports and bike riding alike. 
 
@@ -402,9 +402,9 @@ The tough ABS shell ensures durability, while the Ratchet fit system allows for 
 The reflective collar is a thoughtful touch for improved visibility in low light conditions. While some users have experienced minor snug fits around the forehead, overall, this helmet has received high praise for its comfort and quality. 
 
 
-### [Triple Eight Lil 8 Blue Glossy Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=triple-eight-lil-8-blue-glossy-skateboard-helmet)
+### [Triple Eight Lil 8 Blue Glossy Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=triple-eight-lil-8-blue-glossy-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=triple-eight-lil-8-blue-glossy-skateboard-helmet"><img alt="triple-eight-lil-8-blue-glossy-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-lil-8-blue-glossy-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=triple-eight-lil-8-blue-glossy-skateboard-helmet"><img alt="triple-eight-lil-8-blue-glossy-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-eight-lil-8-blue-glossy-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 As a skater myself, I understand the importance of safety, so when I got my hands on the Triple Eight Lil 8 helmet, I was excited to try it out. First thing I noticed was the sleek blue glossy finish, which looked pretty cool. The helmet felt lightweight yet sturdy, thanks to its ABS outer shell and EPS liner. 
 
@@ -415,9 +415,9 @@ For skaters like me, the helmet's dual certification for both skate and bike use
 While I was impressed with the helmet's features, I did notice it's a bit bulky for tight spaces or small heads. Also, making a perfect fit might take a bit of experimenting with the different sizes. However, overall, the Triple Eight Lil 8 helmet provides great protection, is stylish, and easy to adjust, making it a top choice for skaters of all ages. 
 
 
-### [Urban Skateboard & Road Bike Helmet - Azure Blue](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=urban-skateboard-road-bike-helmet-azure-blue)
+### [Urban Skateboard & Road Bike Helmet - Azure Blue](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=urban-skateboard-road-bike-helmet-azure-blue)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=urban-skateboard-road-bike-helmet-azure-blue"><img alt="goat-urban-skateboard-road-bike-helmet-azure-blue-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/goat-urban-skateboard-road-bike-helmet-azure-blue-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=urban-skateboard-road-bike-helmet-azure-blue"><img alt="goat-urban-skateboard-road-bike-helmet-azure-blue-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/goat-urban-skateboard-road-bike-helmet-azure-blue-large-1/h=540,fit=pad,background=black"/></a></div>
 
 As a cyclist who frequently hits the road, I was eager to try out the Goat Urban Skateboard & Road Bike Helmet in Azure Blue. Upon opening the package, I was immediately struck by its sleek design and sturdy construction. The helmet felt well-made and comfortable to wear, with a snug fit around my head and easy-to-adjust straps. 
 
@@ -428,9 +428,9 @@ However, there are a few minor drawbacks to note. The helmet's visor can sometim
 Overall, though, I'm quite satisfied with my experience using the Goat Urban Skateboard & Road Bike Helmet. Its combination of style, comfort, and safety features make it an ideal choice for both leisurely rides and more serious cycling adventures. 
 
 
-### [Macon 2.0 Skateboard Hard Helmet (S/Matte Sand)](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=macon-2-0-skateboard-hard-helmet-s-matte-sand)
+### [Macon 2.0 Skateboard Hard Helmet (S/Matte Sand)](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=macon-2-0-skateboard-hard-helmet-s-matte-sand)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=macon-2-0-skateboard-hard-helmet-s-matte-sand"><img alt="bern-macon-2-0-skate-hard-hat-s-matte-sand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-macon-2-0-skate-hard-hat-s-matte-sand-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=macon-2-0-skateboard-hard-helmet-s-matte-sand"><img alt="bern-macon-2-0-skate-hard-hat-s-matte-sand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-macon-2-0-skate-hard-hat-s-matte-sand-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever since I started using the Bern Macon 2.0 Skate Hard Hat, I can't help but feel like I'm riding in style. This reimagined classic is not just about looking good, but it also offers safety and comfort in equal measure. The helmet is designed to protect against multiple lower impacts that occur at low speeds, which gives me peace of mind while I'm skating. 
 
@@ -443,9 +443,9 @@ Another thing I appreciate about the Bern Macon 2.0 Skate Hard Hat is the ear sp
 Overall, the Bern Macon 2.0 Skate Hard Hat is a well-designed and functional piece of gear that I'm happy to have in my skateboarding arsenal. It provides safety, style, and comfort, all rolled into one. 
 
 
-### [SIFVO Kids Skateboard Helmet with Extended Visor](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=sifvo-kids-skateboard-helmet-with-extended-visor)
+### [SIFVO Kids Skateboard Helmet with Extended Visor](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=sifvo-kids-skateboard-helmet-with-extended-visor)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=sifvo-kids-skateboard-helmet-with-extended-visor"><img alt="kids-helmet-sifvo-kids-bike-helmet-skateboard-helmet-scooter-helmet-57cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kids-helmet-sifvo-kids-bike-helmet-skateboard-helmet-scooter-helmet-57cm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=sifvo-kids-skateboard-helmet-with-extended-visor"><img alt="kids-helmet-sifvo-kids-bike-helmet-skateboard-helmet-scooter-helmet-57cm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kids-helmet-sifvo-kids-bike-helmet-skateboard-helmet-scooter-helmet-57cm-1/h=540,fit=pad,background=black"/></a></div>
 
 As a parent, finding the right bike helmet for your child is a must. I recently tried the SIFVO Kids Bike Helmet Skateboard Helmet Scooter Helmet, and I was impressed with its variety of uses for different activities. My 10-year-old absolutely loves it for his scooter and skateboard adventures. The extended visor is a cute addition that keeps the sun out of his eyes while leaving a clear view of the world around him. 
 
@@ -456,9 +456,9 @@ Made with both acrylonitrile butadiene styrene (ABS) and expanded polystyrene (E
 In conclusion, this SIFVO Kids Bike Helmet Skateboard Helmet Scooter Helmet is a versatile and comfortable helmet designed for kids aged 5 to 14. With its extended visor, easy adjustability, excellent ventilation, and trendy colors, it's the perfect choice for children who love to bike, scoot, or skate. 
 
 
-### [Pro-Tec Classic Skateboard Helmet with Moisture-Wicking Liner and Cooling Vents](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=pro-tec-classic-skateboard-helmet-with-moisture-wicking-liner-and-cooling-vents)
+### [Pro-Tec Classic Skateboard Helmet with Moisture-Wicking Liner and Cooling Vents](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=pro-tec-classic-skateboard-helmet-with-moisture-wicking-liner-and-cooling-vents)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=pro-tec-classic-skateboard-helmet-with-moisture-wicking-liner-and-cooling-vents"><img alt="pro-tec-classic-certified-helmet-matte-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-classic-certified-helmet-matte-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=pro-tec-classic-skateboard-helmet-with-moisture-wicking-liner-and-cooling-vents"><img alt="pro-tec-classic-certified-helmet-matte-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-tec-classic-certified-helmet-matte-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the opportunity to try out the Pro Tec Classic certified helmet in matte blue. As someone who enjoys various outdoor activities like skateboarding, biking, and inline skating, safety is a top priority for me. This helmet did not disappoint. 
 
@@ -471,9 +471,9 @@ However, as with any product, there were a few drawbacks. Firstly, the adjustabl
 Overall, the Pro Tec Classic certified helmet met and exceeded my expectations. Its robust safety features, combined with its stylish design, made it a reliable choice for anyone seeking protection in a variety of sports. 
 
 
-### [Onewheel x Thousand Skateboard Helmet in Speedway Creme](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=onewheel-x-thousand-skateboard-helmet-in-speedway-creme)
+### [Onewheel x Thousand Skateboard Helmet in Speedway Creme](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=onewheel-x-thousand-skateboard-helmet-in-speedway-creme)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=onewheel-x-thousand-skateboard-helmet-in-speedway-creme"><img alt="onewheel-x-thousand-helmet-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/onewheel-x-thousand-helmet-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=onewheel-x-thousand-skateboard-helmet-in-speedway-creme"><img alt="onewheel-x-thousand-helmet-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/onewheel-x-thousand-helmet-m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Thousand Helmet M, designed in collaboration with Onewheel, offers safety and style in a vintage motorcycle-inspired design. Featuring a Speedway Creme colorway, this helmet is both functional and fashionable for your Onewheel riding pleasure. 
 
@@ -482,9 +482,9 @@ With adjustable leather straps and a comfortable fit, this helmet keeps you and 
 Users have praised the sleek design, comfort, and sun protection this helmet provides. If you're in the market for an attractive, high-quality skateboard helmet, the Thousand Helmet M should be at the top of your list. 
 
 
-### [K2 Varsity Pro Skate Helmet - White](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=k2-varsity-pro-skate-helmet-white)
+### [K2 Varsity Pro Skate Helmet - White](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=k2-varsity-pro-skate-helmet-white)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=k2-varsity-pro-skate-helmet-white"><img alt="k2-varsity-pro-skate-helmet-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-varsity-pro-skate-helmet-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=k2-varsity-pro-skate-helmet-white"><img alt="k2-varsity-pro-skate-helmet-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k2-varsity-pro-skate-helmet-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the K2 Varsity Pro Skate Helmet in white, and let me tell you, it's a game changer! This helmet is not only practical, but stylish too, thanks to its reflective collar and comfortable pads. 
 
@@ -493,9 +493,9 @@ The micro-adjustable system ensures that the helmet fits like a glove, no matter
 The only downside I encountered was an issue with the size labeling, but once I figured out the right fit, I couldn't be happier with this helmet. Highly recommended for both kids and adults. 
 
 
-### [Kids Skateboard Helmet: CPSC-Certified Protection for Kids 8+](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=kids-skateboard-helmet-cpsc-certified-protection-for-kids-8)
+### [Kids Skateboard Helmet: CPSC-Certified Protection for Kids 8+](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=kids-skateboard-helmet-cpsc-certified-protection-for-kids-8)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=kids-skateboard-helmet-cpsc-certified-protection-for-kids-8"><img alt="80six-dual-certified-kids-bike-scooter-and-skateboard-helmet-grey-matte-small-medium-ages-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/80six-dual-certified-kids-bike-scooter-and-skateboard-helmet-grey-matte-small-medium-ages-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=kids-skateboard-helmet-cpsc-certified-protection-for-kids-8"><img alt="80six-dual-certified-kids-bike-scooter-and-skateboard-helmet-grey-matte-small-medium-ages-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/80six-dual-certified-kids-bike-scooter-and-skateboard-helmet-grey-matte-small-medium-ages-8-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to test out the 80Six Dual Certified Kids' Bike, Hoverboard, and Skateboard Helmet, and I have to say, I was pleasantly surprised by its performance. This helmet is designed to be comfortable for kids, and it definitely delivers on that front. The classic shell shape is visually appealing and offers good ventilation for those long afternoons spent riding bikes or skateboards. 
 
@@ -504,9 +504,9 @@ One of the standout features of this helmet is its adjustable chin strap with a 
 However, I did notice that the helmet's sizing guide could be a bit confusing for some parents, so I'd recommend carefully following the measurements provided to ensure a proper fit for your child. Overall, this helmet is a great choice for parents looking for high-quality, dual certified protection for their little ones as they explore the world of biking, skateboarding, and more. 
 
 
-### [Bern Watts Skate Hard Helmet - Matte Black](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=bern-watts-skate-hard-helmet-matte-black)
+### [Bern Watts Skate Hard Helmet - Matte Black](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=bern-watts-skate-hard-helmet-matte-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=bern-watts-skate-hard-helmet-matte-black"><img alt="bern-watts-skate-hard-hat-m-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-skate-hard-hat-m-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=bern-watts-skate-hard-helmet-matte-black"><img alt="bern-watts-skate-hard-hat-m-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bern-watts-skate-hard-hat-m-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Bern Watts Skate Hard Hat, and I must say, it's more than just a hard hat - it's a stylish accessory perfect for skateboarding enthusiasts. With its matte black finish, the helmet blends well with any skateboard or streetwear outfit, giving you a sleek and fashionable look. 
 
@@ -521,18 +521,18 @@ Secondly, the ear flaps didn't provide adequate protection against the cold, cau
 Overall, the Bern Watts Skate Hard Hat is a reliable and fashionable choice for skateboarders who want a safe and comfortable riding experience. With its combination of style and protection, it's worth considering when looking for that perfect helmet. Just don't forget to order the MIPS liner for that extra layer of protection! 
 
 
-### [Lifer Tree Green Matte Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=lifer-tree-green-matte-skateboard-helmet)
+### [Lifer Tree Green Matte Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=lifer-tree-green-matte-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=lifer-tree-green-matte-skateboard-helmet"><img alt="s1-lifer-helmet-tree-green-matte-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/s1-lifer-helmet-tree-green-matte-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=lifer-tree-green-matte-skateboard-helmet"><img alt="s1-lifer-helmet-tree-green-matte-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/s1-lifer-helmet-tree-green-matte-1/h=540,fit=pad,background=black"/></a></div>
 
 The S1 Lifer Helmet is a top choice for skateboarders, longboarders, BMX riders, scooter enthusiasts, and roller skaters looking for a combination of safety and comfort. Designed with a specially formulated EPS Fusion Foam, this helmet provides protection from multiple low force impacts as well as high impacts, making it up to 5 times more protective than non-certified soft foam helmets. The tree green matte color adds a touch of style while still remaining low-profile, perfect for those who prefer a more understated look. 
 
 The S1 Lifer is CPSC and ASTM certified for added peace of mind, and its unique breakthrough design ensures that it not only protects your head but is also comfortable and easy to wear. With a variety of sizes and multiple sizing liners available, you can find the perfect fit for your head. 
 
 
-### [Triple 8 Sweatsaver Skateboard Helmet](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=triple-8-sweatsaver-skateboard-helmet)
+### [Triple 8 Sweatsaver Skateboard Helmet](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=triple-8-sweatsaver-skateboard-helmet)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=triple-8-sweatsaver-skateboard-helmet"><img alt="triple-8-sweatsaver-helmet-black-rubber-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-8-sweatsaver-helmet-black-rubber-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=triple-8-sweatsaver-skateboard-helmet"><img alt="triple-8-sweatsaver-helmet-black-rubber-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/triple-8-sweatsaver-helmet-black-rubber-1/h=540,fit=pad,background=black"/></a></div>
 
 This classic skate helmet, with its timeless design and stunning color range, has been protecting skaters for the past two decades. Made from high-quality acrylonitrile butadiene styrene (ABS) outer material, it offers great protection for skateboarders. 
 
@@ -541,9 +541,9 @@ The Sweatsaver Liner inside is designed to keep your head cool and fresh during 
 The adjustable straps make it suitable for different head sizes, while the customized logo rivets add a unique touch to the helmet. Although it doesn't meet CPSC, ASTM, or NZ certification, it is still a popular and reliable choice among skateboarders. Whether you're a beginner or a seasoned skater, the Triple 8 Sweatsaver Helmet will keep you safe and stylish while hitting the skatepark. 
 
 
-### [OutdoorMaster Skateboard/Cycling Helmet for Safety and Style](https://serp.ly/amazon/Skateboard+Helmet?utm\_term=outdoormaster-skateboard-cycling-helmet-for-safety-and-style)
+### [OutdoorMaster Skateboard/Cycling Helmet for Safety and Style](https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm\_term=outdoormaster-skateboard-cycling-helmet-for-safety-and-style)
 
-<div class="image"><a href="https://serp.ly/amazon/Skateboard+Helmet?utm_term=outdoormaster-skateboard-cycling-helmet-for-safety-and-style"><img alt="outdoormaster-skateboard-cycling-helmet-black-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoormaster-skateboard-cycling-helmet-black-xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet?utm_term=outdoormaster-skateboard-cycling-helmet-for-safety-and-style"><img alt="outdoormaster-skateboard-cycling-helmet-black-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/outdoormaster-skateboard-cycling-helmet-black-xl-1/h=540,fit=pad,background=black"/></a></div>
 
 The OutdoorMaster Skateboard Cycling Helmet offers maximum protection and versatility for skateboarders, cyclists, BMX riders, and more. This helmet boasts improved safety features like a reinforced ABS shell and thickened EPS core for added impact resistance. It also features two removable liners that cater to different head sizes, providing optimal comfort and sweat wicking capabilities. 
 
@@ -563,7 +563,7 @@ When it comes to safeguarding yourself while using a skateboard, a helmet plays 
 
 1. Certification: Seek a skateboard helmet that has been verified by authorities such as the Consumer Product Safety Commission (CPSC) or the European Committee for Standardization (CEN). These certifications guarantee that the helmet adheres to safety standards and delivers adequate security in the event of an accident. 
 
-<div><a href="https://serp.ly/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-2/h=540,fit=pad,background=black" alt="Skateboard-Helmet-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-2/h=540,fit=pad,background=black" alt="Skateboard-Helmet-2" height="540"></a></div>
 
 
 ### Factors to Consider
@@ -575,7 +575,7 @@ When it comes to safeguarding yourself while using a skateboard, a helmet plays 
 
 1. Test it out: Always try on a skateboard helmet prior to making a purchase. This will enable you to evaluate the fit, comfort, and overall experience of the helmet. If you're uncertain about the sizing, request the assistance of a store clerk or review the manufacturer's sizing chart online. Remember, a helmet that fits correctly can make a significant difference in shielding your head during a mishap. 
 
-<div><a href="https://serp.ly/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-3/h=540,fit=pad,background=black" alt="Skateboard-Helmet-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-3/h=540,fit=pad,background=black" alt="Skateboard-Helmet-3" height="540"></a></div>
 
 
 ### Additional Recommendations
@@ -585,7 +585,7 @@ When it comes to safeguarding yourself while using a skateboard, a helmet plays 
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-4/h=540,fit=pad,background=black" alt="Skateboard-Helmet-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-4/h=540,fit=pad,background=black" alt="Skateboard-Helmet-4" height="540"></a></div>
 
 
 ### Why should I wear a skateboard helmet?
@@ -601,7 +601,7 @@ Skateboard helmets are made using various materials depending on their design, s
 
 Some helmets also feature adjustable straps made from nylon or polyester webbing, which ensures a snug and secure fit by allowing you to customize the helmet's shape around your head. Additionally, high-quality helmet straps are soft and durable, preventing chafing and irritation during prolonged use. 
 
-<div><a href="https://serp.ly/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-5/h=540,fit=pad,background=black" alt="Skateboard-Helmet-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-5/h=540,fit=pad,background=black" alt="Skateboard-Helmet-5" height="540"></a></div>
 
 
 ### Are there different types of skateboard helmets?
@@ -617,7 +617,7 @@ Choosing the right size of a skateboard helmet is vital for maximum protection a
 
 Once you have your head measurement, compare it with the brand's sizing chart to find the corresponding helmet size. Adjust the helmet's straps to give you a comfortable, secure fit, but avoid over-tightening which can lead to discomfort or even injury. If you're unsure about the fit, ask a sales associate for assistance or consult with a professional skateboard technician. 
 
-<div><a href="https://serp.ly/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-6/h=540,fit=pad,background=black" alt="Skateboard-Helmet-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Helmet-6/h=540,fit=pad,background=black" alt="Skateboard-Helmet-6" height="540"></a></div>
 
 
 ### What are some popular skateboard helmet brands?

@@ -16,18 +16,18 @@ Our article dives into the key features of these cameras, offers insight into th
 ## Reviews
 
 
-### [Ultimate 4K Action Camera Kit for Underwater Fishing Adventures](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=ultimate-4k-action-camera-kit-for-underwater-fishing-adventures)
+### [Ultimate 4K Action Camera Kit for Underwater Fishing Adventures](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=ultimate-4k-action-camera-kit-for-underwater-fishing-adventures)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=ultimate-4k-action-camera-kit-for-underwater-fishing-adventures"><img alt="vivitar-4k-ultra-hd-action-camera-kit-dual-screen-with-wifi-bonus-battery-includes-sd-card-floating--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vivitar-4k-ultra-hd-action-camera-kit-dual-screen-with-wifi-bonus-battery-includes-sd-card-floating--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=ultimate-4k-action-camera-kit-for-underwater-fishing-adventures"><img alt="vivitar-4k-ultra-hd-action-camera-kit-dual-screen-with-wifi-bonus-battery-includes-sd-card-floating--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vivitar-4k-ultra-hd-action-camera-kit-dual-screen-with-wifi-bonus-battery-includes-sd-card-floating--1/h=540,fit=pad,background=black"/></a></div>
 
 Capture stunning 4K Ultra HD footage with the Vivitar Action Camera kit! Its dual screens provide a clear view for both the front-facing and rear-facing cameras, making it perfect for capturing selfies and reviewing your videos on the go. The waterproof case ensures you can take it on underwater adventures without any risk, while the bike and helmet mounts make it easy to attach it to various surfaces. 
 
 Wi-Fi connectivity lets you easily share your photos and videos on your favorite social media platforms. This all-in-one kit comes with a 7-tripod, floating handle, extra battery, 64GB micro SD card, and a range of popular mounts, allowing you to take it on any adventure with ease. Just keep an eye on the battery life, as it may overheat when used for extended periods. Overall, the Vivitar Action Camera is an excellent choice for those looking for a budget-friendly, versatile camera for their outdoor adventures. 
 
 
-### [Kodak Underwater Fishing Camera (WPZ2)](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=kodak-underwater-fishing-camera-wpz2)
+### [Kodak Underwater Fishing Camera (WPZ2)](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=kodak-underwater-fishing-camera-wpz2)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=kodak-underwater-fishing-camera-wpz2"><img alt="kodak-pixpro-wpz2-waterproof-rugged-digital-camera-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kodak-pixpro-wpz2-waterproof-rugged-digital-camera-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=kodak-underwater-fishing-camera-wpz2"><img alt="kodak-pixpro-wpz2-waterproof-rugged-digital-camera-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kodak-pixpro-wpz2-waterproof-rugged-digital-camera-red-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kodak Pixpro WPZ2 Underwater Camera Red is a versatile and robust option for adventurous photographers. Its waterproof, dustproof, and shockproof casing allows it to endure various outdoor activities, making it a great companion on travels or during inclement weather. 
 
@@ -36,9 +36,9 @@ Equipped with a depth of 15m, this camera enables captivating underwater footage
 This compact device comes with numerous features such as a built-in speaker, panorama capture, and remote control via mobile devices. It's a perfect choice for both beginners and seasoned photographers seeking portability and ease of use. 
 
 
-### [Portable Underwater Fishing Camera with 4.3" LCD Monitor and HD 1000 TVL Camera](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=portable-underwater-fishing-camera-with-4-3-lcd-monitor-and-hd-1000-tvl-camera)
+### [Portable Underwater Fishing Camera with 4.3" LCD Monitor and HD 1000 TVL Camera](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=portable-underwater-fishing-camera-with-4-3-lcd-monitor-and-hd-1000-tvl-camera)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=portable-underwater-fishing-camera-with-4-3-lcd-monitor-and-hd-1000-tvl-camera"><img alt="underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-camera-wit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-camera-wit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=portable-underwater-fishing-camera-with-4-3-lcd-monitor-and-hd-1000-tvl-camera"><img alt="underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-camera-wit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-camera-wit-1/h=540,fit=pad,background=black"/></a></div>
 
 The first time I used this Underwater Fishing Camera, I was amazed by the clear image it provided of the fish below. The HD camera, combined with the Infrared LED lights, made it easy for me to observe the fish's movements and habits. The 4.3-inch LCD monitor was also surprisingly easy to read, even in bright sunlight. 
 
@@ -49,18 +49,18 @@ However, there were a couple of drawbacks. Firstly, the cable seemed a bit flims
 Overall, despite these minor issues, I found this Underwater Fishing Camera to be a valuable tool for any serious angler. It's helped me become a more effective fisher, and I'm confident it will do the same for you too. 
 
 
-### [Eyoyo Portable Video Fish Finder: Underwater Fishing Camera](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=eyoyo-portable-video-fish-finder-underwater-fishing-camera)
+### [Eyoyo Portable Video Fish Finder: Underwater Fishing Camera](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=eyoyo-portable-video-fish-finder-underwater-fishing-camera)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=eyoyo-portable-video-fish-finder-underwater-fishing-camera"><img alt="eyoyo-underwater-fishing-camera-ice-fishing-camera-portable-video-fish-finder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eyoyo-underwater-fishing-camera-ice-fishing-camera-portable-video-fish-finder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=eyoyo-portable-video-fish-finder-underwater-fishing-camera"><img alt="eyoyo-underwater-fishing-camera-ice-fishing-camera-portable-video-fish-finder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eyoyo-underwater-fishing-camera-ice-fishing-camera-portable-video-fish-finder-1/h=540,fit=pad,background=black"/></a></div>
 
 The Eyoyo Underwater Fishing Camera, also known as the Ice Fishing Camera Portable Video Fish Finder, is a new and improved version of a portable video fish finder. This device boasts an upgraded 720P camera and a 1024x600 IPS screen, providing users with a clearer and more vivid underwater view. The DVR function enhances the experience by offering a more distinct and realistic view of the underwater world. 
 
 Additionally, the 7 inch IPS display ensures that the image remains clear from any angle, and the sun-visor adds convenience. Overall, the Eyoyo Underwater Fishing Camera is an excellent tool for sea, lake, boat, and ice fishing enthusiasts looking for an improved and immersive viewing experience. 
 
 
-### [QUNVAL 27K Waterproof 48MP Underwater Fishing Camera for Blue Snorkeling](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=qunval-27k-waterproof-48mp-underwater-fishing-camera-for-blue-snorkeling)
+### [QUNVAL 27K Waterproof 48MP Underwater Fishing Camera for Blue Snorkeling](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=qunval-27k-waterproof-48mp-underwater-fishing-camera-for-blue-snorkeling)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=qunval-27k-waterproof-48mp-underwater-fishing-camera-for-blue-snorkeling"><img alt="qunval-waterproof-digital-camera-for-photography-27k-48mp-full-hd-video-recorder-dual-screens10ft-un-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/qunval-waterproof-digital-camera-for-photography-27k-48mp-full-hd-video-recorder-dual-screens10ft-un-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=qunval-27k-waterproof-48mp-underwater-fishing-camera-for-blue-snorkeling"><img alt="qunval-waterproof-digital-camera-for-photography-27k-48mp-full-hd-video-recorder-dual-screens10ft-un-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/qunval-waterproof-digital-camera-for-photography-27k-48mp-full-hd-video-recorder-dual-screens10ft-un-1/h=540,fit=pad,background=black"/></a></div>
 
 As a frequent lover of water activities, I've had the pleasure of using the QUNVAL Waterproof Digital Camera. I've taken stunning photos and high-quality Full HD videos both above and below the water surface, while snorkeling, swimming, and diving. The built-in electronic image stabilization feature allows me to capture sharp and vibrant 48MP photos, making my underwater adventures even more extraordinary. 
 
@@ -71,9 +71,9 @@ However, I must admit that the photo quality is not as great as I expected based
 Overall, the QUNVAL Waterproof Digital Camera is a great addition to my water activities, but with a few improvements, it may become even better. 
 
 
-### [Underwater Fishing HD Video Recorder with USB & Rechargeable Battery](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=underwater-fishing-hd-video-recorder-with-usb-rechargeable-battery)
+### [Underwater Fishing HD Video Recorder with USB & Rechargeable Battery](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=underwater-fishing-hd-video-recorder-with-usb-rechargeable-battery)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=underwater-fishing-hd-video-recorder-with-usb-rechargeable-battery"><img alt="olymbros-fishing-camera-underwater-portable-professional-waterproof-underwater-hd-video-recorder-fis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/olymbros-fishing-camera-underwater-portable-professional-waterproof-underwater-hd-video-recorder-fis-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=underwater-fishing-hd-video-recorder-with-usb-rechargeable-battery"><img alt="olymbros-fishing-camera-underwater-portable-professional-waterproof-underwater-hd-video-recorder-fis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/olymbros-fishing-camera-underwater-portable-professional-waterproof-underwater-hd-video-recorder-fis-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few days, I've been testing out the Olymbros D1 Underwater Fishing Camera - a great tool for any fishing enthusiast. This HD video recorder allowed me to capture all the action underwater, making it easier to share my exciting fishing experiences with family and friends. 
 
@@ -86,18 +86,18 @@ However, there was one aspect that I found slightly frustrating – the cycle re
 Overall, the Olymbros D1 Underwater Fishing Camera is an impressive tool for anyone looking to capture their underwater fishing adventures in stunning HD quality. It may have a few minor drawbacks, but they're well outweighed by the product's overall performance and convenience. 
 
 
-### [Aqua-Vu Micro Stealth Underwater Fishing Camera](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=aqua-vu-micro-stealth-underwater-fishing-camera)
+### [Aqua-Vu Micro Stealth Underwater Fishing Camera](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=aqua-vu-micro-stealth-underwater-fishing-camera)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=aqua-vu-micro-stealth-underwater-fishing-camera"><img alt="aqua-vu-micro-stealth-underwater-viewing-system-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aqua-vu-micro-stealth-underwater-viewing-system-combo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=aqua-vu-micro-stealth-underwater-fishing-camera"><img alt="aqua-vu-micro-stealth-underwater-viewing-system-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aqua-vu-micro-stealth-underwater-viewing-system-combo-1/h=540,fit=pad,background=black"/></a></div>
 
 The Aqua-Vu Micro Stealth Underwater Viewing System Combo is a versatile and portable option for enthusiasts looking to capture stunning underwater footage. With a 4-inch screen, this system offers an easy-to-view image and can be used for various purposes, such as ice fishing or diving. While some users have reported issues with the system not being usable in bright sunlight, the overall satisfaction with the product's functionality is quite high. 
 
 The system includes all parts and accessories needed for proper operation, making it a great choice for both new and experienced users. 
 
 
-### [MOOCOR Portable High-Definition Underwater Fishing Camera](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=moocor-portable-high-definition-underwater-fishing-camera)
+### [MOOCOR Portable High-Definition Underwater Fishing Camera](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=moocor-portable-high-definition-underwater-fishing-camera)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=moocor-portable-high-definition-underwater-fishing-camera"><img alt="moocor-underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-cam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moocor-underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-cam-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=moocor-portable-high-definition-underwater-fishing-camera"><img alt="moocor-underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-cam-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moocor-underwater-fishing-camera-portable-fish-finder-camera-hd-1000-tvl-infrared-led-waterproof-cam-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently purchased the MOOCOR Underwater Fishing Camera and have been using it for my ice fishing adventures. This device definitely added a new level of excitement to my fishing trips, allowing me to see what's going on beneath the ice without ever having to leave my spot. 
 
@@ -110,9 +110,9 @@ However, the battery life needs some improvement. I've noticed that the battery 
 Despite these drawbacks, I would still highly recommend the MOOCOR Underwater Fishing Camera to anyone looking to improve their fishing experience. With the right preparation, you can overcome these minor inconveniences and enjoy the thrill of seeing the underwater world right from your fishing spot. 
 
 
-### [HD Underwater Fishing Camera - Capture Your Fishing Adventures with 24pcs Infrared LEDs](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=hd-underwater-fishing-camera-capture-your-fishing-adventures-with-24pcs-infrared-leds)
+### [HD Underwater Fishing Camera - Capture Your Fishing Adventures with 24pcs Infrared LEDs](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=hd-underwater-fishing-camera-capture-your-fishing-adventures-with-24pcs-infrared-leds)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=hd-underwater-fishing-camera-capture-your-fishing-adventures-with-24pcs-infrared-leds"><img alt="portable-underwater-fishing-camera-video-fish-finder-with-9-hd-lcd-monitor-1200tvl-camera-for-ice-la-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/portable-underwater-fishing-camera-video-fish-finder-with-9-hd-lcd-monitor-1200tvl-camera-for-ice-la-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=hd-underwater-fishing-camera-capture-your-fishing-adventures-with-24pcs-infrared-leds"><img alt="portable-underwater-fishing-camera-video-fish-finder-with-9-hd-lcd-monitor-1200tvl-camera-for-ice-la-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/portable-underwater-fishing-camera-video-fish-finder-with-9-hd-lcd-monitor-1200tvl-camera-for-ice-la-1/h=540,fit=pad,background=black"/></a></div>
 
 This underwater fishing camera is a versatile tool for those eager to explore the depths of their watery adventures. With a high-definition camera, it captures clear pictures that let you truly see the world below. The camera's 12 infrared and cool LED lights provide excellent night vision, adjustable to suit your specific needs. Its cold-resistant, waterproof design ensures reliable performance in any aquatic setting, while its durable metal casing offers a firm yet flexible feel. 
 
@@ -121,9 +121,9 @@ This camera boasts a color TFT LCD screen paired with a sun-visor for optimal vi
 This fish finder is ideally suited for avid fishing enthusiasts, offering a wealth of applications: sea fishing, swimming, ice fishing, diving, lake fishing, snorkeling, inflatable kayak fishing, boat fishing, underwater ice fishing, monitoring aquaculture, underwater exploration, and more. Its comprehensive, user-friendly design makes it a top choice for those looking to dive into the underwater world. 
 
 
-### [Chasing F1: The Wireless Underwater Fish Finder Drone](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=chasing-f1-the-wireless-underwater-fish-finder-drone)
+### [Chasing F1: The Wireless Underwater Fish Finder Drone](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=chasing-f1-the-wireless-underwater-fish-finder-drone)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=chasing-f1-the-wireless-underwater-fish-finder-drone"><img alt="chasing-f1-fish-finder-drone-wireless-underwater-fishing-camera-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chasing-f1-fish-finder-drone-wireless-underwater-fishing-camera-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=chasing-f1-the-wireless-underwater-fish-finder-drone"><img alt="chasing-f1-fish-finder-drone-wireless-underwater-fishing-camera-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chasing-f1-fish-finder-drone-wireless-underwater-fishing-camera-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrill of underwater fishing like never before with the Chasing F1 Fish Finder Drone. This revolutionary device transforms your fishing game by providing real-time intelligence about the location and species of fish in the water. Its unique 28-meter reel makes it suitable for all types of fishing, while the 1080p HD underwater camera captures stunning, crystal-clear footage. 
 
@@ -132,9 +132,9 @@ Equipped with cutting-edge technology, the Chasing F1 Fish Finder Drone offers a
 However, the 2-megapixel photo resolution and 30 frames per second video format may not be the best for capturing high-quality images and videos. Despite this, the Chasing F1 Fish Finder Drone is undoubtedly a game-changer in the world of fishing, offering anglers an unparalleled level of underwater exploration and analysis. 
 
 
-### [Ultra Fishing Camera: 7" LCD Monitor & 1000TVL, 12 Infrared Lights for Ice, Lake, Boat](https://serp.ly/amazon/Underwater+Fishing+Camera?utm\_term=ultra-fishing-camera-7-lcd-monitor-1000tvl-12-infrared-lights-for-ice-lake-boat)
+### [Ultra Fishing Camera: 7" LCD Monitor & 1000TVL, 12 Infrared Lights for Ice, Lake, Boat](https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm\_term=ultra-fishing-camera-7-lcd-monitor-1000tvl-12-infrared-lights-for-ice-lake-boat)
 
-<div class="image"><a href="https://serp.ly/amazon/Underwater+Fishing+Camera?utm_term=ultra-fishing-camera-7-lcd-monitor-1000tvl-12-infrared-lights-for-ice-lake-boat"><img alt="underwater-fishing-camera-7-inch-lcd-monitor-fish-finder-waterproof-1000tvl-fishing-camera-12pcs-inf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/underwater-fishing-camera-7-inch-lcd-monitor-fish-finder-waterproof-1000tvl-fishing-camera-12pcs-inf-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Underwater+Fishing+Camera?utm_term=ultra-fishing-camera-7-lcd-monitor-1000tvl-12-infrared-lights-for-ice-lake-boat"><img alt="underwater-fishing-camera-7-inch-lcd-monitor-fish-finder-waterproof-1000tvl-fishing-camera-12pcs-inf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/underwater-fishing-camera-7-inch-lcd-monitor-fish-finder-waterproof-1000tvl-fishing-camera-12pcs-inf-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's tried the Eyoyo Underwater Video Camera System for my frequent ice fishing trips, I can say that this gadget has brought quite a game-changer to the sport. It's not just about the color screen with high-definition camera, but the 12 infrared lights that can illuminate even the darkest waters. You can switch off the camera light when you want, but what I appreciate the most is it doesn't affect the viewing distance. It's waterproof too, with an impressive IP68 rating, which means I can take it to the lake or the ocean without worrying. 
 

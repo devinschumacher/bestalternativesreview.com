@@ -14,18 +14,18 @@ Welcome to our Color Depositing Shampoo roundup! Are you tired of constantly tou
 ## Reviews
 
 
-### [Safe, Non-Toxic Color Deposing Shampoo for Pets](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=safe-non-toxic-color-deposing-shampoo-for-pets)
+### [Safe, Non-Toxic Color Deposing Shampoo for Pets](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=safe-non-toxic-color-deposing-shampoo-for-pets)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=safe-non-toxic-color-deposing-shampoo-for-pets"><img alt="opawz-color-depositing-shampoo-for-dogs-semi-permanent-dog-hair-dye-coloring-safe-shampoo-non-toxic--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/opawz-color-depositing-shampoo-for-dogs-semi-permanent-dog-hair-dye-coloring-safe-shampoo-non-toxic--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=safe-non-toxic-color-deposing-shampoo-for-pets"><img alt="opawz-color-depositing-shampoo-for-dogs-semi-permanent-dog-hair-dye-coloring-safe-shampoo-non-toxic--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/opawz-color-depositing-shampoo-for-dogs-semi-permanent-dog-hair-dye-coloring-safe-shampoo-non-toxic--1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the OPAWZ Color Depositing Shampoo for Dogs, a safe and non-toxic option for pet owners looking to add vibrancy to their furry friends' coats. With seven color options to choose from, including pink, blue, purple, green, vivid pink, yellow, and fuchsia, this shampoo is perfect for enhancing your dog's natural hue. The ammonia-free and paraben-free formula ensures your pet's safety, and the longer you leave the shampoo in, the brighter the color result will be. 
 
 Simply apply the shampoo evenly from roots to ends, lather well, and let it sit for 10-30 minutes before rinsing clean. Finish with OPAWZ Conditioner for smoother hair and enjoy the color lasting for 3-8 washes. Remember to use gloves to avoid color staining on your hands and consult the product's usage instructions for optimal results. 
 
 
-### [Celeb Luxury Viral Colorwash - Extreme Color Depositing Shampoo (Silver)](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-viral-colorwash-extreme-color-depositing-shampoo-silver)
+### [Celeb Luxury Viral Colorwash - Extreme Color Depositing Shampoo (Silver)](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-viral-colorwash-extreme-color-depositing-shampoo-silver)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-viral-colorwash-extreme-color-depositing-shampoo-silver"><img alt="celeb-luxury-viral-extreme-colorwash-2-0-oz-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-extreme-colorwash-2-0-oz-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-viral-colorwash-extreme-color-depositing-shampoo-silver"><img alt="celeb-luxury-viral-extreme-colorwash-2-0-oz-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-extreme-colorwash-2-0-oz-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're searching for a product to add some vibrant color and life into your hair, look no further than the Celeb Luxury Viral Extreme Colorwash. This innovative solution combines color depositing shampoo with advanced technology, ensuring your hair stays bright and lively between salon visits. 
 
@@ -38,9 +38,9 @@ Some users have expressed concerns about the product's strong odor, inconsistent
 Overall, the Celeb Luxury Viral Extreme Colorwash is a convenient and innovative solution for anyone looking to add a burst of color and life to their hair. With proper use, you can enjoy the benefits of a salon-quality color treatment without breaking the bank. 
 
 
-### ['n Rage Color Depositing Shampoo + Conditioner: Enhance Lightened Blonde Hair](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=n-rage-color-depositing-shampoo-conditioner-enhance-lightened-blonde-hair)
+### ['n Rage Color Depositing Shampoo + Conditioner: Enhance Lightened Blonde Hair](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=n-rage-color-depositing-shampoo-conditioner-enhance-lightened-blonde-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=n-rage-color-depositing-shampoo-conditioner-enhance-lightened-blonde-hair"><img alt="n-rage-color-depositing-shampoo-conditioner-3-in-1-system-n-lightened-blonde-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/n-rage-color-depositing-shampoo-conditioner-3-in-1-system-n-lightened-blonde-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=n-rage-color-depositing-shampoo-conditioner-enhance-lightened-blonde-hair"><img alt="n-rage-color-depositing-shampoo-conditioner-3-in-1-system-n-lightened-blonde-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/n-rage-color-depositing-shampoo-conditioner-3-in-1-system-n-lightened-blonde-1/h=540,fit=pad,background=black"/></a></div>
 
 In my journey towards finding the perfect shade for my hair, I stumbled upon the 'n Rage Color Depositing Shampoo + Conditioner 3-in-1 N-Lightened Blonde. The product promises to deliver a vibrant hue, and I figured it was worth a try. 
 
@@ -51,9 +51,9 @@ One of the highlights of this product was its ability to nourish and strengthen 
 Although the product is sulfate and paraben-free, it would have been great if it were more environmentally-friendly, using natural and organic ingredients. Nonetheless, the 'n Rage Color Depositing Shampoo + Conditioner 3-in-1 N-Lightened Blonde provided a satisfying hair color transformation with minimal effort. 
 
 
-### [Celeb Luxury Duo Color Depositing Shampoo & Conditioner Set + BondFix](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-duo-color-depositing-shampoo-conditioner-set-bondfix)
+### [Celeb Luxury Duo Color Depositing Shampoo & Conditioner Set + BondFix](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-duo-color-depositing-shampoo-conditioner-set-bondfix)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-duo-color-depositing-shampoo-conditioner-set-bondfix"><img alt="celeb-luxury-gem-lites-duo-color-depositing-colorwash-shampoo-conditioner-set-bondfix-bond-rebuilder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-gem-lites-duo-color-depositing-colorwash-shampoo-conditioner-set-bondfix-bond-rebuilder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-duo-color-depositing-shampoo-conditioner-set-bondfix"><img alt="celeb-luxury-gem-lites-duo-color-depositing-colorwash-shampoo-conditioner-set-bondfix-bond-rebuilder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-gem-lites-duo-color-depositing-colorwash-shampoo-conditioner-set-bondfix-bond-rebuilder-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Celeb Luxury Gem Lites Duo Color Depositing Colorwash Shampoo & Conditioner Set. As someone who loves experimenting with different hair colors, I was intrigued by the idea of having a shampoo and conditioner that could not only maintain my current color but also add a bit of fun to my hair routine. 
 
@@ -64,9 +64,9 @@ However, I did notice a few drawbacks. One of them is that it changes my hair co
 Despite these minor issues, I have to say that the product has overall been a pleasant surprise. The shampoo and conditioner duo has helped my hair look vibrant and healthy, and I appreciate the fact that it's vegan and cruelty-free. I think it's a great addition to any hair care routine, especially for those who are looking for an easy way to add a bit of color to their hair without committing to a full dye job. 
 
 
-### [Hydrating Marigold Color Depositing Shampoo for Copper and Warm Tones (33.8 oz)](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=hydrating-marigold-color-depositing-shampoo-for-copper-and-warm-tones-33-8-oz)
+### [Hydrating Marigold Color Depositing Shampoo for Copper and Warm Tones (33.8 oz)](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=hydrating-marigold-color-depositing-shampoo-for-copper-and-warm-tones-33-8-oz)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=hydrating-marigold-color-depositing-shampoo-for-copper-and-warm-tones-33-8-oz"><img alt="pure-blends-hydrating-color-depositing-shampoo-marigold-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pure-blends-hydrating-color-depositing-shampoo-marigold-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=hydrating-marigold-color-depositing-shampoo-for-copper-and-warm-tones-33-8-oz"><img alt="pure-blends-hydrating-color-depositing-shampoo-marigold-33-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pure-blends-hydrating-color-depositing-shampoo-marigold-33-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Pure Blends Hydrating Color Depositing Shampoo - Marigold is a salon-quality shampoo that aims to provide a hydrating and nourishing experience while depositing color to maintain the brightness of copper, auburn, and warm brown hair. This formula boasts a botanical blend of natural ingredients, including Coconut Oil, Violet, Eggplant, Marigold, Cherry Bark, Collagen, and Keratin, which work together to hydrate and revitalize dry, damaged hair while reducing frizz and providing strength for optimal anti-breakage benefits. 
 
@@ -75,27 +75,27 @@ The Pure Blends Marigold Hydrating Color Depositing Shampoo is sulfate, sodium c
 However, some users have reported that it may not be as effective for virgin hair or may dry out the hair. Overall, Pure Blends Hydrating Color Depositing Shampoo - Marigold appears to be a popular choice for those looking to maintain or refresh their copper, auburn, and warm brown tones while experiencing the benefits of its natural, luxurious ingredients. 
 
 
-### [Vibrant Red Boosting Shampoo by John Frieda](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=vibrant-red-boosting-shampoo-by-john-frieda)
+### [Vibrant Red Boosting Shampoo by John Frieda](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=vibrant-red-boosting-shampoo-by-john-frieda)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=vibrant-red-boosting-shampoo-by-john-frieda"><img alt="john-frieda-radiant-red-red-boosting-shampoo-for-red-hair-hair-color-protectant-for-shades-red-8-3-f-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/john-frieda-radiant-red-red-boosting-shampoo-for-red-hair-hair-color-protectant-for-shades-red-8-3-f-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=vibrant-red-boosting-shampoo-by-john-frieda"><img alt="john-frieda-radiant-red-red-boosting-shampoo-for-red-hair-hair-color-protectant-for-shades-red-8-3-f-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/john-frieda-radiant-red-red-boosting-shampoo-for-red-hair-hair-color-protectant-for-shades-red-8-3-f-1/h=540,fit=pad,background=black"/></a></div>
 
 This color-boosting shampoo from John Frieda is designed specifically for those with red hair, whether it's natural or color-treated. Enriched with vitamin E and natural ingredients, this paraben-free formula helps to deep cleanse and moisturize color-treated hair, enhancing its texture and vibrancy. 
 
 Perfect for those looking to maintain a vibrant red hue, this shampoo is gentle on your hair and leaves it feeling soft and shiny. The size of 8.3 fl oz makes it convenient for everyday use, while the unisex gender ensures that everyone can enjoy a boost of radiance. 
 
 
-### [Celeb Luxury Viral Extreme Teal Shampoo - Vibrant Color Intensity](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-viral-extreme-teal-shampoo-vibrant-color-intensity)
+### [Celeb Luxury Viral Extreme Teal Shampoo - Vibrant Color Intensity](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=celeb-luxury-viral-extreme-teal-shampoo-vibrant-color-intensity)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-viral-extreme-teal-shampoo-vibrant-color-intensity"><img alt="celeb-luxury-viral-extreme-teal-shampoo-8-25-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-extreme-teal-shampoo-8-25-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=celeb-luxury-viral-extreme-teal-shampoo-vibrant-color-intensity"><img alt="celeb-luxury-viral-extreme-teal-shampoo-8-25-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-extreme-teal-shampoo-8-25-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Celeb Luxury Viral Extreme Teal Shampoo, an easy-to-use and highly effective color-depositing shampoo that adds bold, power color to pre-lightened hair and provides vibrant jewel tones on deeper colors. This shampoo helps to stop visible color fade and can be used as a replacement for demi-permanent or semi-permanent color, making it an ideal choice for those who want their hair color to be brighter and more vibrant. Designed for continuous use after a fresh color application, the Viral Colorwash helps to add color and prevent visible washout and fade between color services. 
 
 The product is PETA certified as 100 percent vegan and cruelty-free, making it a perfect choice for those who care about animal welfare. With a 4.4-star rating out of 674 reviews, this shampoo has proven to be a popular and effective choice for users looking for a high-quality hair color product. 
 
 
-### [Color Security Shampoo & Conditioner Duo for Optimal Hair Colors and Health](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=color-security-shampoo-conditioner-duo-for-optimal-hair-colors-and-health)
+### [Color Security Shampoo & Conditioner Duo for Optimal Hair Colors and Health](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=color-security-shampoo-conditioner-duo-for-optimal-hair-colors-and-health)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=color-security-shampoo-conditioner-duo-for-optimal-hair-colors-and-health"><img alt="color-wow-color-security-shampoo-color-security-conditioner-duo-for-normal-to-thick-hair-2-8-4-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/color-wow-color-security-shampoo-color-security-conditioner-duo-for-normal-to-thick-hair-2-8-4-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=color-security-shampoo-conditioner-duo-for-optimal-hair-colors-and-health"><img alt="color-wow-color-security-shampoo-color-security-conditioner-duo-for-normal-to-thick-hair-2-8-4-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/color-wow-color-security-shampoo-color-security-conditioner-duo-for-normal-to-thick-hair-2-8-4-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As a color-treated hair gal, I've been on the hunt for the perfect shampoo and conditioner that would keep my dye looking bright and vibrant. When I stumbled upon Color Wow Color Security Shampoo and Conditioner Duo, I was intrigued. The promise of clean, sulfate-free shampoo and a hydrating, residue-free conditioner seemed like a game-changer. 
 
@@ -108,9 +108,9 @@ But the real test was how my color held up. After using this duo for a few weeks
 One thing to note is that some people may find the scent a bit strong, but overall, this duo is a winner. It leaves my hair clean, hydrated, and shiny without weighing it down. I'll definitely be repurchasing when I run out! 
 
 
-### [Instant Fast Acting Hair Color Shampoo for Gray Hair](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=instant-fast-acting-hair-color-shampoo-for-gray-hair)
+### [Instant Fast Acting Hair Color Shampoo for Gray Hair](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=instant-fast-acting-hair-color-shampoo-for-gray-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=instant-fast-acting-hair-color-shampoo-for-gray-hair"><img alt="mokeru-professional-argan-coconut-oil-hair-dye-color-shampoo-500-ml-instant-fast-acting-long-lasting-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mokeru-professional-argan-coconut-oil-hair-dye-color-shampoo-500-ml-instant-fast-acting-long-lasting-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=instant-fast-acting-hair-color-shampoo-for-gray-hair"><img alt="mokeru-professional-argan-coconut-oil-hair-dye-color-shampoo-500-ml-instant-fast-acting-long-lasting-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mokeru-professional-argan-coconut-oil-hair-dye-color-shampoo-500-ml-instant-fast-acting-long-lasting-1/h=540,fit=pad,background=black"/></a></div>
 
 Sporting a 5-star rating and boasting an impressive 915 reviews, Mokeru Professional Argan Coconut Oil Hair Dye Color Shampoo is a real game-changer for gray hair or those seeking a vibrant color shift. This innovative shampoo works the magic of instantly dyeing your hair, making it perfect for busy individuals who want to save time. 
 
@@ -121,9 +121,9 @@ What sets this shampoo apart is its non-toxic, high-tech composition, which not 
 However, while many users are thrilled with the product's performance, a few have raised concerns about hair color changes, suggesting that the formula may have been altered. Overall, this shampoo is a reliable and effective solution for those seeking both color and nourishment for their hair. 
 
 
-### [Punky Colour Halloween Shampoo: Vivid Color and Conditioner](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=punky-colour-halloween-shampoo-vivid-color-and-conditioner)
+### [Punky Colour Halloween Shampoo: Vivid Color and Conditioner](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=punky-colour-halloween-shampoo-vivid-color-and-conditioner)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=punky-colour-halloween-shampoo-vivid-color-and-conditioner"><img alt="punky-color-3-in-1-color-depositing-shampoo-conditioner-pinktabulous-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/punky-color-3-in-1-color-depositing-shampoo-conditioner-pinktabulous-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=punky-colour-halloween-shampoo-vivid-color-and-conditioner"><img alt="punky-color-3-in-1-color-depositing-shampoo-conditioner-pinktabulous-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/punky-color-3-in-1-color-depositing-shampoo-conditioner-pinktabulous-1/h=540,fit=pad,background=black"/></a></div>
 
 The Punky Color Halloween 3-in-1 Color Depositing Shampoo + Conditioner in Pinktabulous is a versatile hair cleanser that leaves locks nourished and vibrant. This 3-in-1 formula acts as a color depositing hair cleanser and conditioner all in one, making it a convenient choice for those in a hurry. It's suitable for all hair types and can be used as a standalone conditioner, making it a perfect addition to any hair care routine. 
 
@@ -134,18 +134,18 @@ One of the major downsides of this Pinktabulous Shampoo + Conditioner is its unp
 However, the product does add shine and helps detangle hair, which is appreciated by many customers. Its moisture-infused formula can also improve curl texture and is suitable for use every day for the ultimate vibrant hair experience. Users have noted that, while it may have a few drawbacks, it is an affordable and functional color depositing shampoo that stays true to its intended purpose. 
 
 
-### [Revive Color with Celeb Luxury Viral Duo Shampoo & Conditioner](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=revive-color-with-celeb-luxury-viral-duo-shampoo-conditioner)
+### [Revive Color with Celeb Luxury Viral Duo Shampoo & Conditioner](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=revive-color-with-celeb-luxury-viral-duo-shampoo-conditioner)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=revive-color-with-celeb-luxury-viral-duo-shampoo-conditioner"><img alt="celeb-luxury-viral-duo-color-depositing-colorwash-shampoo-conditione-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-duo-color-depositing-colorwash-shampoo-conditione-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=revive-color-with-celeb-luxury-viral-duo-shampoo-conditioner"><img alt="celeb-luxury-viral-duo-color-depositing-colorwash-shampoo-conditione-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celeb-luxury-viral-duo-color-depositing-colorwash-shampoo-conditione-1/h=540,fit=pad,background=black"/></a></div>
 
 The Celeb Luxury Viral Color Depositing Duo Colorwash Shampoo & Conditioner has been my savior in the past few weeks. Not only have I seen a noticeable difference in the intensity of my haircolor, but it also leaves my hair super soft and shiny. I love the pastel Graphite option – it blends perfectly with my natural silver hair, giving it a touch of elegance without being overpowering. 
 
 What stood out to me most was the full-on intensity it brings upon pre-lightened hair, while only giving it a lighter wash on darker hair. It was really refreshing to see the color of my hair after just one use. The scent of the shampoo and conditioner is also a delight – it reminds me of a warm and relaxing day at the spa. Overall, I would highly recommend this product to anyone looking to either maintain or refresh their haircolor with a touch of luxury. 
 
 
-### [Intense Metallic Color Depositing Shampoo for Color-Treated Hair](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=intense-metallic-color-depositing-shampoo-for-color-treated-hair)
+### [Intense Metallic Color Depositing Shampoo for Color-Treated Hair](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=intense-metallic-color-depositing-shampoo-for-color-treated-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=intense-metallic-color-depositing-shampoo-for-color-treated-hair"><img alt="watercolors-intense-metallic-color-depositing-shampoo-semi-permanent-hair-color-8-5-oz-steel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/watercolors-intense-metallic-color-depositing-shampoo-semi-permanent-hair-color-8-5-oz-steel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=intense-metallic-color-depositing-shampoo-for-color-treated-hair"><img alt="watercolors-intense-metallic-color-depositing-shampoo-semi-permanent-hair-color-8-5-oz-steel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/watercolors-intense-metallic-color-depositing-shampoo-semi-permanent-hair-color-8-5-oz-steel-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Watercolors Intense Metallic Color Depositing Shampoo for a few weeks now, and I must say, it has been a game-changer for my hair. The first thing that stood out to me was how vibrant and shiny my hair looked after just one wash. I usually have to use a toner to get my hair to that level of brightness, but this shampoo did it all on its own! 
 
@@ -154,9 +154,9 @@ However, there was a downside to it. While the shampoo was great at color-deposi
 Overall, I'd say this product is worth it if you're looking for a quick-fix to maintain your hair color or if you're short on time. Just be prepared to follow up with a good conditioning treatment. 
 
 
-### [Four Reasons Vegan Toning Shampoo for Brown Hair - Color Depositing Shampoo](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=four-reasons-vegan-toning-shampoo-for-brown-hair-color-depositing-shampoo)
+### [Four Reasons Vegan Toning Shampoo for Brown Hair - Color Depositing Shampoo](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=four-reasons-vegan-toning-shampoo-for-brown-hair-color-depositing-shampoo)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=four-reasons-vegan-toning-shampoo-for-brown-hair-color-depositing-shampoo"><img alt="four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=four-reasons-vegan-toning-shampoo-for-brown-hair-color-depositing-shampoo"><img alt="four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1/h=540,fit=pad,background=black"/></a></div>
 
 This shampoo is perfect for refreshing the color of brown and dark brown hair. With no sulfates, it gently cleanses and maintains the hair's color. The vegan product is also cruelty-free and packaged using sustainable materials. 
 
@@ -165,9 +165,9 @@ To use, apply a generous amount of shampoo to damp hair, massage it through, and
 Some users mentioned slight drying effects after use, best paired with a conditioner. To maintain color vibrancy, it's best suited for those with a medium length of hair. It can be a bit messy when washing, so make sure to cover shower surfaces and clothing to prevent staining. Overall, this shampoo is great for color-depositing on brown and dark brown hair, and with some tips and tricks, can yield satisfying results. 
 
 
-### [Colors Depositing Shampoo by Kilomets - Ammonia-Free Hair Dye in Dark Brown for Instant Results and Natural Hair Nourishment](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=colors-depositing-shampoo-by-kilomets-ammonia-free-hair-dye-in-dark-brown-for-instant-results-and-natural-hair-nourishment)
+### [Colors Depositing Shampoo by Kilomets - Ammonia-Free Hair Dye in Dark Brown for Instant Results and Natural Hair Nourishment](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=colors-depositing-shampoo-by-kilomets-ammonia-free-hair-dye-in-dark-brown-for-instant-results-and-natural-hair-nourishment)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=colors-depositing-shampoo-by-kilomets-ammonia-free-hair-dye-in-dark-brown-for-instant-results-and-natural-hair-nourishment"><img alt="kilomets-dark-brown-hair-dye-shampoo-400ml-100-grey-coverage-in-minutes-ammonia-free-hair-color-sham-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kilomets-dark-brown-hair-dye-shampoo-400ml-100-grey-coverage-in-minutes-ammonia-free-hair-color-sham-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=colors-depositing-shampoo-by-kilomets-ammonia-free-hair-dye-in-dark-brown-for-instant-results-and-natural-hair-nourishment"><img alt="kilomets-dark-brown-hair-dye-shampoo-400ml-100-grey-coverage-in-minutes-ammonia-free-hair-color-sham-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kilomets-dark-brown-hair-dye-shampoo-400ml-100-grey-coverage-in-minutes-ammonia-free-hair-color-sham-1/h=540,fit=pad,background=black"/></a></div>
 
 Kilomets Dark Brown Hair Dye Shampoo offers 100% grey coverage in minutes with its ammonia-free formula. The 400ml hair color shampoo is perfect for both men and women, making salon visits obsolete. 
 
@@ -176,18 +176,18 @@ Safe for your hair, skin, and the environment, this shampoo provides long-lastin
 This ammonia-free hair color shampoo is an effortless and cost-effective solution for achieving a dark brown color with grey coverage. 
 
 
-### [Kyogoku Color Depositing Shampoo for Vibrant, Long-Lasting Hair (Made in Japan)](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=kyogoku-color-depositing-shampoo-for-vibrant-long-lasting-hair-made-in-japan)
+### [Kyogoku Color Depositing Shampoo for Vibrant, Long-Lasting Hair (Made in Japan)](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=kyogoku-color-depositing-shampoo-for-vibrant-long-lasting-hair-made-in-japan)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=kyogoku-color-depositing-shampoo-for-vibrant-long-lasting-hair-made-in-japan"><img alt="kyogoku-blue-purple-color-shampoo-color-depositing-shampoo-6-8-fl-ozmade-in-japan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kyogoku-blue-purple-color-shampoo-color-depositing-shampoo-6-8-fl-ozmade-in-japan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=kyogoku-color-depositing-shampoo-for-vibrant-long-lasting-hair-made-in-japan"><img alt="kyogoku-blue-purple-color-shampoo-color-depositing-shampoo-6-8-fl-ozmade-in-japan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kyogoku-blue-purple-color-shampoo-color-depositing-shampoo-6-8-fl-ozmade-in-japan-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Kyogoku Blue Purple Color Depositing Shampoo, a product that aims to prevent bleach color and yellowing, as well as providing vibrant color to hair. My first experience with the product was interesting, as the pigment's thickness made it easier for the color to penetrate the hair. However, the color wasn't quite as vibrant as I had anticipated, and it took a while to get used to using it. 
 
 As a plus, the scent of the shampoo was pleasant, and it left my hair feeling soft and silky. The gentle amino acid-based cleaning ingredients made it suitable for even the most sensitive skin. Overall, I enjoyed using the Kyogoku Blue Purple Color Depositing Shampoo and found it to be a decent product, though it may not be the perfect fit for everyone. 
 
 
-### [Keracolor Color Clenditioner - Vibrant Semi-Permanent Hair Colour with Cruelty-Free Ingredients](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=keracolor-color-clenditioner-vibrant-semi-permanent-hair-colour-with-cruelty-free-ingredients)
+### [Keracolor Color Clenditioner - Vibrant Semi-Permanent Hair Colour with Cruelty-Free Ingredients](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=keracolor-color-clenditioner-vibrant-semi-permanent-hair-colour-with-cruelty-free-ingredients)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=keracolor-color-clenditioner-vibrant-semi-permanent-hair-colour-with-cruelty-free-ingredients"><img alt="keracolor-color-clenditioner-12-fl-oz-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keracolor-color-clenditioner-12-fl-oz-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=keracolor-color-clenditioner-vibrant-semi-permanent-hair-colour-with-cruelty-free-ingredients"><img alt="keracolor-color-clenditioner-12-fl-oz-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keracolor-color-clenditioner-12-fl-oz-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Keracolor Color Clenditioner: a game-changer for those looking to achieve vibrant, long-lasting hair color without the hassle of frequent visits to the salon. This innovative product provides not only a semi-permanent hair color, but also enhances your locks' natural shine and texture, all while being gentle on your hair
 
@@ -200,27 +200,27 @@ When using this product, it's essential to follow the instructions provided in t
 Overall, the Keracolor Color Clenditioner is an excellent addition to any hair care routine, offering a convenient and effective solution for those seeking long-lasting, vibrant hair color without resorting to frequent trips to the salon. With its non-damaging formula, deposit-only technology, and nourishing natural ingredients, this product is sure to make a positive impact on your hair's appearance and health. 
 
 
-### [Turquoise Wash-In Color Shampoo: Hair Toning and Nourishment in One Step](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=turquoise-wash-in-color-shampoo-hair-toning-and-nourishment-in-one-step)
+### [Turquoise Wash-In Color Shampoo: Hair Toning and Nourishment in One Step](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=turquoise-wash-in-color-shampoo-hair-toning-and-nourishment-in-one-step)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=turquoise-wash-in-color-shampoo-hair-toning-and-nourishment-in-one-step"><img alt="brite-turquoise-wash-in-color-shampoo-hydrating-cruelty-free-color-building-10-14-fl-oz-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brite-turquoise-wash-in-color-shampoo-hydrating-cruelty-free-color-building-10-14-fl-oz-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=turquoise-wash-in-color-shampoo-hair-toning-and-nourishment-in-one-step"><img alt="brite-turquoise-wash-in-color-shampoo-hydrating-cruelty-free-color-building-10-14-fl-oz-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brite-turquoise-wash-in-color-shampoo-hydrating-cruelty-free-color-building-10-14-fl-oz-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 For weeks, I've been using the Brite Turquoise Wash In Color Shampoo. I've really enjoyed the vibrant color it's gradually building up on my light hair, giving it a striking turquoise tone. One thing that stands out to me is its light, creamy formulation that doesn't weigh down my hair. I also love that this product's color builds up gently with each wash, making it a perfect addition to my hair routine. 
 
 However, one issue I've noticed is that the turquoise dye transfers to my hands, which requires me to wear gloves when using it. Additionally, I found that it's best suited for light hair and highlights, and its effect might be less noticeable on darker hair. Nonetheless, once I've followed the product's guidelines and incorporated it into my daily hair routine, I'm satisfied with the results it provides. 
 
 
-### [Vegan Color Depositing Shampoo - Cruelty-Free Semi-Permanent Hair Color](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=vegan-color-depositing-shampoo-cruelty-free-semi-permanent-hair-color)
+### [Vegan Color Depositing Shampoo - Cruelty-Free Semi-Permanent Hair Color](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=vegan-color-depositing-shampoo-cruelty-free-semi-permanent-hair-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=vegan-color-depositing-shampoo-cruelty-free-semi-permanent-hair-color"><img alt="no-fade-fresh-shampoo-color-depositing-copper-189-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/no-fade-fresh-shampoo-color-depositing-copper-189-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=vegan-color-depositing-shampoo-cruelty-free-semi-permanent-hair-color"><img alt="no-fade-fresh-shampoo-color-depositing-copper-189-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/no-fade-fresh-shampoo-color-depositing-copper-189-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried No Fade Fresh Color Depositing Shampoo and let me tell you, it's a game-changer for maintaining vibrant hair color. The shampoo uses a plant-based formula that is gentle enough for daily use, yet powerful enough to enhance and extend hair color. 
 
 One of my favorite features was the flexibility of using this shampoo in various ways, from boosting your hair color after a dip in the pool to correcting an unwanted shade. Plus, it works great after professional hair coloring too. I found my hair felt incredibly refreshed, smelling amazing, and the perfect copper hue stayed put for weeks. Can't wait to share more experiences with No Fade Fresh, a product that truly lives up to its name! 
 
 
-### [Herbishh Herbal Hair Color Shampoo: All-in-One Solution for Easy and Lasting Hair Color](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=herbishh-herbal-hair-color-shampoo-all-in-one-solution-for-easy-and-lasting-hair-color)
+### [Herbishh Herbal Hair Color Shampoo: All-in-One Solution for Easy and Lasting Hair Color](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=herbishh-herbal-hair-color-shampoo-all-in-one-solution-for-easy-and-lasting-hair-color)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=herbishh-herbal-hair-color-shampoo-all-in-one-solution-for-easy-and-lasting-hair-color"><img alt="hair-color-shampoo-for-gray-hair-magic-hair-dye-shampoo-colors-hair-in-minuteslong-lasting500-ml3-in-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hair-color-shampoo-for-gray-hair-magic-hair-dye-shampoo-colors-hair-in-minuteslong-lasting500-ml3-in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=herbishh-herbal-hair-color-shampoo-all-in-one-solution-for-easy-and-lasting-hair-color"><img alt="hair-color-shampoo-for-gray-hair-magic-hair-dye-shampoo-colors-hair-in-minuteslong-lasting500-ml3-in-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hair-color-shampoo-for-gray-hair-magic-hair-dye-shampoo-colors-hair-in-minuteslong-lasting500-ml3-in-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine waking up one day and realizing that you've been using the same shampoo all your life. It's not that you're against change, but sometimes, it's just easier to stick to what you know. Then, one day, you stumble upon Herbishh Herbal Hair Color Shampoo, and your whole world turns upside down. 
 
@@ -237,9 +237,9 @@ However, there was one downside to this otherwise fantastic shampoo. The shades 
 All in all, Herbishh Herbal Hair Color Shampoo has completely transformed the way I approach hair coloring. The ease of use, lack of mess, and long-lasting color make it a worthwhile investment for anyone looking to enhance their hair's appearance without the fuss. 
 
 
-### [Herbishh Hair Color Shampoo for Gray Hair (Travel Size) - Deep Dark Brown Coverage, 3-in-1 Hair Dye Shampoo, Natural Formula, Ammonia-Free](https://serp.ly/amazon/Color+Depositing+Shampoo?utm\_term=herbishh-hair-color-shampoo-for-gray-hair-travel-size-deep-dark-brown-coverage-3-in-1-hair-dye-shampoo-natural-formula-ammonia-free)
+### [Herbishh Hair Color Shampoo for Gray Hair (Travel Size) - Deep Dark Brown Coverage, 3-in-1 Hair Dye Shampoo, Natural Formula, Ammonia-Free](https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm\_term=herbishh-hair-color-shampoo-for-gray-hair-travel-size-deep-dark-brown-coverage-3-in-1-hair-dye-shampoo-natural-formula-ammonia-free)
 
-<div class="image"><a href="https://serp.ly/amazon/Color+Depositing+Shampoo?utm_term=herbishh-hair-color-shampoo-for-gray-hair-travel-size-deep-dark-brown-coverage-3-in-1-hair-dye-shampoo-natural-formula-ammonia-free"><img alt="herbishh-hair-color-shampoo-for-gray-hair-hair-dye-shampoo-with-argan-hair-mask-travel-size-colors-h-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/herbishh-hair-color-shampoo-for-gray-hair-hair-dye-shampoo-with-argan-hair-mask-travel-size-colors-h-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo?utm_term=herbishh-hair-color-shampoo-for-gray-hair-travel-size-deep-dark-brown-coverage-3-in-1-hair-dye-shampoo-natural-formula-ammonia-free"><img alt="herbishh-hair-color-shampoo-for-gray-hair-hair-dye-shampoo-with-argan-hair-mask-travel-size-colors-h-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/herbishh-hair-color-shampoo-for-gray-hair-hair-dye-shampoo-with-argan-hair-mask-travel-size-colors-h-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking to revitalize your hair and cover those pesky grays? Say hello to Herbishh Hair Color Shampoo for Gray Hair, the hassle-free, long-lasting solution you've been waiting for. Infused with active botanicals, this hair dye shampoo packs a powerful punch that gives your hair a deep, Dark Brown color that lasts for 3 to 4 weeks. It's perfect for those who want to achieve a luxurious, youthful look without breaking the bank or spending hours in the salon. 
 
@@ -260,7 +260,7 @@ Choosing the right color depositing shampoo can be a challenge, with so many opt
 When choosing a color depositing shampoo, consider the following features: 
 1) Intended hair color, 2) Ingredients, 3) pH level, 4) Deep conditioning or nourishment benefits, and 5) Fragrance and added extras like UV protection. Paying attention to these factors will help ensure that you find the right product for your hair type and color needs. 
 
-<div><a href="https://serp.ly/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-2/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-2/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-2" height="540"></a></div>
 
 
 ### Intended Hair Color
@@ -272,7 +272,7 @@ Color depositing shampoos come in various shades designed to help maintain and e
 
 A good color depositing shampoo should contain natural and gentle ingredients, like chamomile, aloe vera, or coconut oil, that help to gently deposit color onto your hair. These ingredients also help to nourish and strengthen the hair, preventing color loss and damage. Avoid products with harsh chemicals or artificial fragrances, as they can be damaging to your hair. 
 
-<div><a href="https://serp.ly/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-3/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-3/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-3" height="540"></a></div>
 
 
 ### pH Level
@@ -282,7 +282,7 @@ The pH level of a color depositing shampoo is crucial for maintaining the integr
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-4/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-4/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-4" height="540"></a></div>
 
 
 ### What is a Depositing Hair Shampoo?
@@ -298,7 +298,7 @@ For the best outcomes, opt for a high-quality Depositing Hair Shampoo with nouri
 
 Furthermore, ensure the shampoo is sulfate-free and devoid of harsh and damaging chemicals. Sulfate-free shampoos are milder on your hair and retain the hair's natural moisture, essential for maintaining healthy and vibrant color-treated hair.
 
-<div><a href="https://serp.ly/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-5/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-5/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-5" height="540"></a></div>
 
 
 ### How frequently should I use a Depositing Hair Shampoo?
@@ -314,7 +314,7 @@ The duration that a Depositing Hair Shampoo lasts depends on different factors, 
 
 Remember, Depositing Hair Shampoos do not offer permanent color change. If you're seeking a long-lasting hair color solution, you may want to consider other hair color products like dyes or semi-permanent hair colors. To maintain your hair's color between salon visits, use appropriate hair care products such as a color-protecting conditioner and a sulfate-free shampoo to prolong the color.
 
-<div><a href="https://serp.ly/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-6/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Color+Depositing+Shampoo"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Color-Depositing-Shampoo-6/h=540,fit=pad,background=black" alt="Color-Depositing-Shampoo-6" height="540"></a></div>
 
 
 ### What are the benefits of using a Depositing Hair Shampoo?

@@ -14,9 +14,9 @@ Looking for a versatile and energy-efficient lighting solution? Meet the G9 Bulb
 ## Reviews
 
 
-### [Retrofit G9 5W Dimmable LED Bulb (40W Halogen Replacement)](https://serp.ly/amazon/G9+Bulb?utm\_term=retrofit-g9-5w-dimmable-led-bulb-40w-halogen-replacement)
+### [Retrofit G9 5W Dimmable LED Bulb (40W Halogen Replacement)](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=retrofit-g9-5w-dimmable-led-bulb-40w-halogen-replacement)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=retrofit-g9-5w-dimmable-led-bulb-40w-halogen-replacement"><img alt="artiva-usa-5w-g9-dimmable-led-light-bulb-set-of-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artiva-usa-5w-g9-dimmable-led-light-bulb-set-of-6-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=retrofit-g9-5w-dimmable-led-bulb-40w-halogen-replacement"><img alt="artiva-usa-5w-g9-dimmable-led-light-bulb-set-of-6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artiva-usa-5w-g9-dimmable-led-light-bulb-set-of-6-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Artiva USA 5W G9 Dimmable LED Light Bulbs in my home, replacing my old halogen lights for a more sustainable and energy-efficient option. These warm white bulbs emit a cozy 3000K light, perfect for creating a relaxing atmosphere. 
 
@@ -27,36 +27,36 @@ However, after using these light bulbs for a few months, I experienced some dura
 In summary, the Artiva USA 5W G9 Dimmable LED Light Bulbs offer a bright, warm, and energy-efficient lighting option. However, their durability might be a concern for some users. Despite this, I would recommend these bulbs for anyone looking to create a cozy atmosphere and save on their energy bills. 
 
 
-### [Bright Halogen G60 Capsule Light Bulbs for Accent Lighting](https://serp.ly/amazon/G9+Bulb?utm\_term=bright-halogen-g60-capsule-light-bulbs-for-accent-lighting)
+### [Bright Halogen G60 Capsule Light Bulbs for Accent Lighting](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=bright-halogen-g60-capsule-light-bulbs-for-accent-lighting)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=bright-halogen-g60-capsule-light-bulbs-for-accent-lighting"><img alt="sunlite-q60-cl-g9-120v-12pk-halogen-60w-120v-q60-single-ended-capsule-light-bulbs-clear-finish-3200k-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunlite-q60-cl-g9-120v-12pk-halogen-60w-120v-q60-single-ended-capsule-light-bulbs-clear-finish-3200k-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=bright-halogen-g60-capsule-light-bulbs-for-accent-lighting"><img alt="sunlite-q60-cl-g9-120v-12pk-halogen-60w-120v-q60-single-ended-capsule-light-bulbs-clear-finish-3200k-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunlite-q60-cl-g9-120v-12pk-halogen-60w-120v-q60-single-ended-capsule-light-bulbs-clear-finish-3200k-1/h=540,fit=pad,background=black"/></a></div>
 
 These Sunlite Q60 capsule light bulbs offer a reliable and efficient form of illumination without the need for mercury. With a brightness of 800 lumens at 120 volts, they provide a 3200K dimmable bright white light using only 60 watts of energy. 
 
 Their simple installation process, combined with their long life averaging up to 2000 hours, makes them a practical and easy-to-maintain lighting solution. The clear finish G9 bulbs with a bi-pin base are versatile and suitable for various settings, such as accent lighting, under cabinet, desk lamps, closet lights, displays, and general purpose lighting. 
 
 
-### [Set of 3 Clear G9 Incandescent Light Bulbs](https://serp.ly/amazon/G9+Bulb?utm\_term=set-of-3-clear-g9-incandescent-light-bulbs)
+### [Set of 3 Clear G9 Incandescent Light Bulbs](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=set-of-3-clear-g9-incandescent-light-bulbs)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=set-of-3-clear-g9-incandescent-light-bulbs"><img alt="set-of-3-clear-incandescent-light-bulbs-with-g9-socket-base-1-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/set-of-3-clear-incandescent-light-bulbs-with-g9-socket-base-1-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=set-of-3-clear-g9-incandescent-light-bulbs"><img alt="set-of-3-clear-incandescent-light-bulbs-with-g9-socket-base-1-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/set-of-3-clear-incandescent-light-bulbs-with-g9-socket-base-1-5-1/h=540,fit=pad,background=black"/></a></div>
 
 These G9 bulbs have been a lifesaver for me. The 25-watt incandescent bulbs are incredibly bright, lighting up even the darkest corners of my home. The clear bulb design gives off a warm, inviting ambiance, perfect for cozying up on a chilly evening. 
 
 I love that they are UL certified, ensuring I'm using a safe product in my house. One minor downside - they don't last as long as their LED counterparts, but they still provide 2000 hours of illumination without breaking the bank. A great option for any indoor space! 
 
 
-### [Goodlite G-83516 7.5W LED G9 120V 700 Lumens Bright, 60W Equivalent Light Bulb, 4100K Cool White Clear](https://serp.ly/amazon/G9+Bulb?utm\_term=goodlite-g-83516-7-5w-led-g9-120v-700-lumens-bright-60w-equivalent-light-bulb-4100k-cool-white-clear)
+### [Goodlite G-83516 7.5W LED G9 120V 700 Lumens Bright, 60W Equivalent Light Bulb, 4100K Cool White Clear](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=goodlite-g-83516-7-5w-led-g9-120v-700-lumens-bright-60w-equivalent-light-bulb-4100k-cool-white-clear)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=goodlite-g-83516-7-5w-led-g9-120v-700-lumens-bright-60w-equivalent-light-bulb-4100k-cool-white-clear"><img alt="goodlite-g-83516-7-5w-led-g9-120v-700-lumens-300-beam-angle-60w-equal-light-bulb-4100k-cool-white-cl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/goodlite-g-83516-7-5w-led-g9-120v-700-lumens-300-beam-angle-60w-equal-light-bulb-4100k-cool-white-cl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=goodlite-g-83516-7-5w-led-g9-120v-700-lumens-bright-60w-equivalent-light-bulb-4100k-cool-white-clear"><img alt="goodlite-g-83516-7-5w-led-g9-120v-700-lumens-300-beam-angle-60w-equal-light-bulb-4100k-cool-white-cl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/goodlite-g-83516-7-5w-led-g9-120v-700-lumens-300-beam-angle-60w-equal-light-bulb-4100k-cool-white-cl-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer, I've used the Goodlite 7.5 watt LED G9 for a few weeks now and it's been a solid replacement for traditional halogen bulbs. It fits well into tight spots and I've used it both indoors and outdoors. I must say, the energy savings are impressive - expect to save around $380 in energy costs over the bulb's long lifespan of 25,000 hours. 
 
 The 300 beam angle makes it perfect for creating ambient lighting in any room, and the soft, warm glow is a welcome change from the harshness of incandescent bulbs. The only downside I've experienced is that it doesn't work with all dimmer switches, but overall, the bulb's capabilities outweigh this minor inconvenience. 
 
 
-### [Feit G9 Clear 40 Watt Halogen JCD Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-g9-clear-40-watt-halogen-jcd-bulb)
+### [Feit G9 Clear 40 Watt Halogen JCD Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-g9-clear-40-watt-halogen-jcd-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-g9-clear-40-watt-halogen-jcd-bulb"><img alt="feit-bpq40-g9-can-40-watt-halogen-jcd-bulb-w-g9-base-clear-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-bpq40-g9-can-40-watt-halogen-jcd-bulb-w-g9-base-clear-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-g9-clear-40-watt-halogen-jcd-bulb"><img alt="feit-bpq40-g9-can-40-watt-halogen-jcd-bulb-w-g9-base-clear-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-bpq40-g9-can-40-watt-halogen-jcd-bulb-w-g9-base-clear-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few weeks, I've been using the Feit BPQ40-G9-CAN 40 Watt Halogen JCD Bulb with G9 Base in my living room. The warm white light it emits has transformed the room into a cozy and inviting space. Its power output of 40 watts provides a bright and focused light that's perfect for reading or working. 
 
@@ -67,18 +67,18 @@ However, one downside I experienced was its relatively short lifespan. After les
 Overall, the Feit BPQ40-G9-CAN 40 Watt Halogen JCD Bulb with G9 Base is a good choice if you're looking for a bright and energy-efficient bulb. But keep in mind that you may need to replace it more frequently than you would expect. 
 
 
-### [Feit Electric 35-Watt G9 Bi-Pin Halogen Light Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-electric-35-watt-g9-bi-pin-halogen-light-bulb)
+### [Feit Electric 35-Watt G9 Bi-Pin Halogen Light Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-electric-35-watt-g9-bi-pin-halogen-light-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-electric-35-watt-g9-bi-pin-halogen-light-bulb"><img alt="feit-electric-bpq35-g9-can-35-watt-clear-dimmable-g9-base-jcd-bi-pin-halogen-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-bpq35-g9-can-35-watt-clear-dimmable-g9-base-jcd-bi-pin-halogen-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-electric-35-watt-g9-bi-pin-halogen-light-bulb"><img alt="feit-electric-bpq35-g9-can-35-watt-clear-dimmable-g9-base-jcd-bi-pin-halogen-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-bpq35-g9-can-35-watt-clear-dimmable-g9-base-jcd-bi-pin-halogen-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
 
 The Feit Electric 35-Watt G9 Clear Dimmable Halogen Light Bulb is a high-quality option for outdoor lighting, offering an instant on feature and warm white light. With a long lifespan of up to 2,000 hours, this bulb is a more energy-efficient choice compared to traditional incandescent lighting. Its clear design and ability to dim make it an excellent choice for various applications, such as task lighting and desk lamps. 
 
 As a family-owned business since 1978, Feit Electric is dedicated to delivering top lighting innovations. This specific LED bulb is made in China and has a voltage of 120 volts, making it suitable for indoor use. 
 
 
-### [Osram G9 Halogen Oven Bulb with Enhanced Lifespan and Warm White Light](https://serp.ly/amazon/G9+Bulb?utm\_term=osram-g9-halogen-oven-bulb-with-enhanced-lifespan-and-warm-white-light)
+### [Osram G9 Halogen Oven Bulb with Enhanced Lifespan and Warm White Light](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=osram-g9-halogen-oven-bulb-with-enhanced-lifespan-and-warm-white-light)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=osram-g9-halogen-oven-bulb-with-enhanced-lifespan-and-warm-white-light"><img alt="osram-66740-230v-40w-g9-halopin-oven-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/osram-66740-230v-40w-g9-halopin-oven-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=osram-g9-halogen-oven-bulb-with-enhanced-lifespan-and-warm-white-light"><img alt="osram-66740-230v-40w-g9-halopin-oven-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/osram-66740-230v-40w-g9-halopin-oven-1/h=540,fit=pad,background=black"/></a></div>
 
 The Osram 66740 Oven offers quality, tradition, and innovation all in one compact package. With a rating of 4.7, it seems to have impressed many customers. 
 
@@ -87,18 +87,18 @@ The bulb provides up to twice the lifespan of conventional bulbs and offers imme
 The Osram brand ensures that the bulbs emit a warm white light for well-being and relaxation, ideal for rooms such as bedrooms or children's rooms. They are also convenient to replace with standard incandescent lamps for outdoor use. 
 
 
-### [Bright Feit Electric 60-Watt G9 Bulb Pair (3000K)](https://serp.ly/amazon/G9+Bulb?utm\_term=bright-feit-electric-60-watt-g9-bulb-pair-3000k)
+### [Bright Feit Electric 60-Watt G9 Bulb Pair (3000K)](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=bright-feit-electric-60-watt-g9-bulb-pair-3000k)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=bright-feit-electric-60-watt-g9-bulb-pair-3000k"><img alt="feit-electric-60-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-60-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=bright-feit-electric-60-watt-g9-bulb-pair-3000k"><img alt="feit-electric-60-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-60-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1/h=540,fit=pad,background=black"/></a></div>
 
 Experience top-notch lighting with the Feit Electric 60-Watt T4 Bright White Halogen Light bulb, designed to replace traditional halogen bulbs. Boasting a bright white appearance at 3000K, the bulb uses only 60-Watts, making it an energy-efficient choice. With a 120-Volt base and G9 bulb shape, this dimmable light is perfect for adding a warm glow to any room and it's backed by a 2,000-hour lifespan. 
 
 Some notable features of the bulb include its compact T4 shape, providing a wide area of coverage and high energy efficiency. It's also easy to install due to its G9 bulb base, which fits seamlessly into your existing fixtures. If you're looking for a reliable and budget-friendly choice for lighting, this Feit Electric T4 bulb should definitely be on your list. 
 
 
-### [Energy-Saving 3000K Bright White G9 LED Light Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=energy-saving-3000k-bright-white-g9-led-light-bulb)
+### [Energy-Saving 3000K Bright White G9 LED Light Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=energy-saving-3000k-bright-white-g9-led-light-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=energy-saving-3000k-bright-white-g9-led-light-bulb"><img alt="feit-electric-60-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-60-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=energy-saving-3000k-bright-white-g9-led-light-bulb"><img alt="feit-electric-60-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-60-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the 6.5-Watt Feit Electric T4 G9 Bi-Pin Base Decorative LED Light Bulb, a stunning addition to any ambiance. This energy-saving bulb emits 3000K bright white light, providing a 750 Lumen output that rivals a 60-Watt incandescent bulb. 
 
@@ -109,27 +109,27 @@ This G9 bulb is RoHS compliant, made from 100% mercury-free materials, and has a
 And let's not forget, the ceramic base is a touch on the delicate side, so handle it with care. 
 
 
-### [G9 LED Bulbs: GOLSPARK 4W 3000K Soft White 350LM Non-Dimmable 360 Degrees Beam Angle](https://serp.ly/amazon/G9+Bulb?utm\_term=g9-led-bulbs-golspark-4w-3000k-soft-white-350lm-non-dimmable-360-degrees-beam-angle)
+### [G9 LED Bulbs: GOLSPARK 4W 3000K Soft White 350LM Non-Dimmable 360 Degrees Beam Angle](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=g9-led-bulbs-golspark-4w-3000k-soft-white-350lm-non-dimmable-360-degrees-beam-angle)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=g9-led-bulbs-golspark-4w-3000k-soft-white-350lm-non-dimmable-360-degrees-beam-angle"><img alt="g9-led-bulbs-golspark-4w-chandelier-light-bulbs-40w-halogen-equivalent-3000k-soft-white-g9-bi-pin-ba-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/g9-led-bulbs-golspark-4w-chandelier-light-bulbs-40w-halogen-equivalent-3000k-soft-white-g9-bi-pin-ba-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=g9-led-bulbs-golspark-4w-3000k-soft-white-350lm-non-dimmable-360-degrees-beam-angle"><img alt="g9-led-bulbs-golspark-4w-chandelier-light-bulbs-40w-halogen-equivalent-3000k-soft-white-g9-bi-pin-ba-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/g9-led-bulbs-golspark-4w-chandelier-light-bulbs-40w-halogen-equivalent-3000k-soft-white-g9-bi-pin-ba-1/h=540,fit=pad,background=black"/></a></div>
 
 In the past few weeks, I've been using the GOLSPARK G9 LED Bulbs for my chandelier. I have to say, these bulbs are a game-changer! The installation was super easy, and I didn't need any specialized skills or tools. The bulbs instantly turn on without any delay, and the warm white light is truly glare-free. I was particularly impressed with the fact that these bulbs only consume 4W while providing an equivalent brightness to a 40W halogen bulb. They definitely did a fantastic job replacing the old ones. However, the bulbs are non-dimmable, which might not work for everyone. 
 
 Overall, if you're looking for an energy-efficient and easy-to-install option, the GOLSPARK G9 LED Bulbs could be the perfect choice. Just be sure to follow the installation instructions carefully, and don't forget to turn off the power before installing. These bulbs will provide you with a warm, soft white light that's not too harsh on the eyes, making it an excellent replacement for your old bulbs. 
 
 
-### [Ziyidianzhi Dimmable G9 LED Daylight Bulb: 4 Watts Replacement for 40 Watts Halogen G9 Lights](https://serp.ly/amazon/G9+Bulb?utm\_term=ziyidianzhi-dimmable-g9-led-daylight-bulb-4-watts-replacement-for-40-watts-halogen-g9-lights)
+### [Ziyidianzhi Dimmable G9 LED Daylight Bulb: 4 Watts Replacement for 40 Watts Halogen G9 Lights](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=ziyidianzhi-dimmable-g9-led-daylight-bulb-4-watts-replacement-for-40-watts-halogen-g9-lights)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=ziyidianzhi-dimmable-g9-led-daylight-bulb-4-watts-replacement-for-40-watts-halogen-g9-lights"><img alt="ziyidianzhi-g9-led-dimmable-light-daylight-4-watts-replacement-for-40-watts-halogen-g9-bulb-daylight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ziyidianzhi-g9-led-dimmable-light-daylight-4-watts-replacement-for-40-watts-halogen-g9-bulb-daylight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=ziyidianzhi-dimmable-g9-led-daylight-bulb-4-watts-replacement-for-40-watts-halogen-g9-lights"><img alt="ziyidianzhi-g9-led-dimmable-light-daylight-4-watts-replacement-for-40-watts-halogen-g9-bulb-daylight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ziyidianzhi-g9-led-dimmable-light-daylight-4-watts-replacement-for-40-watts-halogen-g9-bulb-daylight-1/h=540,fit=pad,background=black"/></a></div>
 
 The ziyidianzhi G9 LED Dimmable Light is a 4-watt replacement for a 40-watt halogen G9 bulb. This daylight 6000K bulb offers a 360-degree, evenly distributed beam that's both instant on and flicker-free. With its small size and compatibility with specific dimmers, this LED bulb is great for tricky light fixtures in various settings, such as supermarkets, hotels, and children's playrooms. 
 
 While it's not suitable for outdoor use, its indoor-friendly design makes it a practical addition to any living room, bedroom, or dining room. 
 
 
-### [Dimmable Daylight Bright LED Bulb for G9 Sockets (6 Pack)](https://serp.ly/amazon/G9+Bulb?utm\_term=dimmable-daylight-bright-led-bulb-for-g9-sockets-6-pack)
+### [Dimmable Daylight Bright LED Bulb for G9 Sockets (6 Pack)](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=dimmable-daylight-bright-led-bulb-for-g9-sockets-6-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=dimmable-daylight-bright-led-bulb-for-g9-sockets-6-pack"><img alt="heifymi-g9-led-bulb-dimmable-5w-6000k-daylight-bright-white-g9-40-watt-halogen-replacement-ac120v-g9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heifymi-g9-led-bulb-dimmable-5w-6000k-daylight-bright-white-g9-40-watt-halogen-replacement-ac120v-g9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=dimmable-daylight-bright-led-bulb-for-g9-sockets-6-pack"><img alt="heifymi-g9-led-bulb-dimmable-5w-6000k-daylight-bright-white-g9-40-watt-halogen-replacement-ac120v-g9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heifymi-g9-led-bulb-dimmable-5w-6000k-daylight-bright-white-g9-40-watt-halogen-replacement-ac120v-g9-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently switched to these Heifymi G9 LED bulbs for my home, and I must say, they're a game-changer. Not only do they make my room feel brighter, but they also provide a comfortable atmosphere without causing any eye strain. The 360-degree lighting and high CRI 82RA color rendering is a lifesaver, as it helps the true color of objects stand out in all environments. 
 
@@ -140,36 +140,36 @@ The bulbs are also easy to install and dimmable without any flicker. I've used v
 However, it's worth mentioning that these bulbs are only intended for indoor use. But overall, I'm really happy with the switch to these Heifymi G9 LED bulbs. They've made a significant difference in the brightness and atmosphere of my home. 
 
 
-### [Feit Electric: 50-Watt Bright White G9 Bi-Pin Base Dimmable Decorative Halogen Light Bulbs (2-Pack)](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-electric-50-watt-bright-white-g9-bi-pin-base-dimmable-decorative-halogen-light-bulbs-2-pack)
+### [Feit Electric: 50-Watt Bright White G9 Bi-Pin Base Dimmable Decorative Halogen Light Bulbs (2-Pack)](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-electric-50-watt-bright-white-g9-bi-pin-base-dimmable-decorative-halogen-light-bulbs-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-electric-50-watt-bright-white-g9-bi-pin-base-dimmable-decorative-halogen-light-bulbs-2-pack"><img alt="feit-electric-50-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-50-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-electric-50-watt-bright-white-g9-bi-pin-base-dimmable-decorative-halogen-light-bulbs-2-pack"><img alt="feit-electric-50-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-50-watt-bright-white-3000k-t4-g9-bi-pin-base-dimmable-decorative-halogen-light-bulb-2--1/h=540,fit=pad,background=black"/></a></div>
 
 When I started using the Feit Electric 50-Watt Bright White LED Light Bulb, I was surprised by how efficiently it illuminated the room. The warm, white glow was perfect for my living space, and I loved that it didn't cost an arm and a leg to maintain. Another perk was the bulb's dimmable feature, which allowed me to adjust the brightness to my liking. 
 
 Overall, I couldn't be happier with this purchase. 
 
 
-### [Umleeddlt G9 Dimmable LED Bulb for Chandeliers - 3000K Warm White G9 Bi Pin Base, 4W & 40W Eco-Friendly Alternative to G9 Halogen](https://serp.ly/amazon/G9+Bulb?utm\_term=umleeddlt-g9-dimmable-led-bulb-for-chandeliers-3000k-warm-white-g9-bi-pin-base-4w-40w-eco-friendly-alternative-to-g9-halogen)
+### [Umleeddlt G9 Dimmable LED Bulb for Chandeliers - 3000K Warm White G9 Bi Pin Base, 4W & 40W Eco-Friendly Alternative to G9 Halogen](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=umleeddlt-g9-dimmable-led-bulb-for-chandeliers-3000k-warm-white-g9-bi-pin-base-4w-40w-eco-friendly-alternative-to-g9-halogen)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=umleeddlt-g9-dimmable-led-bulb-for-chandeliers-3000k-warm-white-g9-bi-pin-base-4w-40w-eco-friendly-alternative-to-g9-halogen"><img alt="umleeddlt-g9-led-bulb-dimmable-40-watt-g9-halogen-equivalent-4w-chandelier-light-bulbs-3000k-warm-wh-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/umleeddlt-g9-led-bulb-dimmable-40-watt-g9-halogen-equivalent-4w-chandelier-light-bulbs-3000k-warm-wh-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=umleeddlt-g9-dimmable-led-bulb-for-chandeliers-3000k-warm-white-g9-bi-pin-base-4w-40w-eco-friendly-alternative-to-g9-halogen"><img alt="umleeddlt-g9-led-bulb-dimmable-40-watt-g9-halogen-equivalent-4w-chandelier-light-bulbs-3000k-warm-wh-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/umleeddlt-g9-led-bulb-dimmable-40-watt-g9-halogen-equivalent-4w-chandelier-light-bulbs-3000k-warm-wh-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Umleeddlt G9 LED Bulb for a while now, and it's been quite a game-changer for me. It's a dimmable, 40-watt bulb that replaces your old 40-watt halogen bulbs, so it's more energy efficient and doesn't make your lights flicker. 
 
 The best part? It gives off a warm, 3000K light that reminds me of the good old days! Plus, it works with most dimmers and is super easy to install. 
 
 
-### [Feit Electric High-Quality G9 Halogen Light Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-electric-high-quality-g9-halogen-light-bulb)
+### [Feit Electric High-Quality G9 Halogen Light Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-electric-high-quality-g9-halogen-light-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-electric-high-quality-g9-halogen-light-bulb"><img alt="feit-electric-bpq60-g9-halogen-jcd-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-bpq60-g9-halogen-jcd-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-electric-high-quality-g9-halogen-light-bulb"><img alt="feit-electric-bpq60-g9-halogen-jcd-light-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-bpq60-g9-halogen-jcd-light-bulb-1/h=540,fit=pad,background=black"/></a></div>
 
 Feit Electric BPQ60/G9 Halogen JCD Light Bulb: I've been using this little gem for a while now, and I must say, it's been a reliable addition to my collection of light bulbs. What I love about this bulb is its compact size and clear finish that provides maximum brightness. It's also dimmable, which means I can adjust the lighting to my preference, and I appreciate its 2000-hour life span. 
 
 However, there's one thing I noticed that bugs me a little - it only lasted for about a year before needing replacement. That being said, it's still a great value for its price and makes the oven in my kitchen a lot brighter. 
 
 
-### [Vinaco G9 High Output Long Lasting Light Bulbs 10 Pack](https://serp.ly/amazon/G9+Bulb?utm\_term=vinaco-g9-high-output-long-lasting-light-bulbs-10-pack)
+### [Vinaco G9 High Output Long Lasting Light Bulbs 10 Pack](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=vinaco-g9-high-output-long-lasting-light-bulbs-10-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=vinaco-g9-high-output-long-lasting-light-bulbs-10-pack"><img alt="vinaco-g9-bulb-10-pack-g9-halogen-bulb-60-watt-high-output-720lm-jd-g9-120v-60w-g9-light-bulb-dimmab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vinaco-g9-bulb-10-pack-g9-halogen-bulb-60-watt-high-output-720lm-jd-g9-120v-60w-g9-light-bulb-dimmab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=vinaco-g9-high-output-long-lasting-light-bulbs-10-pack"><img alt="vinaco-g9-bulb-10-pack-g9-halogen-bulb-60-watt-high-output-720lm-jd-g9-120v-60w-g9-light-bulb-dimmab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vinaco-g9-bulb-10-pack-g9-halogen-bulb-60-watt-high-output-720lm-jd-g9-120v-60w-g9-light-bulb-dimmab-1/h=540,fit=pad,background=black"/></a></div>
 
 These Vinaco G9 Bulbs are quite impressive, offering excellent performance with a high brightness of 720 lumens and a warm, 2800K bright white color. The CRI (Color Rendering Index) is up to 100, meaning they can restore the true colors of objects and create a more vibrant ambiance. They're also built to last, with a lifespan of over 3000 hours and the ability to switch on and off up to 15000 times. 
 
@@ -178,18 +178,18 @@ These bulbs are CE and RoHS compliant, ensuring they meet high-quality standards
 Overall, these bulbs provide great value for their price and can enhance the warm lighting conditions in any space. 
 
 
-### [Halogen G9.5 Indoor Light Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=halogen-g9-5-indoor-light-bulb)
+### [Halogen G9.5 Indoor Light Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=halogen-g9-5-indoor-light-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=halogen-g9-5-indoor-light-bulb"><img alt="fel-osram-g9-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fel-osram-g9-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=halogen-g9-5-indoor-light-bulb"><img alt="fel-osram-g9-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fel-osram-g9-5-1/h=540,fit=pad,background=black"/></a></div>
 
 The Fel Osram G9.5 is a stellar halogen light bulb that offers a brighter and whiter light compared to traditional incandescent bulbs. With a dimmable feature, it can be used in various applications, including interior, interior recessed lighting, track lighting, and security lighting. The bulb is suitable for 120V systems and has a power of 1000W. 
 
 The G9.5 base ensures easy installation, and the 3200K rating provides a warm, soft white light. With an average lifespan of 300 hours, you can enjoy the brightness until it's time for a replacement. Satisfied customers appreciate the cost-effective prices and impressive product protection during shipping. 
 
 
-### [Feit Electric - High-Quality G9 Base LED Bulb](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-electric-high-quality-g9-base-led-bulb)
+### [Feit Electric - High-Quality G9 Base LED Bulb](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-electric-high-quality-g9-base-led-bulb)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-electric-high-quality-g9-base-led-bulb"><img alt="feit-electric-g9-base-led-bulb-g9-led-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-g9-base-led-bulb-g9-led-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-electric-high-quality-g9-base-led-bulb"><img alt="feit-electric-g9-base-led-bulb-g9-led-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-g9-base-led-bulb-g9-led-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the warmth and energy efficiency of the Feit Electric g9/LED 20w wedge LED light bulb, designed to replace 20-watt incandescent bulbs. This non-dimmable, 3000k warm white light produces a similar brightness (160 lumens) while using only 2 watts of energy, saving up to 90% compared to conventional bulbs. 
 
@@ -198,9 +198,9 @@ The bulb features a cool running performance and an average life of 15,000 hours
 Enjoy the convenience of instant on to full brightness with this advanced LED energy-saving technology. 
 
 
-### [Feit Electric G9 LED Light Bulb Pack - Bright White Decorative Option](https://serp.ly/amazon/G9+Bulb?utm\_term=feit-electric-g9-led-light-bulb-pack-bright-white-decorative-option)
+### [Feit Electric G9 LED Light Bulb Pack - Bright White Decorative Option](https://serp.ly/@outrun/amazon/G9+Bulb?utm\_term=feit-electric-g9-led-light-bulb-pack-bright-white-decorative-option)
 
-<div class="image"><a href="https://serp.ly/amazon/G9+Bulb?utm_term=feit-electric-g9-led-light-bulb-pack-bright-white-decorative-option"><img alt="feit-electric-35-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-6-pa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-35-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-6-pa-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/G9+Bulb?utm_term=feit-electric-g9-led-light-bulb-pack-bright-white-decorative-option"><img alt="feit-electric-35-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-6-pa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-35-watt-equivalent-bright-white-3000k-t4-g9-bi-pin-base-decorative-led-light-bulb-6-pa-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the energy-saving power of LED technology with the Feit Electric BP35G9/830/LED/HDRP 3.5-Watt T4 Specialty LED Light Bulb. This 3000K bright white light replacement for a 35-Watt incandescent bulb produces 350 lumens of warm white light while using only 3.5 watts of electricity. 
 

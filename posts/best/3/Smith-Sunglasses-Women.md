@@ -14,9 +14,9 @@ Welcome to our roundup of Smith Sunglasses Women - the ultimate collection of st
 ## Reviews
 
 
-### [Smith Outcome Matte Black Women's Polarized Sunglasses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-outcome-matte-black-womens-polarized-sunglasses)
+### [Smith Outcome Matte Black Women's Polarized Sunglasses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-outcome-matte-black-womens-polarized-sunglasses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-outcome-matte-black-womens-polarized-sunglasses"><img alt="smith-outcome-sunglasses-matte-black-polarized-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-outcome-sunglasses-matte-black-polarized-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-outcome-matte-black-womens-polarized-sunglasses"><img alt="smith-outcome-sunglasses-matte-black-polarized-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-outcome-sunglasses-matte-black-polarized-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Smith Outcome sunglasses, and I have to say, I was pretty impressed. These shades not only look great, but they also pack a punch when it comes to performance. 
 
@@ -29,9 +29,9 @@ Now, let's talk about the frame. The metal frame and acetate temple tips gave th
 Overall, the Smith Outcome sunglasses were a great addition to my daily routine. They provided excellent protection, performance, and comfort, and I only encountered a few minor downsides. It's definitely worth considering these shades if you're in the market for a new pair of sunglasses. 
 
 
-### [Smith ChromaPop Women's Sunglasses with Adjustable Fit](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-chromapop-womens-sunglasses-with-adjustable-fit)
+### [Smith ChromaPop Women's Sunglasses with Adjustable Fit](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-chromapop-womens-sunglasses-with-adjustable-fit)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-chromapop-womens-sunglasses-with-adjustable-fit"><img alt="smith-flywheel-sunglasses-matte-crystal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-flywheel-sunglasses-matte-crystal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-chromapop-womens-sunglasses-with-adjustable-fit"><img alt="smith-flywheel-sunglasses-matte-crystal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-flywheel-sunglasses-matte-crystal-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever feel like your sunglasses just don't give you the full range of colors while you're out exploring nature? Well, the Smith Flywheel Chromapop Sunglasses are here to change the game. With their Chromapop lenses, these sunglasses filter out two distinct wavelengths that cause color confusion, allowing you to see the beautiful landscapes around you in all their glory. 
 
@@ -42,9 +42,9 @@ These sunglasses are a game-changer for those with an active lifestyle, perfectl
 The only downside is that the lenses aren't replaceable, but if you're willing to sacrifice that, you'll find these sunglasses to be quite the steal. Whether you're new to the Smith brand or a long-time fan, the Smith Flywheel Chromapop Sunglasses are worth giving a try. 
 
 
-### [Smith Ruckus Women's Matte Black Sunglasses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-ruckus-womens-matte-black-sunglasses)
+### [Smith Ruckus Women's Matte Black Sunglasses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-ruckus-womens-matte-black-sunglasses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-ruckus-womens-matte-black-sunglasses"><img alt="smith-ruckus-sunglasses-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-ruckus-sunglasses-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-ruckus-womens-matte-black-sunglasses"><img alt="smith-ruckus-sunglasses-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-ruckus-sunglasses-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Ruckus ChromaPop sunglasses are a stylish and versatile choice for outdoor enthusiasts. Equipped with two-position nose pads and hydrophilic Megol temple tips, these glasses ensure a comfortable fit even during prolonged usage. 
 
@@ -53,9 +53,9 @@ The performance one-piece shield provides an unobstructed view, making them perf
 Overall, these sunglasses combine style and functionality, making them a great choice for those who love spending time outdoors. 
 
 
-### [Smith Era Women's Polarized Sunglasses - Black](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-era-womens-polarized-sunglasses-black)
+### [Smith Era Women's Polarized Sunglasses - Black](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-era-womens-polarized-sunglasses-black)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-era-womens-polarized-sunglasses-black"><img alt="smith-era-polarized-sunglasses-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-era-polarized-sunglasses-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-era-womens-polarized-sunglasses-black"><img alt="smith-era-polarized-sunglasses-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-era-polarized-sunglasses-black-1/h=540,fit=pad,background=black"/></a></div>
 
 For those with a flair for the dramatic, these Smith sunglasses are a mix of bold fashion design and modern sustainability. The exaggerated cat-eye frames are made from bio-based materials, making these much lighter than they look. The no-slip nose pads ensure these stay put and keep your outfit looking sharp. 
 
@@ -64,9 +64,9 @@ Whether in standard Carbonic lenses or ChromaPop polarized lenses, these sunglas
 It's great to have a pair of sunglasses that can keep up with you while being stylish and functional. 
 
 
-### [Smith Optics Layback Sunglasses - Women's Rose Gold ChromaPop Polarized Rose Gold Mirror](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-optics-layback-sunglasses-womens-rose-gold-chromapop-polarized-rose-gold-mirror)
+### [Smith Optics Layback Sunglasses - Women's Rose Gold ChromaPop Polarized Rose Gold Mirror](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-optics-layback-sunglasses-womens-rose-gold-chromapop-polarized-rose-gold-mirror)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-optics-layback-sunglasses-womens-rose-gold-chromapop-polarized-rose-gold-mirror"><img alt="smith-optics-layback-sunglasses-rose-gold-chromapop-polarized-rose-gold-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-optics-layback-sunglasses-rose-gold-chromapop-polarized-rose-gold-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-optics-layback-sunglasses-womens-rose-gold-chromapop-polarized-rose-gold-mirror"><img alt="smith-optics-layback-sunglasses-rose-gold-chromapop-polarized-rose-gold-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-optics-layback-sunglasses-rose-gold-chromapop-polarized-rose-gold-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Optics Layback Sunglasses bring a classic pilot shape with a modern twist. Crafted from lightweight metal frames, these sunglasses offer a large coverage area with a unisex appeal. 
 
@@ -75,9 +75,9 @@ Choose between standard Carbonic lenses or ChromaPop polarized lenses, which hel
 Available in Rose Gold/ChromaPop Polarized Rose Gold Mirror, these stylish sunglasses are sure to turn heads. With a 4.4 rating from 66 reviews, users appreciate the fit and clarity of these Smith Sunglasses, making them a popular choice among women. 
 
 
-### [Smith Wildcat ChromaPop Sunglasses: Bold Retro Design with Enhanced Color and Protection](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-wildcat-chromapop-sunglasses-bold-retro-design-with-enhanced-color-and-protection)
+### [Smith Wildcat ChromaPop Sunglasses: Bold Retro Design with Enhanced Color and Protection](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-wildcat-chromapop-sunglasses-bold-retro-design-with-enhanced-color-and-protection)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-wildcat-chromapop-sunglasses-bold-retro-design-with-enhanced-color-and-protection"><img alt="smith-wildcat-sunglasses-black-cinder-chromapop-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wildcat-sunglasses-black-cinder-chromapop-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-wildcat-chromapop-sunglasses-bold-retro-design-with-enhanced-color-and-protection"><img alt="smith-wildcat-sunglasses-black-cinder-chromapop-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wildcat-sunglasses-black-cinder-chromapop-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Wildcat ChromaPop Sunglasses offer a unique blend of goggle coverage and stylish sunglass design. Built with high-quality materials such as TR90 and TPU, these sunglasses provide both protection and comfort. 
 
@@ -86,9 +86,9 @@ The ChromaPop lens technology enhances color and detail, while the hybrid frame 
 However, users may face issues with the durability of the rubber pads and lens material, which might require frequent replacement or compromise the fit and clarity of the glasses. Overall, the Smith Wildcat ChromaPop Sunglasses are a stylish and functional choice for those seeking goggle-style protection with the added comfort of sunglasses. 
 
 
-### [Smith Women's Bayside Sunglasses - Opal Mirror with Polarized ChromaPop](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-womens-bayside-sunglasses-opal-mirror-with-polarized-chromapop)
+### [Smith Women's Bayside Sunglasses - Opal Mirror with Polarized ChromaPop](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-womens-bayside-sunglasses-opal-mirror-with-polarized-chromapop)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-womens-bayside-sunglasses-opal-mirror-with-polarized-chromapop"><img alt="smith-bayside-sunglasses-black-chromapop-polarized-opal-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-bayside-sunglasses-black-chromapop-polarized-opal-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-womens-bayside-sunglasses-opal-mirror-with-polarized-chromapop"><img alt="smith-bayside-sunglasses-black-chromapop-polarized-opal-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-bayside-sunglasses-black-chromapop-polarized-opal-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 These Smith Bayside sunglasses have become my daily go-to accessory during the summer months. Their sleek and lightweight design make them the perfect addition to any outfit, both for casual outings and more active adventures. 
 
@@ -97,9 +97,9 @@ I've been particularly impressed by their ChromaPop polarized lenses, which not 
 Overall, these sunglasses have exceeded my expectations and are now a staple in my summer wardrobe. 
 
 
-### [Smith ChromaPop Women's Sunglasses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-chromapop-womens-sunglasses)
+### [Smith ChromaPop Women's Sunglasses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-chromapop-womens-sunglasses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-chromapop-womens-sunglasses"><img alt="smith-shoutout-chromapop-sunglasses-black-violet-mirror-polarized-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-shoutout-chromapop-sunglasses-black-violet-mirror-polarized-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-chromapop-womens-sunglasses"><img alt="smith-shoutout-chromapop-sunglasses-black-violet-mirror-polarized-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-shoutout-chromapop-sunglasses-black-violet-mirror-polarized-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Smith Shoutout ChromaPop sunglasses and I must say, I was quite impressed with the overall experience. The sunglasses have a classic yet stylish look that I found appealing, and they fit comfortably on my face. 
 
@@ -112,9 +112,9 @@ In terms of the frame, I appreciated the lightweight and durable Evolve bio-base
 Overall, I would recommend the Smith Shoutout ChromaPop sunglasses to anyone looking for a stylish and high-quality pair of eyewear. Just be prepared to possibly encounter some minor scratches on the lenses, which might be a downside for some users. 
 
 
-### [Smith Contour Sunglasses: Matte Gravy/ChromaPop Polarized Bronze Mirror](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror)
+### [Smith Contour Sunglasses: Matte Gravy/ChromaPop Polarized Bronze Mirror](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror"><img alt="smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror"><img alt="smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-contour-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Contour Sunglasses are a chic addition to any wardrobe, offering both style and function. The square frame shape and medium fit make for a sleek and comfortable wear, while the full-rim design creates a classic look. 
 
@@ -123,18 +123,18 @@ The real star of these glasses, however, is the inclusion of polarized ChromaPop
 Overall, the Smith Contour Sunglasses are a fantastic choice for those in search of a stylish and practical pair of sunglasses. 
 
 
-### [Smith Lowdown Slim 2 Pink Sunglasses with Hydrophilic Megol Nose Pads](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-lowdown-slim-2-pink-sunglasses-with-hydrophilic-megol-nose-pads)
+### [Smith Lowdown Slim 2 Pink Sunglasses with Hydrophilic Megol Nose Pads](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-lowdown-slim-2-pink-sunglasses-with-hydrophilic-megol-nose-pads)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-lowdown-slim-2-pink-sunglasses-with-hydrophilic-megol-nose-pads"><img alt="smith-lowdown-slim-2-sunglasses-in-pink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-lowdown-slim-2-sunglasses-in-pink-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-lowdown-slim-2-pink-sunglasses-with-hydrophilic-megol-nose-pads"><img alt="smith-lowdown-slim-2-sunglasses-in-pink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-lowdown-slim-2-sunglasses-in-pink-1/h=540,fit=pad,background=black"/></a></div>
 
 Smith's Lowdown Slim 2 Sunglasses bring a contemporary twist to the classic frame design, offering a scaled-down silhouette for a modern look. These sunglasses feature hydrophilic megol nose pads for a comfortable fit and a full-rim design to protect the lenses from accidental drops. 
 
 The innovative Chroma POP lenses provide excellent color enhancement and natural color accuracy, perfect for outdoor activities and exploring new zones. Available in a range of bold colors, the Lowdown Slim 2 Sunglasses make a stylish and functional addition to any casual or sporty wardrobe. 
 
 
-### [Smith Pink Caper Sunglasses for Women](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-pink-caper-sunglasses-for-women)
+### [Smith Pink Caper Sunglasses for Women](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-pink-caper-sunglasses-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-pink-caper-sunglasses-for-women"><img alt="smith-caper-sunglasses-pink-035jxa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-caper-sunglasses-pink-035jxa-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-pink-caper-sunglasses-for-women"><img alt="smith-caper-sunglasses-pink-035jxa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-caper-sunglasses-pink-035jxa-1/h=540,fit=pad,background=black"/></a></div>
 
 Slipping on a pair of Smith's Caper sunglasses in the morning is like stepping into a realm of eye protection and personal style. The eco-friendly frames in sleek pink (035JXA) provide a comfortable fit without feeling too bulky, thanks to the medium fit and large coverage. The Megol nose pads come in handy, especially when you're on the move, ensuring a secure fit without slipping off. 
 
@@ -147,9 +147,9 @@ Of course, no product is without its imperfections. A few users have reported ex
 In conclusion, the Smith's Caper sunglasses in pink (035JXA) are a fantastic blend of style and functionality. They offer great protection for your eyes and perform exceptionally well in various settings. The small setback with the purple glare can be ignored if the pros outweigh the cons for you. Give these sunglasses a try and see for yourself if they become your go-to eye protectors for the day. 
 
 
-### [Smith Shift Mag Sunglasses - Adjustable Megol Nose Pads and ChromaPop Lens for Cyclists](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-shift-mag-sunglasses-adjustable-megol-nose-pads-and-chromapop-lens-for-cyclists)
+### [Smith Shift Mag Sunglasses - Adjustable Megol Nose Pads and ChromaPop Lens for Cyclists](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-shift-mag-sunglasses-adjustable-megol-nose-pads-and-chromapop-lens-for-cyclists)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-shift-mag-sunglasses-adjustable-megol-nose-pads-and-chromapop-lens-for-cyclists"><img alt="smith-shift-mag-sunglasses-black-photochromic-clear-to-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-shift-mag-sunglasses-black-photochromic-clear-to-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-shift-mag-sunglasses-adjustable-megol-nose-pads-and-chromapop-lens-for-cyclists"><img alt="smith-shift-mag-sunglasses-black-photochromic-clear-to-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-shift-mag-sunglasses-black-photochromic-clear-to-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Shift MAG sunglasses with ChromaPop lenses are designed with cyclists and runners in mind, ensuring they have the perfect pair of performance eyewear. The magnesium frames allow for a comfortable and easy lens switching experience, adapting to changing conditions with ease. 
 
@@ -158,9 +158,9 @@ The ChromaPop lenses enhance color and contrast for a safer and more enjoyable o
 Made for those who lead an active lifestyle, the Smith Shift MAG sunglasses are the perfect addition to any adventure. 
 
 
-### [Smith Women's Lowdown Stealth Matte Black Gold Sunglasses with ChromaPop Polarized Lenses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-womens-lowdown-stealth-matte-black-gold-sunglasses-with-chromapop-polarized-lenses)
+### [Smith Women's Lowdown Stealth Matte Black Gold Sunglasses with ChromaPop Polarized Lenses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-womens-lowdown-stealth-matte-black-gold-sunglasses-with-chromapop-polarized-lenses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-womens-lowdown-stealth-matte-black-gold-sunglasses-with-chromapop-polarized-lenses"><img alt="smith-lowdown-steel-sunglasses-matte-black-gold-chromapop-polarized-black-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-lowdown-steel-sunglasses-matte-black-gold-chromapop-polarized-black-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-womens-lowdown-stealth-matte-black-gold-sunglasses-with-chromapop-polarized-lenses"><img alt="smith-lowdown-steel-sunglasses-matte-black-gold-chromapop-polarized-black-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-lowdown-steel-sunglasses-matte-black-gold-chromapop-polarized-black-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 These stylish Smith Lowdown Steel Sunglasses offer a perfect blend of functionality and fashion. With ChromaPop lenses that enhance contrast and natural color, your vision will pop while you enjoy 100% UV protection. 
 
@@ -169,9 +169,9 @@ The medium fit and medium coverage paired with the 4-base lens curvature make th
 While some users may find the fit not as perfect or the frames not as durable as they hoped, the overall Smith Lowdown Steel Sunglasses deliver great value and visual performance for adventure enthusiasts. 
 
 
-### [Retro Tortoise Evolve Smith Sunglasses with ChromaPop Polarized Lens](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=retro-tortoise-evolve-smith-sunglasses-with-chromapop-polarized-lens)
+### [Retro Tortoise Evolve Smith Sunglasses with ChromaPop Polarized Lens](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=retro-tortoise-evolve-smith-sunglasses-with-chromapop-polarized-lens)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=retro-tortoise-evolve-smith-sunglasses-with-chromapop-polarized-lens"><img alt="smith-caper-sunglasses-tortoise-chromapop-polarized-rose-gold-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-caper-sunglasses-tortoise-chromapop-polarized-rose-gold-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=retro-tortoise-evolve-smith-sunglasses-with-chromapop-polarized-lens"><img alt="smith-caper-sunglasses-tortoise-chromapop-polarized-rose-gold-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-caper-sunglasses-tortoise-chromapop-polarized-rose-gold-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the Caper Sunglasses from Smith, and I must say, they exceeded my expectations in terms of both style and functionality. These sunglasses feature a sleek and timeless design, with clean lines that harken back to vintage proportion while remaining versatile and contemporary. 
 
@@ -182,27 +182,27 @@ One downside I encountered was the occasional slippage of the sunglasses on my n
 Overall, the Caper Sunglasses are a stylish and functional choice for anyone looking for high-quality polarized eyewear. With their lightweight design, versatile color options, and comfortable fit, they quickly became a staple in my everyday life. 
 
 
-### [Stylish Smith Sunglasses with Blue Mirror Lenses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=stylish-smith-sunglasses-with-blue-mirror-lenses)
+### [Stylish Smith Sunglasses with Blue Mirror Lenses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=stylish-smith-sunglasses-with-blue-mirror-lenses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=stylish-smith-sunglasses-with-blue-mirror-lenses"><img alt="smith-langley-silver-sunglasses-w-chromapop-polarized-blue-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-langley-silver-sunglasses-w-chromapop-polarized-blue-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=stylish-smith-sunglasses-with-blue-mirror-lenses"><img alt="smith-langley-silver-sunglasses-w-chromapop-polarized-blue-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-langley-silver-sunglasses-w-chromapop-polarized-blue-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently decided to give the Smith Langley Silver sunglasses a try, and I must say I'm impressed. The medium fit and wraparound lenses offer both comfort and style. The impact-resistant Carbonic lenses have made a noticeable difference in both durability and clarity. One of my favorite features is the two-position adjustable silicone nose pads, which not only provide the comfort I was looking for but also seem to never get tangled up in my hair. 
 
 The stainless steel frame and 100% UV protection make these sunglasses a reliable choice for everyday wear. However, although these sunglasses fit well on some faces, the potential for them to slide off on other faces may require further adjustment, which could have been more challenging for those with smaller heads. The microfiber bag that comes with the product is also a nice touch, offering a convenient and secure storage option when not in use. Overall, I'm very satisfied with my purchase of the Smith Langley Silver sunglasses, and I would highly recommend them to anyone in the market for a stylish and durable pair of sunglasses. 
 
 
-### [Smith Langley Sunglasses for Women - Polarized Brown and Matte Rose Gold](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-langley-sunglasses-for-women-polarized-brown-and-matte-rose-gold)
+### [Smith Langley Sunglasses for Women - Polarized Brown and Matte Rose Gold](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-langley-sunglasses-for-women-polarized-brown-and-matte-rose-gold)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-langley-sunglasses-for-women-polarized-brown-and-matte-rose-gold"><img alt="smith-langley-sunglasses-matte-rose-gold-polarized-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-langley-sunglasses-matte-rose-gold-polarized-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-langley-sunglasses-for-women-polarized-brown-and-matte-rose-gold"><img alt="smith-langley-sunglasses-matte-rose-gold-polarized-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-langley-sunglasses-matte-rose-gold-polarized-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 These Smith Langley Sunglasses in Matte Rose Gold with Polarized Brown lenses provide a stylish and chic look, perfect for any occasion. With an aviator-shaped frame made of stainless steel, these sunglasses exude durability and sturdiness. 
 
 The full-rim frame design ensures a comfortable fit and the lens material, carbonic, provides clear vision with reduced glare thanks to the polarized feature. While some reviewers found the sizing to be slightly off, most were satisfied with the lightweight and high-quality feel of these sunglasses. 
 
 
-### [Stylish Smith Haywire Unisex Sunglasses - Green Polarized](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=stylish-smith-haywire-unisex-sunglasses-green-polarized)
+### [Stylish Smith Haywire Unisex Sunglasses - Green Polarized](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=stylish-smith-haywire-unisex-sunglasses-green-polarized)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=stylish-smith-haywire-unisex-sunglasses-green-polarized"><img alt="smith-haywire-unisex-sunglasses-green-polarized-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-haywire-unisex-sunglasses-green-polarized-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=stylish-smith-haywire-unisex-sunglasses-green-polarized"><img alt="smith-haywire-unisex-sunglasses-green-polarized-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-haywire-unisex-sunglasses-green-polarized-1/h=540,fit=pad,background=black"/></a></div>
 
 I've had the pleasure of using the Smith Haywire Unisex Sunglasses in my daily life, and let me tell you, it's been a refreshing experience. These sunglasses are perfect for those who love to blend effortless style with practicality. The most striking feature, the Smith ChromaPop lenses, really does enhance colors and details. It's like a real-life photo filter, making everything look crisp and sharp. 
 
@@ -211,9 +211,9 @@ I especially love the no-slip nose pads. They ensure a comfortable fit, and sinc
 However, the product did have a flaw. Unfortunately, one of the hinges broke after just a few months of use. I did appreciate the build quality overall, but durability seemed to be a concern. Despite this, the Smith Haywire Sunglasses managed to impress with their unique blend of style, comfort, and practicality. Overall, I would say they're worth trying out. 
 
 
-### [Smith Ruckus ChromaPop Sunglasses - Impact-Resistant and Versatile Outdoor Eyewear](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-ruckus-chromapop-sunglasses-impact-resistant-and-versatile-outdoor-eyewear)
+### [Smith Ruckus ChromaPop Sunglasses - Impact-Resistant and Versatile Outdoor Eyewear](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-ruckus-chromapop-sunglasses-impact-resistant-and-versatile-outdoor-eyewear)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-ruckus-chromapop-sunglasses-impact-resistant-and-versatile-outdoor-eyewear"><img alt="smith-ruckus-sunglasses-matte-white-chromapop-violet-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-ruckus-sunglasses-matte-white-chromapop-violet-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-ruckus-chromapop-sunglasses-impact-resistant-and-versatile-outdoor-eyewear"><img alt="smith-ruckus-sunglasses-matte-white-chromapop-violet-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-ruckus-sunglasses-matte-white-chromapop-violet-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Ruckus sunglasses provide a wide field of view and superior fit with its performance one-piece shield design. The hydrophilic Megol temple and nose pads ensure a secure fit, even when you sweat. The Ruckus comes equipped for various light conditions, featuring ChromaPop lens that enhances natural color and allows your eyes to effortlessly take in more detail. The hydroleophobic lens coating keeps your view clear in any condition. It also comes with an interchangeable lens system (one lens included) and features AutoLock hinges for easy on and off. 
 
@@ -222,18 +222,18 @@ The Smith Ruckus is designed for outdoor activities, with a lightweight, flexibl
 These sunglasses have a shield lens shape and are not polarized. The temple design is wire spatula, and the temple length is 120 mm. The vertical frame measurement is 53 mm. Smith Ruckus sunglasses are not designed for On The Go use (OTG). They provide impact and shatter-resistant lens finish. The horizontal frame measurement is 135 mm, and the lens shape is shield. 
 
 
-### [Smith Soundtrack Sunglasses: Matte Gravy & Bronze Mirror - Outdoor Lifestyle Sunglasses](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-soundtrack-sunglasses-matte-gravy-bronze-mirror-outdoor-lifestyle-sunglasses)
+### [Smith Soundtrack Sunglasses: Matte Gravy & Bronze Mirror - Outdoor Lifestyle Sunglasses](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-soundtrack-sunglasses-matte-gravy-bronze-mirror-outdoor-lifestyle-sunglasses)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-soundtrack-sunglasses-matte-gravy-bronze-mirror-outdoor-lifestyle-sunglasses"><img alt="smith-soundtrack-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-soundtrack-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-soundtrack-sunglasses-matte-gravy-bronze-mirror-outdoor-lifestyle-sunglasses"><img alt="smith-soundtrack-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-soundtrack-sunglasses-matte-gravy-chromapop-polarized-bronze-mirror-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith Soundtrack Sunglasses offer an exceptional blend of performance, durability, and style. With their flat top brow design, medium fit, and stylish shape, these sunglasses are ideal for those who lead an active lifestyle. Featuring impact-resistant carbonic polarized lenses or the enhanced color clarity and vividness of ChromaPop polarized lenses, you can enjoy sharp visuals and UV protection that keep you safe outdoors. 
 
 The megol nose pads and temple pads ensure a comfortable, stay-put fit, while the hydroleophobic and anti-reflective lens coating help to repel moisture, grease, and grime for clear and rapid vision. If you're a fitness enthusiast looking for sunglasses that can keep up with your adventures, the Smith Soundtrack sunglasses are the perfect match for your active lifestyle. 
 
 
-### [Smith Bifocal Sunglasses - Matte Havana & Polarized Brown for Women](https://serp.ly/amazon/Smith+Sunglasses+Women?utm\_term=smith-bifocal-sunglasses-matte-havana-polarized-brown-for-women)
+### [Smith Bifocal Sunglasses - Matte Havana & Polarized Brown for Women](https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm\_term=smith-bifocal-sunglasses-matte-havana-polarized-brown-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Smith+Sunglasses+Women?utm_term=smith-bifocal-sunglasses-matte-havana-polarized-brown-for-women"><img alt="smith-guides-choice-bifocal-sunglasses-matte-havana-polarized-brown-2-50-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/smith-guides-choice-bifocal-sunglasses-matte-havana-polarized-brown-2-50-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women?utm_term=smith-bifocal-sunglasses-matte-havana-polarized-brown-for-women"><img alt="smith-guides-choice-bifocal-sunglasses-matte-havana-polarized-brown-2-50-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/smith-guides-choice-bifocal-sunglasses-matte-havana-polarized-brown-2-50-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Smith Guide's Choice bifocal sunglasses in a classic Havana color, and they exceeded my expectations. As a fly fisher, I often need glasses that can offer both near and far focus as I tie flies, and these sunglasses filled the bill perfectly. Their polarization helps reduce glare and improves overall clarity, making it easier for me to spot fish in the water. 
 
@@ -251,7 +251,7 @@ Welcome to the buyer's guide for Smith sunglasses designed specifically for wome
 
 When looking for Smith sunglasses for women, quality and comfort should be at the top of your list. These sunglasses are designed with both in mind. They offer excellent craftsmanship, featuring durable frames and high-quality lenses. The frames are lightweight and made of materials such as nylon or titanium, making them comfortable to wear for extended periods. Additionally, the nose pads and earpieces are adjustable, ensuring a snug fit on different facial structures. The lenses are available in various tints, including polarized options, providing excellent UV protection and enhancing vision in various conditions. 
 
-<div><a href="https://serp.ly/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-2/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-2/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-2" height="540"></a></div>
 
 
 ### Style and Design
@@ -263,7 +263,7 @@ Smith sunglasses for women come in a wide range of styles and designs, making it
 
 Safety and performance are crucial considerations when purchasing Smith sunglasses for women. Look for models with lenses that meet or exceed industry safety standards, such as ANSI Z80.3. These lenses provide excellent optical clarity and protection from impact, reducing the risk of eye injuries. Additionally, many Smith sunglasses feature high-quality lenses with advanced technologies such as ChromaPop or Carbonic TLT, which enhance color perception and contrast, making it easier to see detail and improve performance in various activities. 
 
-<div><a href="https://serp.ly/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-3/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-3/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-3" height="540"></a></div>
 
 
 ### Maintenance and Durability
@@ -273,7 +273,7 @@ To ensure your Smith sunglasses for women last for years to come, proper mainten
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-4/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-4/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-4" height="540"></a></div>
 
 
 ### About Smith Sunglasses Women
@@ -289,7 +289,7 @@ Yes, Smith Sunglasses provide excellent protection from harmful UV rays. Most mo
 
 In addition to UV protection, many Smith Sunglasses come with lenses that feature polarization, glare reduction, and anti-reflective technologies, ensuring crystal-clear vision in various lighting conditions. This level of protection is crucial, especially for active women who engage in outdoor activities and need the best eyewear to perform safely and comfortably. 
 
-<div><a href="https://serp.ly/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-5/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-5/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-5" height="540"></a></div>
 
 
 ### What materials are used in Smith Sunglasses Women models?
@@ -305,7 +305,7 @@ Yes, Smith Sunglasses Women accommodate prescription lenses, making them suitabl
 
 In certain cases, an adaptation may be required for the prescription to work seamlessly with the eyewear. Inform your eye care professional of your preference for Smith Sunglasses Women, and together, you can find the perfect solution to suit your visual needs and preferences. Prescription sunglasses offer increased safety, comfort, and clarity, ensuring that you can enjoy your favorite activities in style and confidence. 
 
-<div><a href="https://serp.ly/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-6/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Smith+Sunglasses+Women"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Smith-Sunglasses-Women-6/h=540,fit=pad,background=black" alt="Smith-Sunglasses-Women-6" height="540"></a></div>
 
 
 ### Can I customize my Smith Sunglasses Women with interchangeable lenses?

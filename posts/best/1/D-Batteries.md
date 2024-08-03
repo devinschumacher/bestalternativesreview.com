@@ -14,9 +14,9 @@ Looking to power up your devices all day long? Look no further than the mighty D
 ## Reviews
 
 
-### [Duracell Procell Alkaline D Batteries - Long-Lasting, Mercury-Free Power for Flashlights and Radios](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-procell-alkaline-d-batteries-long-lasting-mercury-free-power-for-flashlights-and-radios)
+### [Duracell Procell Alkaline D Batteries - Long-Lasting, Mercury-Free Power for Flashlights and Radios](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-procell-alkaline-d-batteries-long-lasting-mercury-free-power-for-flashlights-and-radios)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-procell-alkaline-d-batteries-long-lasting-mercury-free-power-for-flashlights-and-radios"><img alt="duracell-procell-alkaline-battery-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-procell-alkaline-battery-d-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-procell-alkaline-d-batteries-long-lasting-mercury-free-power-for-flashlights-and-radios"><img alt="duracell-procell-alkaline-battery-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-procell-alkaline-battery-d-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had to replace the batteries in my trusty flashlight, and I was thrilled to discover that the Procell D batteries are the real deal. My flashlight has always been essential for navigating my way through camping trips or power outages, so investing in a reliable battery brand is crucial. 
 
@@ -29,9 +29,9 @@ The economical packaging is a thoughtful touch, as it's perfect for professional
 Overall, the Procell D batteries are a reliable and eco-conscious choice for anyone in search of long-lasting, high-quality batteries. Despite the slightly larger packaging, the benefits far outweigh the minor inconvenience. 
 
 
-### [Durable Duracell D Batteries Pack of 12](https://serp.ly/amazon/D+Batteries?utm\_term=durable-duracell-d-batteries-pack-of-12)
+### [Durable Duracell D Batteries Pack of 12](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=durable-duracell-d-batteries-pack-of-12)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=durable-duracell-d-batteries-pack-of-12"><img alt="duracell-12pk-d-procell-battery-85395-unit-box-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-12pk-d-procell-battery-85395-unit-box-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=durable-duracell-d-batteries-pack-of-12"><img alt="duracell-12pk-d-procell-battery-85395-unit-box-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-12pk-d-procell-battery-85395-unit-box-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare to be amazed by the Duracell ProCell 12Pk D Procell Battery, guaranteed to last up to 7 years in storage. This bundle is perfect for cost-effective battery replacement programs, thanks to its wide operating temperature range of -4°F to 129.2°F. These alkaline batteries are renowned for their reliability and dependable power. 
 
@@ -40,9 +40,9 @@ Each battery comes with no added mercury, making them environmentally friendly. 
 Overall, these batteries provide great value for their price and performance. 
 
 
-### [Up&Up D Batteries - 8ct](https://serp.ly/amazon/D+Batteries?utm\_term=upup-d-batteries-8ct)
+### [Up&Up D Batteries - 8ct](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=upup-d-batteries-8ct)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=upup-d-batteries-8ct"><img alt="d-batteries-8ct-upup-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/d-batteries-8ct-upup-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=upup-d-batteries-8ct"><img alt="d-batteries-8ct-upup-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/d-batteries-8ct-upup-1/h=540,fit=pad,background=black"/></a></div>
 
 For the past few months, I've been using the D batteries from Up&Up from Target as they were at half the cost of name brands and they work just as well in most cases. I have been using them in different items such as clocks and remote controls, and they have been running smoothly. However, one issue that I faced recently was the batteries running out of juice quickly. This was quite unexpected for the price and was a downer for me. 
 
@@ -53,18 +53,18 @@ Although these batteries are from a lesser-known brand, they've never let me dow
 In conclusion, the Up&Up D batteries from Target have been a reliable and budget-friendly choice for my household. They've been small enough for tiny remote controls and have been the perfect replacement when name-brand batteries are out of budget. However, there have been some instances where I've noticed the battery life not being long-lasting, which could be a minor downside for some users. 
 
 
-### [Procell Alkaline Long-Lasting D Batteries (12 Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=procell-alkaline-long-lasting-d-batteries-12-pack)
+### [Procell Alkaline Long-Lasting D Batteries (12 Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=procell-alkaline-long-lasting-d-batteries-12-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=procell-alkaline-long-lasting-d-batteries-12-pack"><img alt="duracell-procell-alkaline-d-batteries-12-box-durpc1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-procell-alkaline-d-batteries-12-box-durpc1300-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=procell-alkaline-long-lasting-d-batteries-12-pack"><img alt="duracell-procell-alkaline-d-batteries-12-box-durpc1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-procell-alkaline-d-batteries-12-box-durpc1300-1/h=540,fit=pad,background=black"/></a></div>
 
 The Duracell Procell Alkaline D Batteries are a reliable and long-lasting power source for various professional and industrial electronic devices. These batteries are individually date-coded, ensuring effective inventory management, and boast a high-quality design that offers lasting durability and efficient power. Ideal for use in environments where batteries frequently need to be replaced, such as hospitals and manufacturing facilities, the Procell D Batteries are the perfect choice for those seeking a high-performance alkaline battery at an affordable price. 
 
 With a voltage of 1.5V, these batteries promise to deliver consistent and dependable power. 
 
 
-### [Reliable, Long-Lasting Alkaline D Batteries (12-Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=reliable-long-lasting-alkaline-d-batteries-12-pack)
+### [Reliable, Long-Lasting Alkaline D Batteries (12-Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=reliable-long-lasting-alkaline-d-batteries-12-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=reliable-long-lasting-alkaline-d-batteries-12-pack"><img alt="procell-1-5v-alkaline-d-battery-px1300-pack-of-12-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/procell-1-5v-alkaline-d-battery-px1300-pack-of-12-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=reliable-long-lasting-alkaline-d-batteries-12-pack"><img alt="procell-1-5v-alkaline-d-battery-px1300-pack-of-12-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/procell-1-5v-alkaline-d-battery-px1300-pack-of-12-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first grabbed a Procell 1.5V Alkaline D Battery from the pack of 12, I was a little skeptical about its capability to withstand the high demand of my battery-powered appliances. But as I started exploring its features, I was impressed. The superior cell design and reliable, long-lasting power made it stand out in my daily life. 
 
@@ -77,9 +77,9 @@ However, if you're using these batteries for a small fan or similar low-power de
 Overall, my experience with the Procell 1.5V Alkaline D Battery has been positive. It's a reliable and power-packed option that works seamlessly with various high drain devices. 
 
 
-### [Reliable Energizer D Batteries for Long-Lasting Power](https://serp.ly/amazon/D+Batteries?utm\_term=reliable-energizer-d-batteries-for-long-lasting-power)
+### [Reliable Energizer D Batteries for Long-Lasting Power](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=reliable-energizer-d-batteries-for-long-lasting-power)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=reliable-energizer-d-batteries-for-long-lasting-power"><img alt="energizer-max-alkaline-d-batteries-8-ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-8-ct-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=reliable-energizer-d-batteries-for-long-lasting-power"><img alt="energizer-max-alkaline-d-batteries-8-ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-8-ct-1/h=540,fit=pad,background=black"/></a></div>
 
 Once I got my hands on the Energizer MAX Alkaline D batteries, I was excited to try them out in various devices. I made sure to follow the precautions mentioned in the product specs and installed them in a high-drain device. 
 
@@ -92,9 +92,9 @@ One thing that I found very useful was the No Leaks Guarantee. These batteries w
 Overall, Energizer MAX Alkaline D batteries definitely lived up to their reputation. They were reliable, long-lasting, and consistent, making them a great choice for all kinds of high-drain devices. I'm a fan of Energizer, and these batteries only reinforced my faith in their products. 
 
 
-### [Energizer 1.5V D Batteries (2-Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-1-5v-d-batteries-2-pack)
+### [Energizer 1.5V D Batteries (2-Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-1-5v-d-batteries-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-1-5v-d-batteries-2-pack"><img alt="energizer-alkaline-batteries-size-d-1-5-v-blister-pack-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-alkaline-batteries-size-d-1-5-v-blister-pack-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-1-5v-d-batteries-2-pack"><img alt="energizer-alkaline-batteries-size-d-1-5-v-blister-pack-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-alkaline-batteries-size-d-1-5-v-blister-pack-2-1/h=540,fit=pad,background=black"/></a></div>
 
 As a household essential, I've always used Energizer D batteries because they consistently provide long-lasting power. Recently, I bought a pack of these Energizer MAX batteries and I've been quite impressed with their performance. The packaging was great, and their sleek design made them easy to carry. 
 
@@ -103,9 +103,9 @@ While using these batteries in my remote control, flashlight, and smoke detector
 However, one thing that I found lacking was the wide-ranging compatibility. Despite being advertised for low drain devices, I found them less effective in some more complex items like my electric toothbrush. Regardless, overall, I'm happy with my purchase and I'll be ordering them again in the future. 
 
 
-### [Long-Lasting Alkaline D Battery Emergency Pack](https://serp.ly/amazon/D+Batteries?utm\_term=long-lasting-alkaline-d-battery-emergency-pack)
+### [Long-Lasting Alkaline D Battery Emergency Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=long-lasting-alkaline-d-battery-emergency-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=long-lasting-alkaline-d-battery-emergency-pack"><img alt="max-d-battery-emergency-bundle-16-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/max-d-battery-emergency-bundle-16-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=long-lasting-alkaline-d-battery-emergency-pack"><img alt="max-d-battery-emergency-bundle-16-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/max-d-battery-emergency-bundle-16-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Max D Battery Emergency Bundle, and I must say, I've been pleasantly surprised with the performance of these Energizer MAX D Alkaline Batteries. With a shelf life of up to 10 years, they've proven to be a reliable and long-lasting power source for my high-drain devices. 
 
@@ -114,9 +114,9 @@ Whether I'm using them for flashlights, toys, or any of the other numerous devic
 Overall, I highly recommend the Energizer MAX D Battery Emergency Bundle for keeping your high-drain devices running smoothly and providing that extra boost of power when you need it most. 
 
 
-### [NANFU 12 Pack D Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=nanfu-12-pack-d-batteries)
+### [NANFU 12 Pack D Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=nanfu-12-pack-d-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=nanfu-12-pack-d-batteries"><img alt="nanfu-d-battery-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nanfu-d-battery-12-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=nanfu-12-pack-d-batteries"><img alt="nanfu-d-battery-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nanfu-d-battery-12-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Nanfu D Battery 12 Pack, and I have to say, they lasted forever! Using them in my remote that usually drains AA batteries in a week, these little guys kept going for weeks on end. Not just my remote, but my smoke detector stayed active and my son's Gameboy Plus functioned perfectly without needing to replace dead batteries. 
 
@@ -127,27 +127,27 @@ However, I did notice that these aren't the easiest batteries to find if you nee
 Overall, these Nanfu D Batteries are a great investment, not only providing long-lasting power but also ensuring they'll maintain their power for years to come. It's a win-win for those who dread changing batteries frequently! 
 
 
-### [Rayovac Heavy-Duty Heavy Duty D Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=rayovac-heavy-duty-heavy-duty-d-batteries)
+### [Rayovac Heavy-Duty Heavy Duty D Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=rayovac-heavy-duty-heavy-duty-d-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=rayovac-heavy-duty-heavy-duty-d-batteries"><img alt="rayovac-heavy-duty-d-zinc-chloride-batteries-hd-ddf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-heavy-duty-d-zinc-chloride-batteries-hd-ddf-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=rayovac-heavy-duty-heavy-duty-d-batteries"><img alt="rayovac-heavy-duty-d-zinc-chloride-batteries-hd-ddf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-heavy-duty-d-zinc-chloride-batteries-hd-ddf-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rayovac Heavy-Duty D Zinc Chloride Batteries provide the perfect power solution for low-drain devices like smoke detectors, radios, clocks, and remote controls. With their heavy-duty design, these batteries are ideal for devices used infrequently, ensuring they keep running smoothly. 
 
 Available in an economical pack of 12, these D batteries are a reliable and affordable choice for your low-drain needs. 
 
 
-### [Long-Lasting Eveready Gold D Batteries 2-Pack](https://serp.ly/amazon/D+Batteries?utm\_term=long-lasting-eveready-gold-d-batteries-2-pack)
+### [Long-Lasting Eveready Gold D Batteries 2-Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=long-lasting-eveready-gold-d-batteries-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=long-lasting-eveready-gold-d-batteries-2-pack"><img alt="2-pack-of-eveready-gold-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-pack-of-eveready-gold-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=long-lasting-eveready-gold-d-batteries-2-pack"><img alt="2-pack-of-eveready-gold-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-pack-of-eveready-gold-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 The Eveready Gold D Batteries seem like an excellent choice for everyday life. I've been using these batteries for a few weeks now, and they've proven to be reliable and long-lasting, meeting the expectations for a quality power source in today's electronic devices. 
 
 With their economical pricing, it's justifiable to stock up on these alkaline batteries. While the size can be a bit difficult to find within some packaging, placing the batteries in a watch is a cinch. Overall, it's the go-to choice for those wanting a power source that's both dependable and budget-friendly. 
 
 
-### [Reliable Alkaline D Batteries with Duralock Technology](https://serp.ly/amazon/D+Batteries?utm\_term=reliable-alkaline-d-batteries-with-duralock-technology)
+### [Reliable Alkaline D Batteries with Duralock Technology](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=reliable-alkaline-d-batteries-with-duralock-technology)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=reliable-alkaline-d-batteries-with-duralock-technology"><img alt="coppertop-alkaline-batteries-with-duralock-power-preserve-technology-d-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coppertop-alkaline-batteries-with-duralock-power-preserve-technology-d-4-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=reliable-alkaline-d-batteries-with-duralock-technology"><img alt="coppertop-alkaline-batteries-with-duralock-power-preserve-technology-d-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coppertop-alkaline-batteries-with-duralock-power-preserve-technology-d-4-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who works in an office with an array of devices that constantly need batteries, I was intrigued by the Coppertop D Alkaline Batteries with Duralock Power Preserve Technology. The guarantee of long-lasting, reliable power for the tools we use everyday was appealing. Little did I know, those little batteries would change my daily routine in ways I never thought possible. 
 
@@ -158,9 +158,9 @@ However, the most impressive feature was Duralock Power Preserve Technology. I'v
 On a downside, these batteries didn't seem to work as effectively in high-drain devices like electronic musical instruments. But for regular office equipment, they proved to be a game changer. I can highly recommend the Coppertop D Alkaline Batteries for those looking to save time and money while keeping their office devices running smoothly. 
 
 
-### [Durable Energizer Industrial Alkaline D Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=durable-energizer-industrial-alkaline-d-batteries)
+### [Durable Energizer Industrial Alkaline D Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=durable-energizer-industrial-alkaline-d-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=durable-energizer-industrial-alkaline-d-batteries"><img alt="energizer-industrial-alkaline-d-batteries-en95-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-industrial-alkaline-d-batteries-en95-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=durable-energizer-industrial-alkaline-d-batteries"><img alt="energizer-industrial-alkaline-d-batteries-en95-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-industrial-alkaline-d-batteries-en95-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Energizer Industrial Alkaline D Batteries, and I have to say, they're a game-changer for my daily devices. I'm a big fan of the sleek black design, and it's a plus that the 12-pack means no more running to the store for more batteries. The Zinc-Manganese Dioxide chemistry really shines through in their reliability, and with a shelf life of up to 7 years, it's reassuring to know I'll always have a backup. 
 
@@ -169,27 +169,27 @@ However, I must address the concern of dented packages I've seen in some reviews
 Overall, the Energizer Industrial Alkaline D Batteries make a great choice for anyone in need of long-lasting, dependable power for their devices. 
 
 
-### [Recyclable D Cell Batteries: Environmentally Friendly and Versatile Power Supply](https://serp.ly/amazon/D+Batteries?utm\_term=recyclable-d-cell-batteries-environmentally-friendly-and-versatile-power-supply)
+### [Recyclable D Cell Batteries: Environmentally Friendly and Versatile Power Supply](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=recyclable-d-cell-batteries-environmentally-friendly-and-versatile-power-supply)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=recyclable-d-cell-batteries-environmentally-friendly-and-versatile-power-supply"><img alt="recyclable-batteries-d-cell-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/recyclable-batteries-d-cell-12-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=recyclable-d-cell-batteries-environmentally-friendly-and-versatile-power-supply"><img alt="recyclable-batteries-d-cell-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/recyclable-batteries-d-cell-12-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Better Battery Co. introduces its 12-pack of fully recyclable D Cell batteries, offering an eco-friendly solution to your battery needs. The company's commitment to sustainability is reflected in how they fully recycle the batteries for you for free. Their cutting-edge technology ensures that every part of the battery is repurposed, reducing waste in landfills and providing a full circle product. 
 
 The 4-pound pack is organized in a convenient, reusable box, containing 12 D Cell batteries to keep you going for an extended period. Embrace the greener way of charging, contribute less to waste, and make a sustainable choice with these D Cell batteries. 
 
 
-### [Kratos Power Ultra Alkaline D Cell Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=kratos-power-ultra-alkaline-d-cell-batteries)
+### [Kratos Power Ultra Alkaline D Cell Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=kratos-power-ultra-alkaline-d-cell-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=kratos-power-ultra-alkaline-d-cell-batteries"><img alt="kratos-power-high-performance-ultra-alkaline-d-cell-batteries-in-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kratos-power-high-performance-ultra-alkaline-d-cell-batteries-in-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=kratos-power-ultra-alkaline-d-cell-batteries"><img alt="kratos-power-high-performance-ultra-alkaline-d-cell-batteries-in-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kratos-power-high-performance-ultra-alkaline-d-cell-batteries-in-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Boost the power and performance of your devices with Kratos Power High-Performance Ultra Alkaline D Cell Batteries in Black. These long-lasting batteries offer a 10-year shelf life and unfailing performance, perfect for both household and commercial use. 
 
 Choose from a variety of packs including 9V, AA, AAA, C, and D batteries, all designed to hold their full, unused charge for up to 10 years. Not only do they outperform similar zinc-carbon batteries, but they're also mercury, lead, cadmium, and heavy metal toxin-free, ensuring a safe and reliable solution for all your electronic needs. 
 
 
-### [Duracell Procell Alkaline D Batteries - PC1300](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-procell-alkaline-d-batteries-pc1300)
+### [Duracell Procell Alkaline D Batteries - PC1300](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-procell-alkaline-d-batteries-pc1300)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-procell-alkaline-d-batteries-pc1300"><img alt="d-duracell-procell-alkaline-battery-pc1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/d-duracell-procell-alkaline-battery-pc1300-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-procell-alkaline-d-batteries-pc1300"><img alt="d-duracell-procell-alkaline-battery-pc1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/d-duracell-procell-alkaline-battery-pc1300-1/h=540,fit=pad,background=black"/></a></div>
 
 The D Duracell Procell Alkaline Battery, model PC1300, is a high-quality battery designed for use in devices requiring a D-shaped battery. It boasts a voltage of 1.5V and comes from the renowned Duracell brand, ensuring its reliability. Available in packs of one, these batteries are suitable for a wide range of applications, including electronics. 
 
@@ -202,18 +202,18 @@ Many users praise these D-shaped batteries for their long-lasting performance an
 In summary, the D Duracell Procell Alkaline Battery offers users a reliable and long-lasting power solution for electronics that require D-shaped batteries. Its larger packaging quantities make it a more cost-effective choice, while its high-quality performance and compatibility with various electronic devices make it a popular choice amongst consumers. 
 
 
-### [Duracell CopperCop Alkaline D Batteries - Long-lasting and Reliable](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppercop-alkaline-d-batteries-long-lasting-and-reliable)
+### [Duracell CopperCop Alkaline D Batteries - Long-lasting and Reliable](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppercop-alkaline-d-batteries-long-lasting-and-reliable)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppercop-alkaline-d-batteries-long-lasting-and-reliable"><img alt="duracell-coppertop-alkaline-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppercop-alkaline-d-batteries-long-lasting-and-reliable"><img alt="duracell-coppertop-alkaline-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Duracell Coppertop Alkaline D Batteries and absolutely loved them! My wall clock had been struggling with weak batteries, but these Coppertop ones lasted forever and got the clock ticking smoothly once again. They also helped power my flashlight, calculator, and remote controls without any issues. I really appreciated the copper top that apparently helps improve the battery's shelf life. It's great to know that these batteries are mercury-free and can handle extreme temperatures from -4°F to 129°F. 
 
 However, one downside was that they aren't rechargeable. But overall, these batteries are a solid choice for powering your essential electronics. 
 
 
-### [Energizer D Batteries: Long-Lasting Max Performance](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-d-batteries-long-lasting-max-performance)
+### [Energizer D Batteries: Long-Lasting Max Performance](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-d-batteries-long-lasting-max-performance)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-d-batteries-long-lasting-max-performance"><img alt="energizer-max-e95-vp-d-alkaline-button-top-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-e95-vp-d-alkaline-button-top-battery-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-d-batteries-long-lasting-max-performance"><img alt="energizer-max-e95-vp-d-alkaline-button-top-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-e95-vp-d-alkaline-button-top-battery-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Energizer Max E95-vp D Alkaline Button Top Battery in my daily life for a while now, and let me tell you, it has been a game-changer. This battery is perfect for a wide variety of devices, from remote controls to portable stereos. What stood out to me was its long-lasting power. 
 
@@ -222,9 +222,9 @@ No more constant battery replacements - this battery just keeps going and going!
 If you're in the market for a reliable, long-lasting battery, look no further. Highly recommended! 
 
 
-### [Duracell Coppertop 12 Pack Alkaline Batteries (MN1300) 22300](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppertop-12-pack-alkaline-batteries-mn1300-22300)
+### [Duracell Coppertop 12 Pack Alkaline Batteries (MN1300) 22300](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppertop-12-pack-alkaline-batteries-mn1300-22300)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppertop-12-pack-alkaline-batteries-mn1300-22300"><img alt="12-x-d-duracell-coppertop-alkaline-batteries-mn1300-22300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12-x-d-duracell-coppertop-alkaline-batteries-mn1300-22300-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppertop-12-pack-alkaline-batteries-mn1300-22300"><img alt="12-x-d-duracell-coppertop-alkaline-batteries-mn1300-22300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12-x-d-duracell-coppertop-alkaline-batteries-mn1300-22300-1/h=540,fit=pad,background=black"/></a></div>
 
 Using Duracell's Coppertop Alkaline D batteries in my daily life has been an overall satisfactory experience. I've come to appreciate the reliability of Duracell, and these particular batteries have served me well for various electronic devices. 
 
@@ -235,18 +235,18 @@ Another aspect of these batteries that I've noticed is their compatibility with 
 Overall, my experience with Duracell's Coppertop Alkaline D batteries has been positive, but I would caution potential buyers to be aware of possible packaging issues and ensure they receive a sealed box. 
 
 
-### [Eveready Super Heavy Duty D-2 Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=eveready-super-heavy-duty-d-2-batteries)
+### [Eveready Super Heavy Duty D-2 Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=eveready-super-heavy-duty-d-2-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=eveready-super-heavy-duty-d-2-batteries"><img alt="eveready-batteries-super-heavy-duty-d-2-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eveready-batteries-super-heavy-duty-d-2-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=eveready-super-heavy-duty-d-2-batteries"><img alt="eveready-batteries-super-heavy-duty-d-2-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eveready-batteries-super-heavy-duty-d-2-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready for top-notch performance with EVEREADY's Super Heavy Duty D - 2 batteries! These affordable, trustworthy carbon zinc batteries provide reliable power for all your family's basic needs. Whether it's for clocks, flashlights, radios, or other low-drain devices, these batteries won't disappoint. 
 
 You'll appreciate their superior service performance at all drain rates, cold temperature performance, longer shelf life, and greater resistance to leakage. Plus, they're a cost-effective choice. EVEREADY has been delivering dependable power since 1896, and these batteries continue that tradition. Try them out and see the difference for yourself! 
 
 
-### [Advanced Rayovac Fusion D Alkaline Batteries: Longest Lasting D Battery on ANSI Average Performance Tests](https://serp.ly/amazon/D+Batteries?utm\_term=advanced-rayovac-fusion-d-alkaline-batteries-longest-lasting-d-battery-on-ansi-average-performance-tests)
+### [Advanced Rayovac Fusion D Alkaline Batteries: Longest Lasting D Battery on ANSI Average Performance Tests](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=advanced-rayovac-fusion-d-alkaline-batteries-longest-lasting-d-battery-on-ansi-average-performance-tests)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=advanced-rayovac-fusion-d-alkaline-batteries-longest-lasting-d-battery-on-ansi-average-performance-tests"><img alt="rayovac-fusion-d-alkaline-batteries-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-fusion-d-alkaline-batteries-4-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=advanced-rayovac-fusion-d-alkaline-batteries-longest-lasting-d-battery-on-ansi-average-performance-tests"><img alt="rayovac-fusion-d-alkaline-batteries-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-fusion-d-alkaline-batteries-4-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I was sent a 4-pack of Rayovac Fusion D alkaline batteries for an honest review. I decided to give them a try in my high-powered flashlight, which usually runs through batteries quite frequently. I was pleasantly surprised by their performance! 
 
@@ -263,9 +263,9 @@ Each battery is tested twice before shipping to ensure safe usage without any ri
 In conclusion, the Rayovac Fusion D alkaline batteries are definitely the powerhouse you need for high-power devices. The combination of longevity, value, and reliable performance is hard to beat, making these batteries worth considering for your daily high-powered devices. 
 
 
-### [Duracell Coppertop Alkaline D Batteries: Premium Performance for All Applications](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppertop-alkaline-d-batteries-premium-performance-for-all-applications)
+### [Duracell Coppertop Alkaline D Batteries: Premium Performance for All Applications](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppertop-alkaline-d-batteries-premium-performance-for-all-applications)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppertop-alkaline-d-batteries-premium-performance-for-all-applications"><img alt="duracell-coppertop-alkaline-d-battery-mn1300-d-alkaline-12-box-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-battery-mn1300-d-alkaline-12-box-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppertop-alkaline-d-batteries-premium-performance-for-all-applications"><img alt="duracell-coppertop-alkaline-d-battery-mn1300-d-alkaline-12-box-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-battery-mn1300-d-alkaline-12-box-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I've grown to rely on the Duracell Coppertop D batteries for their dependable power. These batteries have been a lifesaver in our household, especially for our kids' toys. 
 
@@ -276,9 +276,9 @@ However, a minor drawback I've encountered is that these batteries don't last as
 Overall, the Duracell Coppertop D batteries are a reliable and practical choice for a wide range of everyday devices, and their guaranteed shelf life is an added bonus. 
 
 
-### [Energizer D Long-Lasting Alkaline Battery Pack](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-d-long-lasting-alkaline-battery-pack)
+### [Energizer D Long-Lasting Alkaline Battery Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-d-long-lasting-alkaline-battery-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-d-long-lasting-alkaline-battery-pack"><img alt="energizer-d-batteries-d-cell-long-lasting-alkaline-power-batteries-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-d-batteries-d-cell-long-lasting-alkaline-power-batteries-12-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-d-long-lasting-alkaline-battery-pack"><img alt="energizer-d-batteries-d-cell-long-lasting-alkaline-power-batteries-12-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-d-batteries-d-cell-long-lasting-alkaline-power-batteries-12-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Energizer's D batteries have been a staple in my household, offering reliable power for essential devices. I've used them to keep clocks ticking and power my flashlight during late-night camping trips. One of my favorite features is their long-lasting storage life, which comes in handy during emergency situations. 
 
@@ -287,9 +287,9 @@ The Energizer brand is consistently dependable for power and performance, making
 However, I've noticed that these batteries might not be as suitable for specific devices like my drone, where I've found better results using specialized batteries. Nonetheless, Energizer's D batteries remain a go-to option for my everyday needs. 
 
 
-### [Amazon Basics Everyday D Cell Alkaline Batteries - 4-Pack](https://serp.ly/amazon/D+Batteries?utm\_term=amazon-basics-everyday-d-cell-alkaline-batteries-4-pack)
+### [Amazon Basics Everyday D Cell Alkaline Batteries - 4-Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=amazon-basics-everyday-d-cell-alkaline-batteries-4-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=amazon-basics-everyday-d-cell-alkaline-batteries-4-pack"><img alt="amazon-basics-d-cell-everyday-alkaline-batteries-pack-of-5" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amazon-basics-d-cell-everyday-alkaline-batteries-pack-of-5/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=amazon-basics-everyday-d-cell-alkaline-batteries-4-pack"><img alt="amazon-basics-d-cell-everyday-alkaline-batteries-pack-of-5" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amazon-basics-d-cell-everyday-alkaline-batteries-pack-of-5/h=540,fit=pad,background=black"/></a></div>
 
 These 4 D batteries from Amazon Basics are the perfect solution for powering up your everyday devices. I've used them in everything from toys to clocks, and they haven't let me down yet. 
 
@@ -298,9 +298,9 @@ The improved design ensures a 5-year leak-free shelf life, which is great for em
 Overall, these everyday alkaline batteries are reliable and long-lasting, making them worth a try. 
 
 
-### [Duracell Coppertop D Alkaline Batteries (12/Pack) with Duralock Technology](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppertop-d-alkaline-batteries-12-pack-with-duralock-technology)
+### [Duracell Coppertop D Alkaline Batteries (12/Pack) with Duralock Technology](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppertop-d-alkaline-batteries-12-pack-with-duralock-technology)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppertop-d-alkaline-batteries-12-pack-with-duralock-technology"><img alt="duracell-coppertop-d-alkaline-batteries-12-pack-mn1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-d-alkaline-batteries-12-pack-mn1300-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppertop-d-alkaline-batteries-12-pack-with-duralock-technology"><img alt="duracell-coppertop-d-alkaline-batteries-12-pack-mn1300-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-d-alkaline-batteries-12-pack-mn1300-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Duracell Coppertop D Alkaline Batteries, and I must say, I'm impressed with their performance. Not only did they provide consistent power to my electronic devices, but they also lasted a long time, thanks to the Duralock Power Preserve technology. 
 
@@ -309,9 +309,9 @@ One of my favorite features of these batteries is their versatility - the D-type
 However, one thing I noticed was that the batteries seemed to rattle around a bit in the packaging, which made me worried about potential damage before use. Other than that minor issue, I found that the Duracell Coppertop D Alkaline Batteries are a reliable and long-lasting option for everyday use. 
 
 
-### [E-Circuit Super Heavy Duty D Battery Packs](https://serp.ly/amazon/D+Batteries?utm\_term=e-circuit-super-heavy-duty-d-battery-packs)
+### [E-Circuit Super Heavy Duty D Battery Packs](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=e-circuit-super-heavy-duty-d-battery-packs)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=e-circuit-super-heavy-duty-d-battery-packs"><img alt="e-circuit-super-heavy-duty-d-batteries-2-ct-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/e-circuit-super-heavy-duty-d-batteries-2-ct-packs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=e-circuit-super-heavy-duty-d-battery-packs"><img alt="e-circuit-super-heavy-duty-d-batteries-2-ct-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/e-circuit-super-heavy-duty-d-batteries-2-ct-packs-1/h=540,fit=pad,background=black"/></a></div>
 
 Super Heavy Duty D Batteries from E-Circuit are the ultimate choice for your everyday low-drain devices. These robust batteries are available in a convenient 2-pack, perfect for enhancing the performance of remote controls, handheld gaming consoles, flashlights, and wireless electronic gadgets. 
 
@@ -320,9 +320,9 @@ These top-notch batteries are equally suitable for use in homes and offices, as 
 E-Circuit's Super Heavy Duty D Batteries offer a reliable solution, delivering impressive battery life and consistent performance every time. 
 
 
-### [Energizer Rechargeable D Batteries: High-performance, Renewable, and Reusable Power Solution](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-rechargeable-d-batteries-high-performance-renewable-and-reusable-power-solution)
+### [Energizer Rechargeable D Batteries: High-performance, Renewable, and Reusable Power Solution](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-rechargeable-d-batteries-high-performance-renewable-and-reusable-power-solution)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-rechargeable-d-batteries-high-performance-renewable-and-reusable-power-solution"><img alt="energizer-rechargeable-d-batteries-2-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-rechargeable-d-batteries-2-count-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-rechargeable-d-batteries-high-performance-renewable-and-reusable-power-solution"><img alt="energizer-rechargeable-d-batteries-2-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-rechargeable-d-batteries-2-count-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Energizer Rechargeable D Batteries, and my experience was a mixed bag. On one hand, I appreciated the fact that they could be recharged multiple times, which was a great way to save money and be more environmentally friendly. The 1.2V voltage provided by these batteries also meant that they provided a reliable power supply without any interruptions. 
 
@@ -331,27 +331,27 @@ However, I did notice that there were some drawbacks as well. For instance, I no
 Overall, I would say that the Energizer Rechargeable D Batteries do have their pros and cons, but if you're looking for a reliable and eco-friendly alternative to traditional batteries, they might just be the ticket. 
 
 
-### [EBL Premium 10000mAh Rechargeable D Batteries (4 Count)](https://serp.ly/amazon/D+Batteries?utm\_term=ebl-premium-10000mah-rechargeable-d-batteries-4-count)
+### [EBL Premium 10000mAh Rechargeable D Batteries (4 Count)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=ebl-premium-10000mah-rechargeable-d-batteries-4-count)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=ebl-premium-10000mah-rechargeable-d-batteries-4-count"><img alt="ebl-d-cells-10000mah-rechargeable-batteries-4-counts-with-c-d-9v-aa-aaa-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ebl-d-cells-10000mah-rechargeable-batteries-4-counts-with-c-d-9v-aa-aaa-battery-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=ebl-premium-10000mah-rechargeable-d-batteries-4-count"><img alt="ebl-d-cells-10000mah-rechargeable-batteries-4-counts-with-c-d-9v-aa-aaa-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ebl-d-cells-10000mah-rechargeable-batteries-4-counts-with-c-d-9v-aa-aaa-battery-1/h=540,fit=pad,background=black"/></a></div>
 
 The EBL D Cells 10000mAh Rechargeable Batteries offer a flexible charging solution for various battery types such as AA/AAA/C/D Ni-MH Ni-Cd batteries and 9V batteries. With its personality LCD display, users can easily monitor the charging progress of each battery. The charger boasts a convenient charging status update for 9V batteries, ensuring seamless communication on power progress. 
 
 Featuring a smart LCD that indicates the charging status of each battery, this charger works seamlessly with both AC and DC plug options, making it an ideal solution for those seeking a reliable and versatile method of charging multiple batteries. 
 
 
-### [Reliable Duracell D Batteries Pack, High-Capacity D-Cells for Powering Any Device](https://serp.ly/amazon/D+Batteries?utm\_term=reliable-duracell-d-batteries-pack-high-capacity-d-cells-for-powering-any-device)
+### [Reliable Duracell D Batteries Pack, High-Capacity D-Cells for Powering Any Device](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=reliable-duracell-d-batteries-pack-high-capacity-d-cells-for-powering-any-device)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=reliable-duracell-d-batteries-pack-high-capacity-d-cells-for-powering-any-device"><img alt="duracell-plus-power-d-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-plus-power-d-2-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=reliable-duracell-d-batteries-pack-high-capacity-d-cells-for-powering-any-device"><img alt="duracell-plus-power-d-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-plus-power-d-2-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Save yourself from being stranded without power with Duracell Plus D batteries. These batteries are designed with 30% more power than traditional Duracell batteries and can be used in a wide range of devices, including toys, flashlights, and radios. 
 
 Trust Duracell to provide reliable and long-lasting power for your devices. The Duracell Plus D battery is known for its excellent reputation and high capacity, ensuring reliable performance in any device. 
 
 
-### [Duracell Coppertop 10 Pack D Alkaline Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppertop-10-pack-d-alkaline-batteries)
+### [Duracell Coppertop 10 Pack D Alkaline Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppertop-10-pack-d-alkaline-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppertop-10-pack-d-alkaline-batteries"><img alt="duracell-coppertop-alkaline-batteries-d-10-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-batteries-d-10-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppertop-10-pack-d-alkaline-batteries"><img alt="duracell-coppertop-alkaline-batteries-d-10-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-batteries-d-10-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out Duracell's Coppertop Alkaline D batteries in a pack of 10. As someone who frequently uses batteries for devices around the house like remote controls, flashlights, and toys, I was excited to give them a spin. 
 
@@ -364,18 +364,18 @@ However, there were a few downsides to using these batteries. They're specifical
 Overall, my experience with Duracell's Coppertop Alkaline D batteries was positive. They offered long-lasting power for my devices, and the 10-year storage guarantee gave me peace of mind. While the single-use nature and slightly shorter battery life compared to some other brands were minor drawbacks, I would still recommend these batteries to anyone in need of a dependable and long-lasting power source for their devices. 
 
 
-### [Duracell D Cell Procell Alkaline Batteries Pack 10](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-d-cell-procell-alkaline-batteries-pack-10)
+### [Duracell D Cell Procell Alkaline Batteries Pack 10](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-d-cell-procell-alkaline-batteries-pack-10)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-d-cell-procell-alkaline-batteries-pack-10"><img alt="duracell-d-cell-procell-alkaline-batteries-pack-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-d-cell-procell-alkaline-batteries-pack-10-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-d-cell-procell-alkaline-batteries-pack-10"><img alt="duracell-d-cell-procell-alkaline-batteries-pack-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-d-cell-procell-alkaline-batteries-pack-10-1/h=540,fit=pad,background=black"/></a></div>
 
 I found these Duracell Procell D Cell Batteries incredibly reliable; they powered my gadgets just as well as any other battery I've used. The fact that they can operate in pretty extreme temperatures, from -20 to 54 degrees Celsius, was a major plus. 
 
 One downside I noticed, however, was that they seemed a bit bulkier than other AA batteries, which made fitting them into certain small devices a bit more challenging. But overall, this pack of 10 batteries provided a lot of value for their price, and the 7-year shelf life was a huge bonus. I highly recommend them for those everyday gadgets that need a consistent and dependable power source. 
 
 
-### [Panasonic Super Heavy Duty D-2 Batteries for Home Use](https://serp.ly/amazon/D+Batteries?utm\_term=panasonic-super-heavy-duty-d-2-batteries-for-home-use)
+### [Panasonic Super Heavy Duty D-2 Batteries for Home Use](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=panasonic-super-heavy-duty-d-2-batteries-for-home-use)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=panasonic-super-heavy-duty-d-2-batteries-for-home-use"><img alt="panasonic-at-home-super-heavy-duty-d-2-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/panasonic-at-home-super-heavy-duty-d-2-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=panasonic-super-heavy-duty-d-2-batteries-for-home-use"><img alt="panasonic-at-home-super-heavy-duty-d-2-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/panasonic-at-home-super-heavy-duty-d-2-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Panasonic At Home Super Heavy Duty D - 2 batteries, a reliable and cost-effective power solution for all your low-drain devices. These high-quality D batteries are engineered with carbon zinc chemistry, offering optimum reliability for your flashlights, radios, electronic toys, and more. 
 
@@ -384,9 +384,9 @@ The mercury and cadmium-free design ensures a longer shelf life, making these ba
 Perfect for your on-the-go needs, these batteries come blister packed with 2 batteries included. Say goodbye to the hassle of frequent battery replacements and enjoy the convenience of these dependable D batteries from Panasonic. 
 
 
-### [Powerful Energizer D Alkaline Batteries: Long-Lasting Energy for Electronic Devices](https://serp.ly/amazon/D+Batteries?utm\_term=powerful-energizer-d-alkaline-batteries-long-lasting-energy-for-electronic-devices)
+### [Powerful Energizer D Alkaline Batteries: Long-Lasting Energy for Electronic Devices](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=powerful-energizer-d-alkaline-batteries-long-lasting-energy-for-electronic-devices)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=powerful-energizer-d-alkaline-batteries-long-lasting-energy-for-electronic-devices"><img alt="energizer-max-d-alkaline-batteries-2-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-d-alkaline-batteries-2-count-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=powerful-energizer-d-alkaline-batteries-long-lasting-energy-for-electronic-devices"><img alt="energizer-max-d-alkaline-batteries-2-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-d-alkaline-batteries-2-count-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine needing a reliable battery - one that doesn't leak, leaks, or fade fast. That's where Energizer's Max D Alkaline Batteries come in. Recently, I had a chance to test them out. As a music lover, I've often found myself in a dire situation when my portable speakers' batteries gave up too soon. Not anymore! 
 
@@ -399,9 +399,9 @@ As for the cons, I didn't find any that could compromise the overall quality of 
 Overall, the Energizer Max D Alkaline Batteries have proven to be a reliable and eco-friendly choice for my battery needs. They've certainly made my life easier - from powering my speakers during long music sessions to making sure my children's electronic toys work for hours on end. 
 
 
-### [Alkaline D Batteries - Rayovac Fusion for Ultimate Power and Reliability (8 Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=alkaline-d-batteries-rayovac-fusion-for-ultimate-power-and-reliability-8-pack)
+### [Alkaline D Batteries - Rayovac Fusion for Ultimate Power and Reliability (8 Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=alkaline-d-batteries-rayovac-fusion-for-ultimate-power-and-reliability-8-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=alkaline-d-batteries-rayovac-fusion-for-ultimate-power-and-reliability-8-pack"><img alt="rayovac-fusion-alkaline-d-batteries-8-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-fusion-alkaline-d-batteries-8-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=alkaline-d-batteries-rayovac-fusion-for-ultimate-power-and-reliability-8-pack"><img alt="rayovac-fusion-alkaline-d-batteries-8-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-fusion-alkaline-d-batteries-8-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Rayovac Fusion Alkaline D Batteries - 8 / Pack, a perfect energy boost for your high-drain devices. These long-lasting batteries deliver a powerful 1.5 volts for optimal functioning, thanks to their impressive 8,350 mAh capacity. Say goodbye to unnecessary battery replacements with these reliable alkaline batteries that work on a wide variety of household devices. 
 
@@ -410,9 +410,9 @@ With the ability to power your smoke detectors, toys, and more, you can purchase
 Don't let your devices run out of power; trust the Rayovac Fusion Alkaline D Batteries to keep them running efficiently and for longer periods. With their reliable performance, you'll find that they outlast competing brands, and with a rating of 4.8 based on 79 reviews, you can rest assured that you're making a great choice with this product. 
 
 
-### [AmazonBasics 24-Pack D Cell Alkaline Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=amazonbasics-24-pack-d-cell-alkaline-batteries)
+### [AmazonBasics 24-Pack D Cell Alkaline Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=amazonbasics-24-pack-d-cell-alkaline-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=amazonbasics-24-pack-d-cell-alkaline-batteries"><img alt="amazonbasics-d-cell-1-5-volt-everyday-alkaline-battery-24-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amazonbasics-d-cell-1-5-volt-everyday-alkaline-battery-24-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=amazonbasics-24-pack-d-cell-alkaline-batteries"><img alt="amazonbasics-d-cell-1-5-volt-everyday-alkaline-battery-24-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amazonbasics-d-cell-1-5-volt-everyday-alkaline-battery-24-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the convenience and reliability of these AmazonBasics D Cell 1.5V Everyday Alkaline Batteries. With a 24-pack, you'll always have a steady supply of batteries on hand for your various household electronics and emergency supplies. 
 
@@ -421,18 +421,18 @@ These alkaline batteries provide a consistently strong power output, perfect for
 Say goodbye to bulky, unpredictable battery problems, and hello to hassle-free convenience with these high-quality D Cell 1.5V batteries from AmazonBasics. 
 
 
-### [Energizer Industrial Alkaline D Batteries Pack of 72](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-industrial-alkaline-d-batteries-pack-of-72)
+### [Energizer Industrial Alkaline D Batteries Pack of 72](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-industrial-alkaline-d-batteries-pack-of-72)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-industrial-alkaline-d-batteries-pack-of-72"><img alt="energizer-industrial-alkaline-d-batteries-72-carton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-industrial-alkaline-d-batteries-72-carton-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-industrial-alkaline-d-batteries-pack-of-72"><img alt="energizer-industrial-alkaline-d-batteries-72-carton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-industrial-alkaline-d-batteries-72-carton-1/h=540,fit=pad,background=black"/></a></div>
 
 The Energizer Industrial Alkaline D Batteries truly lived up to their name in my daily life. Not only did they power my gadgets like a pro, but their mercury-free composition gave me peace of mind knowing they were eco-friendly. 
 
 Moreover, their durability stood out, as they worked seamlessly in a wide temperature range. However, some drawbacks included a short lifespan and high price compared to other options. Overall, it was a game-changer in my battery-powered devices' world. 
 
 
-### [Rayovac High Energy D Batteries Pack](https://serp.ly/amazon/D+Batteries?utm\_term=rayovac-high-energy-d-batteries-pack)
+### [Rayovac High Energy D Batteries Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=rayovac-high-energy-d-batteries-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=rayovac-high-energy-d-batteries-pack"><img alt="rayovac-high-energy-alkaline-d-batteries-12-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-high-energy-alkaline-d-batteries-12-count-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=rayovac-high-energy-d-batteries-pack"><img alt="rayovac-high-energy-alkaline-d-batteries-12-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-high-energy-alkaline-d-batteries-12-count-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's used a variety of batteries in their daily life, the Rayovac High Energy Alkaline D Batteries definitely stand out. I initially chose these batteries because they're a reliable and longer-lasting option compared to the ones I previously used. 
 
@@ -443,9 +443,9 @@ However, the recloseable packaging also brought some convenience into my life. I
 Overall, the Rayovac High Energy Alkaline D Batteries have exceeded my expectations and proved their worth as an optimal choice for powering high-use devices. Their reliable performance, lasting power, and user-friendly packaging make them a top pick in my book. 
 
 
-### [Duracell D-8 Alkaline Batteries - High-Performance Choice for Devices](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-d-8-alkaline-batteries-high-performance-choice-for-devices)
+### [Duracell D-8 Alkaline Batteries - High-Performance Choice for Devices](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-d-8-alkaline-batteries-high-performance-choice-for-devices)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-d-8-alkaline-batteries-high-performance-choice-for-devices"><img alt="duracell-batteries-alkaline-d-8-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-batteries-alkaline-d-8-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-d-8-alkaline-batteries-high-performance-choice-for-devices"><img alt="duracell-batteries-alkaline-d-8-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-batteries-alkaline-d-8-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 Duracell Coppertop all-purpose alkaline batteries have been a reliable source of power in my daily life. With their guarantee of 10 years in storage, I can trust that I always have them on hand when needed. Whether it's for toys, remote controls, or emergency devices, these batteries have proven to be dependable and long-lasting. 
 
@@ -454,9 +454,9 @@ One feature that stood out for me is the availability of Duracell Coppertop batt
 However, the high cost of these batteries is worth mentioning as a con. It's not uncommon to find more affordable alternatives on the market. Nonetheless, the quality and longevity of Duracell batteries make them a worthwhile investment for those looking for a reliable power source. 
 
 
-### [Rayovac D Mercury-Free Alkaline Batteries (2-Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=rayovac-d-mercury-free-alkaline-batteries-2-pack)
+### [Rayovac D Mercury-Free Alkaline Batteries (2-Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=rayovac-d-mercury-free-alkaline-batteries-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=rayovac-d-mercury-free-alkaline-batteries-2-pack"><img alt="rayovac-813-2f-mercury-free-alkaline-batteries-d-2-pk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-813-2f-mercury-free-alkaline-batteries-d-2-pk-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=rayovac-d-mercury-free-alkaline-batteries-2-pack"><img alt="rayovac-813-2f-mercury-free-alkaline-batteries-d-2-pk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-813-2f-mercury-free-alkaline-batteries-d-2-pk-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently used the Rayovac Alkaline Batteries (2 pack) to power my calculator and it worked like a charm. What stood out to me was how consistently it provided a stable voltage output, even as it neared the end of its life. 
 
@@ -465,9 +465,9 @@ I was particularly impressed with its durability, as it managed to function well
 Overall, a reliable and long-lasting battery that I wouldn't hesitate to recommend. 
 
 
-### [Gogreen Alkaline D Batteries, 2-Pack](https://serp.ly/amazon/D+Batteries?utm\_term=gogreen-alkaline-d-batteries-2-pack)
+### [Gogreen Alkaline D Batteries, 2-Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=gogreen-alkaline-d-batteries-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=gogreen-alkaline-d-batteries-2-pack"><img alt="gogreen-power-alkaline-d-batteries-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gogreen-power-alkaline-d-batteries-2-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=gogreen-alkaline-d-batteries-2-pack"><img alt="gogreen-power-alkaline-d-batteries-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gogreen-power-alkaline-d-batteries-2-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on a pack of Gogreen Power alkaline D batteries and let me tell you, they're a game-changer. These batteries are not only dependable and efficient, but they're also made with recycled materials – a big bonus for my eco-conscious mindset. And don't worry, their performance is on par with other top brands, so you're not sacrificing quality. 
 
@@ -476,18 +476,18 @@ One of the highlights, in my opinion, is that these batteries are not rechargeab
 Overall, I'm pretty impressed with the Gogreen Power alkaline D batteries. They're environmentally friendly, reliable, and easy on the pockets. If you're looking for an eco-friendly battery solution for your daily life, look no further! 
 
 
-### [Energizer Max D Batteries - 2 Pack](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-max-d-batteries-2-pack)
+### [Energizer Max D Batteries - 2 Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-max-d-batteries-2-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-max-d-batteries-2-pack"><img alt="energizer-max-alkaline-d-batteries-2-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-2-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-max-d-batteries-2-pack"><img alt="energizer-max-alkaline-d-batteries-2-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-2-each-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the superior power and durability of the Energizer MAX Alkaline D Batteries with their unmatched lifespan that boasts up to 10 years of storage and protection from leakage for up to 2 years. These top-quality batteries from a reputable brand are perfect for powering your everyday devices and offering peace of mind knowing they'll work seamlessly, time after time. 
 
 Trust in the reliable and long-lasting performance of Energizer MAX Alkaline D Batteries and elevate your enjoyment of devices that rely on battery power. 
 
 
-### [Reliable Rayovac High-Performance D Batteries - 4 Pack](https://serp.ly/amazon/D+Batteries?utm\_term=reliable-rayovac-high-performance-d-batteries-4-pack)
+### [Reliable Rayovac High-Performance D Batteries - 4 Pack](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=reliable-rayovac-high-performance-d-batteries-4-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=reliable-rayovac-high-performance-d-batteries-4-pack"><img alt="rayovac-high-energy-batteries-alkaline-d-4-pack-4-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-high-energy-batteries-alkaline-d-4-pack-4-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=reliable-rayovac-high-performance-d-batteries-4-pack"><img alt="rayovac-high-energy-batteries-alkaline-d-4-pack-4-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-high-energy-batteries-alkaline-d-4-pack-4-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to Rayovac's cutting-edge High Energy 9V Batteries, an unparalleled power source tailored to high-demand gadgets. Boasting an impressive 10-year power retention warranty, this battery range ensures seamless performance for flashlights, toys, and other power-hungry devices. As a leading brand in the global battery sector, Rayovac guarantees consistent and dependable voltage output for top-notch device functionality.
 
@@ -496,9 +496,9 @@ Manufactured with a blend of domestic and international materials, these batteri
 Rayovac's High Energy 9V Batteries present an affordable, long-lasting, and reliable solution for consumers. Ideal for toys, smoke detectors, and a wide range of outdoor electronics, these batteries are well-suited to provide uninterrupted power for optimal device efficiency.
 
 
-### [Powerex Low Self-Discharge NiMH D Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=powerex-low-self-discharge-nimh-d-batteries)
+### [Powerex Low Self-Discharge NiMH D Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=powerex-low-self-discharge-nimh-d-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=powerex-low-self-discharge-nimh-d-batteries"><img alt="powerex-low-self-discharge-precharged-d-rechargeable-nimh-batteries-mhrdp2-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/powerex-low-self-discharge-precharged-d-rechargeable-nimh-batteries-mhrdp2-2-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=powerex-low-self-discharge-nimh-d-batteries"><img alt="powerex-low-self-discharge-precharged-d-rechargeable-nimh-batteries-mhrdp2-2-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/powerex-low-self-discharge-precharged-d-rechargeable-nimh-batteries-mhrdp2-2-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Powerex Low Self-Discharge Precharged D Rechargeable NiMH Batteries for a couple of months now, and I must say, these are a game changer. They not only last longer but also save me money in the long run. 
 
@@ -507,9 +507,9 @@ The batteries are precharged and ready to go right out of the box, and they can 
 One thing I noticed is that the quality of these batteries can be inconsistent within the same batch. Some work better and retain a full charge for a longer time, while others don't. However, overall, I'm really happy with my purchase and would recommend these to anyone looking for a reliable rechargeable battery option. 
 
 
-### [High-Capacity Energizer Alkaline D Batteries Made in USA](https://serp.ly/amazon/D+Batteries?utm\_term=high-capacity-energizer-alkaline-d-batteries-made-in-usa)
+### [High-Capacity Energizer Alkaline D Batteries Made in USA](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=high-capacity-energizer-alkaline-d-batteries-made-in-usa)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=high-capacity-energizer-alkaline-d-batteries-made-in-usa"><img alt="energizer-e95-max-alkaline-d-battery-made-in-usa-exp-12-2024-or-later-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-e95-max-alkaline-d-battery-made-in-usa-exp-12-2024-or-later-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=high-capacity-energizer-alkaline-d-batteries-made-in-usa"><img alt="energizer-e95-max-alkaline-d-battery-made-in-usa-exp-12-2024-or-later-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-e95-max-alkaline-d-battery-made-in-usa-exp-12-2024-or-later-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Energizer E95 Max Alkaline D Battery, and let me tell you, it was a game-changer. These batteries have a shelf life of up to 10 years, so I no longer have to worry about constantly replacing them in my remote control toys and flashlights. 
 
@@ -518,9 +518,9 @@ One amazing feature of these batteries is their Zero Mercury technology. Energiz
 However, I did find one minor inconvenience during my experience. Some of the battery compartments of the devices that I used these batteries with did not fit perfectly, which made it slightly challenging to insert these batteries. Despite this small issue, I was still overall impressed by the Energizer E95 Max Alkaline D Battery. 
 
 
-### [Duracell Coppertop 8-Pack D Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-coppertop-8-pack-d-batteries)
+### [Duracell Coppertop 8-Pack D Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-coppertop-8-pack-d-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-coppertop-8-pack-d-batteries"><img alt="duracell-coppertop-alkaline-d-batteries-8-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-batteries-8-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-coppertop-8-pack-d-batteries"><img alt="duracell-coppertop-alkaline-d-batteries-8-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-coppertop-alkaline-d-batteries-8-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 My experience with Duracell Coppertop alkaline D batteries has been nothing short of remarkable. These batteries have been a reliable and long-lasting companion to power my devices, providing consistent performance and a peace of mind. One of the features that stood out for me is the battery's ability to hold a charge for a long time, even in devices that are not used daily. This has been incredibly helpful for my office equipment, like remotes and wireless mice or keyboards. 
 
@@ -529,9 +529,9 @@ The durability of these batteries is also noteworthy. They resist leaks and dama
 However, one thing I would like to mention is that the packaging could be more user-friendly. Sometimes, when opening the pack, the batteries would occasionally get jumbled and needed a bit of reorganization before use. But overall, the experience with Duracell Coppertop alkaline D batteries has been a positive one. They provide a reliable and long-lasting power source for household devices, and their durability ensures that they perform well even in less frequently used devices. 
 
 
-### [Energizer MAX D Alkaline Battery](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-max-d-alkaline-battery)
+### [Energizer MAX D Alkaline Battery](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-max-d-alkaline-battery)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-max-d-alkaline-battery"><img alt="evee95bp2-energizer-d-alkaline-general-purpose-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/evee95bp2-energizer-d-alkaline-general-purpose-battery-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-max-d-alkaline-battery"><img alt="evee95bp2-energizer-d-alkaline-general-purpose-battery-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/evee95bp2-energizer-d-alkaline-general-purpose-battery-1/h=540,fit=pad,background=black"/></a></div>
 
 Energizer MAX's D Alkaline Batteries are the unsung heroes of my daily life, powering up countless devices from my camera to my kitchen scale. Their standout feature is the staggering 10-year shelf life, thanks to the innovative PowerSeal Technology. Talk about a peace of mind knowing that my battery stash won't be rendered useless anytime soon! 
 
@@ -540,9 +540,9 @@ Despite being alkaline, these batteries give a reliable performance without the 
 While they may not boast the same environmental credentials as other battery brands, their impressive durability and reliability make them a worthy pick for those looking for long-lasting energy on the go. As someone who frequently relies on battery power, the EVEE95BP2 has proven to be a reliable companion, and a worthy addition to the lineup in my tech arsenal. 
 
 
-### [Rayovac D Alkaline Batteries (6 Pack)](https://serp.ly/amazon/D+Batteries?utm\_term=rayovac-d-alkaline-batteries-6-pack)
+### [Rayovac D Alkaline Batteries (6 Pack)](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=rayovac-d-alkaline-batteries-6-pack)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=rayovac-d-alkaline-batteries-6-pack"><img alt="rayovac-alkaline-d-batteries-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-alkaline-d-batteries-6-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=rayovac-d-alkaline-batteries-6-pack"><img alt="rayovac-alkaline-d-batteries-6-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rayovac-alkaline-d-batteries-6-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking for a reliable battery pack to keep your electronic devices running? Look no further than the Rayovac Alkaline D Batteries. Designed with professionals in mind, these batteries provide a high-quality power source for high-use equipment like flashlights, wireless devices, and more. 
 
@@ -553,27 +553,27 @@ The Rayovac Alkaline D Batteries come in a 6-pack, which provides enough power t
 While some users may find the battery pack slightly lighter than others, it remains a dependable and cost-effective choice. The fast and reliable delivery adds a layer of convenience to your purchase, making it an excellent option when you need batteries on the go. The positive reviews and high rating from satisfied customers further support Rayovac's reputation as a top-notch battery provider. Give the Rayovac Alkaline D Batteries a try and experience the power and peace of mind that comes with this top-quality product. 
 
 
-### [Energizer Max Alkaline D Batteries - Long-Lasting, Mercury-Free Power Source](https://serp.ly/amazon/D+Batteries?utm\_term=energizer-max-alkaline-d-batteries-long-lasting-mercury-free-power-source)
+### [Energizer Max Alkaline D Batteries - Long-Lasting, Mercury-Free Power Source](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=energizer-max-alkaline-d-batteries-long-lasting-mercury-free-power-source)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=energizer-max-alkaline-d-batteries-long-lasting-mercury-free-power-source"><img alt="energizer-max-alkaline-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=energizer-max-alkaline-d-batteries-long-lasting-mercury-free-power-source"><img alt="energizer-max-alkaline-d-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/energizer-max-alkaline-d-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Energizer Max Alkaline D Batteries, offering users unrivaled reliability and long-lasting power for a variety of everyday devices. With Energizer's exclusive PowerSeal technology, these batteries create a strong seal, ensuring consistent energy delivery and minimizing waste. 
 
 These batteries also impress with their extended storage capabilities, maintaining power for up to 10 years without use. What's more, the Energizer Max Alkaline D Batteries are 100 percent mercury-free, proving that reliability doesn't have to come at the cost of the environment. 
 
 
-### [Duracell 4-Pack D Alkaline Batteries](https://serp.ly/amazon/D+Batteries?utm\_term=duracell-4-pack-d-alkaline-batteries)
+### [Duracell 4-Pack D Alkaline Batteries](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=duracell-4-pack-d-alkaline-batteries)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=duracell-4-pack-d-alkaline-batteries"><img alt="duracell-batteries-alkaline-d-4-pack-4-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-batteries-alkaline-d-4-pack-4-batteries-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=duracell-4-pack-d-alkaline-batteries"><img alt="duracell-batteries-alkaline-d-4-pack-4-batteries-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duracell-batteries-alkaline-d-4-pack-4-batteries-1/h=540,fit=pad,background=black"/></a></div>
 
 These CopperTop D alkaline batteries from Duracell are designed to provide reliable, long-lasting power for a wide range of portable and household electronic devices. With a shelf life of up to 10 years, they're ideal for keeping your everyday devices ready to use when needed, whether it's a simple flashlight or a critical appliance during power outages. 
 
 Available in a 4-pack, these batteries are engineered to deliver consistent performance and long life, thanks to the expertise and innovation you'd expect from this trusted brand. 
 
 
-### [Affordable Refurbished D Cell Batteries - Ideal for Everyday Devices](https://serp.ly/amazon/D+Batteries?utm\_term=affordable-refurbished-d-cell-batteries-ideal-for-everyday-devices)
+### [Affordable Refurbished D Cell Batteries - Ideal for Everyday Devices](https://serp.ly/@outrun/amazon/D+Batteries?utm\_term=affordable-refurbished-d-cell-batteries-ideal-for-everyday-devices)
 
-<div class="image"><a href="https://serp.ly/amazon/D+Batteries?utm_term=affordable-refurbished-d-cell-batteries-ideal-for-everyday-devices"><img alt="batteries-alkaline-d-cell-refurbished-a-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batteries-alkaline-d-cell-refurbished-a-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/D+Batteries?utm_term=affordable-refurbished-d-cell-batteries-ideal-for-everyday-devices"><img alt="batteries-alkaline-d-cell-refurbished-a-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batteries-alkaline-d-cell-refurbished-a-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're looking for a set of D-cell batteries that can handle everyday devices without worrying about leakage, you might want to consider these Alkaline Batteries from Amazon. With a rating of 4.7 and 18 positive reviews, these batteries boast an improved design that ensures a leak-free shelf life of up to 5 years, even when stored for emergencies or immediate use. These batteries are perfect for devices like toys, clocks, flashlights, and more, giving your household a reliable backup power solution. 
 
@@ -589,7 +589,7 @@ D batteries are a widely popular and versatile type of battery used in various d
 
 D batteries come in various capacities, which are usually indicated on the packaging. Capacity tells you how much charge a battery can store. A higher capacity battery will typically last longer in your device. Common capacity options for D batteries include 1200mAh, 1500mAh, 1800mAh, and 2000mAh. For devices that require more power, choose a higher capacity battery. 
 
-<div><a href="https://serp.ly/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-2/h=540,fit=pad,background=black" alt="D-Batteries-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-2/h=540,fit=pad,background=black" alt="D-Batteries-2" height="540"></a></div>
 
 
 ### Brand
@@ -601,7 +601,7 @@ While the brand of your D batteries may not significantly affect the performance
 
 There are two main types of D batteries available: alkaline and lithium. Alkaline batteries are the most common type and are suitable for a wide range of devices. Lithium batteries, on the other hand, offer more energy density and can provide more power per gram, making them ideal for devices that require frequent power changes, such as high-quality cameras or digital watches. However, they can be more expensive than alkaline alternatives. 
 
-<div><a href="https://serp.ly/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-3/h=540,fit=pad,background=black" alt="D-Batteries-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-3/h=540,fit=pad,background=black" alt="D-Batteries-3" height="540"></a></div>
 
 
 ### Price
@@ -611,7 +611,7 @@ The price of D batteries varies depending on the brand, capacity, and type. Whil
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-4/h=540,fit=pad,background=black" alt="D-Batteries-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-4/h=540,fit=pad,background=black" alt="D-Batteries-4" height="540"></a></div>
 
 
 ### What are D batteries?
@@ -623,7 +623,7 @@ D batteries, also known as D-cell batteries, are cylindrical primary batteries c
 
 The primary difference between alkaline and lithium D batteries lies in their power output and life span. Alkaline batteries have a lower discharge rate and a shorter life span, while lithium batteries have a higher voltage, powering devices for extended periods. Additionally, lithium batteries maintain their charge for longer durations when not in use.
 
-<div><a href="https://serp.ly/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-5/h=540,fit=pad,background=black" alt="D-Batteries-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-5/h=540,fit=pad,background=black" alt="D-Batteries-5" height="540"></a></div>
 
 
 ### How long do D batteries last?
@@ -635,7 +635,7 @@ The lifespan of a D battery depends on the device's power consumption and the ty
 
 Yes, rechargeable D batteries are available in both alkaline and lithium varieties. These batteries offer a more environmentally friendly and cost-effective option compared to disposable batteries, although they may have a slightly lower power output and lifespan.
 
-<div><a href="https://serp.ly/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-6/h=540,fit=pad,background=black" alt="D-Batteries-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/D+Batteries"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/D-Batteries-6/h=540,fit=pad,background=black" alt="D-Batteries-6" height="540"></a></div>
 
 
 ### Can I use rechargeable D batteries in devices designed for disposable batteries?

@@ -14,18 +14,18 @@ Welcome to our Rescue Knife roundup! In this article, we've compiled a list of t
 ## Reviews
 
 
-### [SOG Rapid Rescue: Versatile & Discreet Rescue Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=sog-rapid-rescue-versatile-discreet-rescue-knife)
+### [SOG Rapid Rescue: Versatile & Discreet Rescue Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=sog-rapid-rescue-versatile-discreet-rescue-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=sog-rapid-rescue-versatile-discreet-rescue-knife"><img alt="sog-knives-tools-rapid-rescue-rescue-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-knives-tools-rapid-rescue-rescue-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=sog-rapid-rescue-versatile-discreet-rescue-knife"><img alt="sog-knives-tools-rapid-rescue-rescue-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-knives-tools-rapid-rescue-rescue-red-1/h=540,fit=pad,background=black"/></a></div>
 
 The SOG Rapid Rescue is a compact, yet powerful piece of emergency equipment that doesn't compromise on functionality. Its keychain design makes it easily accessible and ready for deployment when you need it most. 
 
 The seatbelt cutter and glass breaker are both practical features that can make all the difference in an emergency situation. The ergonomic grip ensures a firm hold, while the textured finish adds to the overall durability. This little hero can be a real lifesaver in your vehicle. 
 
 
-### [Gerber Center-Drive Rescue Multi-Tool with One-Hand Opening Strap Cutter](https://serp.ly/amazon/Rescue+Knife?utm\_term=gerber-center-drive-rescue-multi-tool-with-one-hand-opening-strap-cutter)
+### [Gerber Center-Drive Rescue Multi-Tool with One-Hand Opening Strap Cutter](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=gerber-center-drive-rescue-multi-tool-with-one-hand-opening-strap-cutter)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=gerber-center-drive-rescue-multi-tool-with-one-hand-opening-strap-cutter"><img alt="g1892-gerber-center-drive-rescue-berry-multi-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/g1892-gerber-center-drive-rescue-berry-multi-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=gerber-center-drive-rescue-multi-tool-with-one-hand-opening-strap-cutter"><img alt="g1892-gerber-center-drive-rescue-berry-multi-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/g1892-gerber-center-drive-rescue-berry-multi-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 The Gerber 30-001892 Multi-Tool, also known as the Center-Drive Rescue, is a fantastic addition to any toolbox or backpack. I've been carrying this multi-tool on my camping trips and find it incredibly useful in various situations. The innovative design aligns the center-axis driver like a real screwdriver, providing maximum torque and rotation. It has a 2.5-inch partially serrated blade, easy-to-open sliding jaws, and an efficient one-hand strap cutter. 
 
@@ -34,9 +34,9 @@ One of my favorite features is the one-hand operation, making it a great tool fo
 Despite this minor issue, the Gerber 30-001892 Multi-Tool is a highly portable and visually appealing tool. Its craftsmanship shows in its reliable performance and practical design. This multi-tool has become an essential part of my outdoor adventures, and I would highly recommend it for anyone looking for a versatile and durable tool to have on hand. 
 
 
-### [ESEE Pinch Survival Kit - Ultimate Rescue Tool](https://serp.ly/amazon/Rescue+Knife?utm\_term=esee-pinch-survival-kit-ultimate-rescue-tool)
+### [ESEE Pinch Survival Kit - Ultimate Rescue Tool](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=esee-pinch-survival-kit-ultimate-rescue-tool)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=esee-pinch-survival-kit-ultimate-rescue-tool"><img alt="esee-pinch-survival-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/esee-pinch-survival-kit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=esee-pinch-survival-kit-ultimate-rescue-tool"><img alt="esee-pinch-survival-kit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/esee-pinch-survival-kit-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the ESEE Pinch Survival Kit in my daily adventures and let me tell you, it's been a lifesaver! This little guy comes with an array of essential tools, including a 3" overall Pinch knife made from 1095 carbon steel and a 1.5" blade. The black stonewash finish adds a stylish touch to its one-piece construction. 
 
@@ -47,18 +47,18 @@ However, there were a couple of minor drawbacks to this otherwise fantastic kit.
 Overall, the ESEE Pinch Survival Kit is a fantastic companion for those who love the great outdoors and want a reliable, all-in-one toolkit. Just remember to treat it with care to avoid any mishaps with the magnet on the box! 
 
 
-### [Gear Aid Tanu Blunt Tip Dive and Rescue Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=gear-aid-tanu-blunt-tip-dive-and-rescue-knife)
+### [Gear Aid Tanu Blunt Tip Dive and Rescue Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=gear-aid-tanu-blunt-tip-dive-and-rescue-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=gear-aid-tanu-blunt-tip-dive-and-rescue-knife"><img alt="gear-aid-tanu-blunt-tip-dive-and-rescue-knife-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-tanu-blunt-tip-dive-and-rescue-knife-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=gear-aid-tanu-blunt-tip-dive-and-rescue-knife"><img alt="gear-aid-tanu-blunt-tip-dive-and-rescue-knife-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-tanu-blunt-tip-dive-and-rescue-knife-1/h=540,fit=pad,background=black"/></a></div>
 
 The Gear Aid Tanu Knife is designed with a corrosion-resistant, blunt tip blade perfect for divers and rescuers. Its rubberized handle provides a secure grip, featuring a finger stop for added safety during underwater operations. 
 
 The quick-draining sheath comes with a removable belt clip for convenient carrying. Choose to buy the knife alone or as a kit with the B. C. D. Adaptor Plate, allowing for attachment on an integrated knife mount or inflator hose. 
 
 
-### [5.11 Tactical ESC Rescue Tool](https://serp.ly/amazon/Rescue+Knife?utm\_term=5-11-tactical-esc-rescue-tool)
+### [5.11 Tactical ESC Rescue Tool](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=5-11-tactical-esc-rescue-tool)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=5-11-tactical-esc-rescue-tool"><img alt="5-11-tactical-esc-rescue-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-11-tactical-esc-rescue-tool-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=5-11-tactical-esc-rescue-tool"><img alt="5-11-tactical-esc-rescue-tool-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-11-tactical-esc-rescue-tool-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the reliable 5.11 Tactical ESC Rescue Tool - your go-to companion for life's unexpected emergencies. Crafted for unobtrusive storage, this professional-grade tool keeps you ready for action when you need it most. With a stainless steel handle and folding seat belt strap cutter, you're equipped to tackle glass-breaking or seat belt snipping tasks with ease. 
 
@@ -67,9 +67,9 @@ The spring-loaded carbide tip window breaker provides an expedited auto extracti
 Built in the USA and imported, you can trust in its quality and durability. 
 
 
-### [Rescue Red Indigo Stainless Aegis FX Fixed Blade Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=rescue-red-indigo-stainless-aegis-fx-fixed-blade-knife)
+### [Rescue Red Indigo Stainless Aegis FX Fixed Blade Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=rescue-red-indigo-stainless-aegis-fx-fixed-blade-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=rescue-red-indigo-stainless-aegis-fx-fixed-blade-knife"><img alt="sog-aegis-fx-fixed-blade-knife-17-41-03-41-rescue-red-indigo-stainless-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-aegis-fx-fixed-blade-knife-17-41-03-41-rescue-red-indigo-stainless-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=rescue-red-indigo-stainless-aegis-fx-fixed-blade-knife"><img alt="sog-aegis-fx-fixed-blade-knife-17-41-03-41-rescue-red-indigo-stainless-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-aegis-fx-fixed-blade-knife-17-41-03-41-rescue-red-indigo-stainless-1/h=540,fit=pad,background=black"/></a></div>
 
 The Aegis FX is a trusty companion for all your outdoor escapades. This rescue knife boasts a full-tang construction, making it sturdy and reliable. 
 
@@ -78,9 +78,9 @@ The CRYO 4116 Krupp stainless steel blade adds to its durability and keeps it re
 The ergonomic handle, with its rubberized grip surface, ensures a comfortable grip for better handling. 
 
 
-### [Versatile Gear Aid Akua Rescue Tool with Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=versatile-gear-aid-akua-rescue-tool-with-knife)
+### [Versatile Gear Aid Akua Rescue Tool with Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=versatile-gear-aid-akua-rescue-tool-with-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=versatile-gear-aid-akua-rescue-tool-with-knife"><img alt="gear-aid-akua-tools-knife-blunt-tip-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-akua-tools-knife-blunt-tip-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=versatile-gear-aid-akua-rescue-tool-with-knife"><img alt="gear-aid-akua-tools-knife-blunt-tip-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-akua-tools-knife-blunt-tip-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the Akua rescue knife, a sturdy cutting tool designed for those who love to explore underwater scenery. Upon first glance, I was impressed by the knife's sleek titanium-coated blade, which comes with a line cutter, straight edge, and serrated edge for cutting rope, fishing line, and food. 
 
@@ -91,18 +91,18 @@ However, one downside I noticed was the belt clip. Although it claims to be deta
 Despite the belt clip issue, I was overall pleased with the Akua rescue knife's performance and durability in water adventures. Its titanium-coated blade and quick-drain sheath mount make it a reliable tool for your next aquatic excursion. 
 
 
-### [Rough Ryder Reserve Easy Open Pocket Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=rough-ryder-reserve-easy-open-pocket-knife)
+### [Rough Ryder Reserve Easy Open Pocket Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=rough-ryder-reserve-easy-open-pocket-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=rough-ryder-reserve-easy-open-pocket-knife"><img alt="rrr010-rough-ryder-reserve-easy-open-pocket-knife-tear-jerk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rrr010-rough-ryder-reserve-easy-open-pocket-knife-tear-jerk-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=rough-ryder-reserve-easy-open-pocket-knife"><img alt="rrr010-rough-ryder-reserve-easy-open-pocket-knife-tear-jerk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rrr010-rough-ryder-reserve-easy-open-pocket-knife-tear-jerk-1/h=540,fit=pad,background=black"/></a></div>
 
 This Rough Ryder Reserve Tear Jerk RRR010 is a fantastic addition to any pocket knife collection. I was initially drawn to its sleek satin finish and eye-catching ebony wood handle. The D2 tool steel spear and Wharncliffe blades are great for slicing through all kinds of materials, but what really sets this knife apart is its unique design. The inlay shield adds a cool touch, and the lanyard hole ensures you never lose your knife when you're on the go. 
 
 While the slip joint lock is a solid choice for convenience, it doesn't compare to the security of some other pocket knife options. Nevertheless, this RRR010 is a reliable and practical EDC knife that's bound to be a staple in your pocket. 
 
 
-### [Gear Aid Rescue Dive Blunt Tip Knife with BC Adaptor](https://serp.ly/amazon/Rescue+Knife?utm\_term=gear-aid-rescue-dive-blunt-tip-knife-with-bc-adaptor)
+### [Gear Aid Rescue Dive Blunt Tip Knife with BC Adaptor](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=gear-aid-rescue-dive-blunt-tip-knife-with-bc-adaptor)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=gear-aid-rescue-dive-blunt-tip-knife-with-bc-adaptor"><img alt="gear-aid-3-tanu-dive-and-rescue-blunt-tip-fixed-knife-with-b-c-d-adaptor-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-3-tanu-dive-and-rescue-blunt-tip-fixed-knife-with-b-c-d-adaptor-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=gear-aid-rescue-dive-blunt-tip-knife-with-bc-adaptor"><img alt="gear-aid-3-tanu-dive-and-rescue-blunt-tip-fixed-knife-with-b-c-d-adaptor-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gear-aid-3-tanu-dive-and-rescue-blunt-tip-fixed-knife-with-b-c-d-adaptor-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 As I delve into the realm of emergency gear, I recently got my hands on the Gear Aid Tanu Dive and Rescue Knife, complete with B. C. D. Adaptor, all swathed in Gray. This ingenious tool that multitasks like a pro, has fast turned into my trusty companion for my submerged sojourns. The robust 304 stainless-steel blade gives it that unbeatable sturdiness to withstand the saline milieu with no fuss. 
 
@@ -113,9 +113,9 @@ Featuring a rubberized handle that provides optimal grip and a finger guard for 
 The Tanu's B. C. D. Adaptor guarantees compatibility with all scuba gear, further solidifying its position as a crucial component of any rescue kit. The Gray and Olive Green shades make it an effortless sight to locate in any surroundings. In conclusion, this multipurpose knife has proven to be a savior during my diving escapades and I wholeheartedly endorse it to anyone in need of a robust, versatile rescue tool. 
 
 
-### [Smith & Wesson Special Ops Survival Fixed Blade Knife - Black Handle & Blade](https://serp.ly/amazon/Rescue+Knife?utm\_term=smith-wesson-special-ops-survival-fixed-blade-knife-black-handle-blade)
+### [Smith & Wesson Special Ops Survival Fixed Blade Knife - Black Handle & Blade](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=smith-wesson-special-ops-survival-fixed-blade-knife-black-handle-blade)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=smith-wesson-special-ops-survival-fixed-blade-knife-black-handle-blade"><img alt="smith-wesson-1122583-mp-ultimate-survival-knife-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-1122583-mp-ultimate-survival-knife-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=smith-wesson-special-ops-survival-fixed-blade-knife-black-handle-blade"><img alt="smith-wesson-1122583-mp-ultimate-survival-knife-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smith-wesson-1122583-mp-ultimate-survival-knife-1/h=540,fit=pad,background=black"/></a></div>
 
 The Smith & Wesson Special Ops Survival fixed blade knife is a reliable and comfortable addition to any kit, designed for durability and versatility. Its handle, made from ABS rubber-coated material, offers a secure grip even in the toughest conditions. The black full-tang 8Cr13MoV blade, with its 15 mm thickness, is capable of handling heavy-duty tasks with ease. 
 
@@ -126,9 +126,9 @@ The kit comes with a hard synthetic sheath that allows for belt carrying, ensuri
 Despite its excellent reviews, potential drawbacks to consider are the waiting period for delivery, as well as the need to replace the sheath promptly for a more secure fit. Overall, the Smith & Wesson Special Ops Survival fixed blade knife is a must-have for those in need of a rugged, reliable, and dependable knife to tackle any task ahead. 
 
 
-### [SOG Pentagon FX Blackout - Versatile Rescue Knife](https://serp.ly/amazon/Rescue+Knife?utm\_term=sog-pentagon-fx-blackout-versatile-rescue-knife)
+### [SOG Pentagon FX Blackout - Versatile Rescue Knife](https://serp.ly/@outrun/amazon/Rescue+Knife?utm\_term=sog-pentagon-fx-blackout-versatile-rescue-knife)
 
-<div class="image"><a href="https://serp.ly/amazon/Rescue+Knife?utm_term=sog-pentagon-fx-blackout-versatile-rescue-knife"><img alt="sog-pentagon-fx-blackout-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-pentagon-fx-blackout-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Rescue+Knife?utm_term=sog-pentagon-fx-blackout-versatile-rescue-knife"><img alt="sog-pentagon-fx-blackout-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sog-pentagon-fx-blackout-1/h=540,fit=pad,background=black"/></a></div>
 
 Embodying the pinnacle of hard-use fixed blades, the Pentagon FX is a full-sized knife suited for modern-day warriors. Designed with functionality in mind, it boasts a double-edged CYRO S35VN full-tang steel blade, removable G10 handles, and a GRN sheath compatible with SOG's next-generation Universal Mounting System. This knife offers adaptability to meet various mission requirements and has been meticulously designed to exceed expectations. 
 
@@ -146,7 +146,7 @@ When venturing into the great outdoors or preparing for emergency situations, a 
 
 ### Important Features of a Rescue Knife
 
-<div><a href="https://serp.ly/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-2/h=540,fit=pad,background=black" alt="Rescue-Knife-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-2/h=540,fit=pad,background=black" alt="Rescue-Knife-2" height="540"></a></div>
 
 The best rescue knives come equipped with a variety of features designed to provide versatility and functionality. Here are some key features to look for when shopping for a rescue knife: 
 1. Durable Construction - A good rescue knife is made from high-quality materials that can withstand wear, tear and stress during rescue operations. High-quality stainless steel or titanium is a great choice for long-term durability. 
@@ -157,7 +157,7 @@ The best rescue knives come equipped with a variety of features designed to prov
 When purchasing a rescue knife, consider the following factors to ensure it meets your needs and provides the best value for your money: 
 1. Blade Type and Size - The blade type and size should be suitable for the tasks you plan to perform with the knife. Common blade types include clip point, drop point, and spear point. Size varies from 3 to 8 inches, with 4 to 6 inches being a good balance between maneuverability and cutting power. 
 
-<div><a href="https://serp.ly/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-3/h=540,fit=pad,background=black" alt="Rescue-Knife-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-3/h=540,fit=pad,background=black" alt="Rescue-Knife-3" height="540"></a></div>
 
 
 ### General Advice on Using and Maintaining a Rescue Knife
@@ -170,7 +170,7 @@ A rescue knife can be a lifesaver in emergency situations and can provide numero
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-4/h=540,fit=pad,background=black" alt="Rescue-Knife-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-4/h=540,fit=pad,background=black" alt="Rescue-Knife-4" height="540"></a></div>
 
 
 ### What is a Rescue Knife and what are its uses?
@@ -179,7 +179,7 @@ A rescue knife, also known as a search and rescue knife, is a type of multi-purp
 
 Some of the common uses for a rescue knife include cutting through seat belts, ropes, or straps, cutting open an aircraft, breaking a car window to escape during an accident, or even using it to create a signal for help during an emergency. The versatility of these knives makes them valuable tools for anyone venturing into the outdoors or preparing for emergency situations. 
 
-<div><a href="https://serp.ly/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-5/h=540,fit=pad,background=black" alt="Rescue-Knife-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-5/h=540,fit=pad,background=black" alt="Rescue-Knife-5" height="540"></a></div>
 
 
 ### What are the key features of a good Rescue Knife?
@@ -191,7 +191,7 @@ Some additional features that are beneficial in a rescue knife include a serrate
 
 ### What is the difference between a Rescue Knife and a standard pocket knife?
 
-<div><a href="https://serp.ly/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-6/h=540,fit=pad,background=black" alt="Rescue-Knife-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Rescue+Knife"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rescue-Knife-6/h=540,fit=pad,background=black" alt="Rescue-Knife-6" height="540"></a></div>
 
 While both rescue knives and pocket knives serve similar purposes, they have several key differences. Rescue knives are specifically designed for emergency situations and have features that cater to this purpose, such as a belt cutter, window breaker, and sometimes even a signal whistle. Their blades are often larger and more durable, designed for heavy-duty cutting tasks. 
 

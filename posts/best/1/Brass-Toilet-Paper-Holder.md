@@ -14,9 +14,9 @@ In this roundup, we'll be diving into the elegant and timeless world of brass to
 ## Reviews
 
 
-### [Modern Brushed Brass Toilet Paper Holder by Kohler](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=modern-brushed-brass-toilet-paper-holder-by-kohler)
+### [Modern Brushed Brass Toilet Paper Holder by Kohler](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=modern-brushed-brass-toilet-paper-holder-by-kohler)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=modern-brushed-brass-toilet-paper-holder-by-kohler"><img alt="kohler-vibrant-brushed-toilet-paper-holder-moderne-brass-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kohler-vibrant-brushed-toilet-paper-holder-moderne-brass-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=modern-brushed-brass-toilet-paper-holder-by-kohler"><img alt="kohler-vibrant-brushed-toilet-paper-holder-moderne-brass-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kohler-vibrant-brushed-toilet-paper-holder-moderne-brass-each-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kohler Vibrant Brushed Toilet Paper Holder is a stylish and modern addition to any bathroom, featuring a sleek, minimal design that adds a touch of elegance. Its premium metal construction ensures durability and reliability, while the KOHLER finishes resist corrosion and tarnishing. This toilet paper holder is easy to install, with no special tools required, and it comes with installation hardware and a template for added convenience. 
 
@@ -25,9 +25,9 @@ One of the highlights of this product is its coordination with other products in
 However, some users have reported that the set screw that holds the bar to the base can wear out over time, requiring frequent tightening to keep the holder secure. Additionally, the holder's shape means it can only face one way on the wall, which some users find to be a slight inconvenience. Despite these minor drawbacks, the Kohler Vibrant Brushed Toilet Paper Holder is a well-designed and functional addition to any bathroom, sure to impress guests and family members alike. 
 
 
-### [St. Pancras Designer Wall-Mounted Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=st-pancras-designer-wall-mounted-brass-toilet-paper-holder)
+### [St. Pancras Designer Wall-Mounted Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=st-pancras-designer-wall-mounted-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=st-pancras-designer-wall-mounted-brass-toilet-paper-holder"><img alt="signature-hardware-910767-st-pancras-wall-mounted-spring-bar-toilet-paper-holder-brass-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/signature-hardware-910767-st-pancras-wall-mounted-spring-bar-toilet-paper-holder-brass-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=st-pancras-designer-wall-mounted-brass-toilet-paper-holder"><img alt="signature-hardware-910767-st-pancras-wall-mounted-spring-bar-toilet-paper-holder-brass-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/signature-hardware-910767-st-pancras-wall-mounted-spring-bar-toilet-paper-holder-brass-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Signature Hardware 910767 St. Pancras Wall Mounted Spring Bar Toilet Paper Holder - a stunning addition to any bathroom. With its vintage, antique design, this brass toilet paper holder exudes a touch of luxury and adds a unique charm to your space. 
 
@@ -38,9 +38,9 @@ This toilet paper holder might be a bit more heavy-duty than what you’re used 
 Customers repeatedly rave about the unique style of this toilet paper holder, as well as the high-quality finish and craftsmanship. If you're looking for a special touch to complete your bathroom renovation or simply want to spruce up your existing space, this Signature Hardware item is definitely worth considering. 
 
 
-### [Delaney Satin Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=delaney-satin-brass-toilet-paper-holder)
+### [Delaney Satin Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=delaney-satin-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=delaney-satin-brass-toilet-paper-holder"><img alt="delaney-hardware-510100-1100-series-toilet-paper-holders-satin-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/delaney-hardware-510100-1100-series-toilet-paper-holders-satin-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=delaney-satin-brass-toilet-paper-holder"><img alt="delaney-hardware-510100-1100-series-toilet-paper-holders-satin-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/delaney-hardware-510100-1100-series-toilet-paper-holders-satin-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Delaney 1100 Series Toilet Paper Holder a try, and I have to say, the satin brass finish really caught my eye. The concealed screws were a nice touch, giving the holder a sleek and clean look. And with multiple finishes to choose from, I felt like I could truly make a statement in my bathroom. 
 
@@ -49,9 +49,9 @@ However, the installation process was a bit challenging for me, especially since
 Overall, the Delaney 1100 Series Toilet Paper Holder is a well-crafted and modern addition to any bathroom. Its clean lines and available finishes make it a versatile choice for any home. Just be prepared for a bit of a challenge during installation, and you'll be golden. 
 
 
-### [Kilburn Goldenrod Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=kilburn-goldenrod-brass-toilet-paper-holder)
+### [Kilburn Goldenrod Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=kilburn-goldenrod-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=kilburn-goldenrod-brass-toilet-paper-holder"><img alt="kilburn-toilet-paper-holder-goldenrod-brass-signature-hardware-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kilburn-toilet-paper-holder-goldenrod-brass-signature-hardware-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=kilburn-goldenrod-brass-toilet-paper-holder"><img alt="kilburn-toilet-paper-holder-goldenrod-brass-signature-hardware-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kilburn-toilet-paper-holder-goldenrod-brass-signature-hardware-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Kilburn Toilet Paper Holder in Goldenrod, and let me tell you, it was a game-changer for my bathroom! The brass construction added a touch of elegance and sophistication, while the concealed mounting hardware made installation a breeze. 
 
@@ -60,9 +60,9 @@ One of the standout features was the Signature Hardware 953016, which had both f
 I found that the dimensions were perfect for my space, fitting seamlessly into the corner of my bathroom without taking up too much room. Overall, I thoroughly enjoyed using this Toilet Paper Holder, and would definitely recommend it to anyone in search of a sturdy, stylish option for their bathroom! 
 
 
-### [Brushed Gold Circular Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-gold-circular-brass-toilet-paper-holder)
+### [Brushed Gold Circular Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-gold-circular-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-gold-circular-brass-toilet-paper-holder"><img alt="kibi-circular-brass-bathroom-toilet-paper-holder-brushed-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kibi-circular-brass-bathroom-toilet-paper-holder-brushed-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-gold-circular-brass-toilet-paper-holder"><img alt="kibi-circular-brass-bathroom-toilet-paper-holder-brushed-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kibi-circular-brass-bathroom-toilet-paper-holder-brushed-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 You know how most standard brass toilet paper holders can become a bit brassy and dull over time? Well, KIBI's Circular Brass Bathroom Toilet Paper Holder is a game changer. Not only does it possess a premium, polished finish that resists corrosion and rust, but it also boasts a stunning brushed gold color that surpasses the industry's durability standards, as mentioned in the product's reviews. 
 
@@ -75,9 +75,9 @@ Despite its heft, the holder does not overexert your bathroom space. Its dimensi
 The only minor drawback is the occasional color inconsistency, as mentioned by a reviewer. The brushed gold color can sometimes be lighter than anticipated, but considering the overall quality and performance, it is a small price to pay. Overall, KIBI's Circular Brass Bathroom Toilet Paper Holder is a fantastic addition to any bathroom, and I highly recommend it as a versatile, durable, and stylish choice for any household or commercial setting. 
 
 
-### [Ancient Brass Toilet Paper Holder with Jute Rope Collection](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=ancient-brass-toilet-paper-holder-with-jute-rope-collection)
+### [Ancient Brass Toilet Paper Holder with Jute Rope Collection](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=ancient-brass-toilet-paper-holder-with-jute-rope-collection)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=ancient-brass-toilet-paper-holder-with-jute-rope-collection"><img alt="antique-brass-toilet-paper-holder-with-jute-rope-box-of-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antique-brass-toilet-paper-holder-with-jute-rope-box-of-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=ancient-brass-toilet-paper-holder-with-jute-rope-collection"><img alt="antique-brass-toilet-paper-holder-with-jute-rope-box-of-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antique-brass-toilet-paper-holder-with-jute-rope-box-of-3/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out these Antique Brass Toilet Paper Holders with Jute Rope, and let me tell you, they've been a game-changer for my bathroom space! Not only are they functional, keeping my toilet paper organized and within easy reach, but their elegant design adds a touch of sophistication to the room. 
 
@@ -86,18 +86,18 @@ The antique brass plate and jute rope create a unique and stylish look, making t
 However, one thing to note is that since they're handmade, there may be slight variations between each holder. But overall, these are a great addition to any bathroom and I've been really satisfied with their functionality and design! 
 
 
-### [Satin Brass Shangri-La Paper Holder for Bathroom](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=satin-brass-shangri-la-paper-holder-for-bathroom)
+### [Satin Brass Shangri-La Paper Holder for Bathroom](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=satin-brass-shangri-la-paper-holder-for-bathroom)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=satin-brass-shangri-la-paper-holder-for-bathroom"><img alt="paradise-64304-shangri-la-paper-holder-satin-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/paradise-64304-shangri-la-paper-holder-satin-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=satin-brass-shangri-la-paper-holder-for-bathroom"><img alt="paradise-64304-shangri-la-paper-holder-satin-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/paradise-64304-shangri-la-paper-holder-satin-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 The Paradise 64304, Shangri-La Paper Holder, exudes a sleek, contemporary appeal with its satin brass finish. This sophisticated paper holder is designed to blend effortlessly into any modern bathroom theme, promising an air of luxury and elegance. 
 
 The satin brass option adds a touch of sophistication, while the other finishes - satin nickel, polished chrome, and matte black - provide a range of options to suit various bathroom styles. Overall, this paper holder presents a stylish and practical solution for managing toilet paper in a chic, modern way. 
 
 
-### [Leyden Retro Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=leyden-retro-brass-toilet-paper-holder)
+### [Leyden Retro Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=leyden-retro-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=leyden-retro-brass-toilet-paper-holder"><img alt="leyden-retro-bathroom-accessories-solid-brass-antique-brass-finished-toilet-roller-paper-holder-lava-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leyden-retro-bathroom-accessories-solid-brass-antique-brass-finished-toilet-roller-paper-holder-lava-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=leyden-retro-brass-toilet-paper-holder"><img alt="leyden-retro-bathroom-accessories-solid-brass-antique-brass-finished-toilet-roller-paper-holder-lava-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leyden-retro-bathroom-accessories-solid-brass-antique-brass-finished-toilet-roller-paper-holder-lava-1/h=540,fit=pad,background=black"/></a></div>
 
 Leyden Retro Bathroom Accessories brings a touch of elegance to your lavatory with their Solid Brass Antique Brass Finished Toilet Roller Paper Holder. Crafted with premium materials and artisanal workmanship, this toilet paper holder not only adds a decorative touch to your bathroom but also guarantees durability and longevity. Its antique bronze finish creates a gently distressed look, reminiscent of a golden glow with rich light and dark accents. 
 
@@ -106,9 +106,9 @@ This toilet paper holder effortlessly coordinates with other products in the Ley
 With its brass construction and exquisite craftsmanship, every penny spent on this Leyden Retro product is well worth it. Choose from the original brand owner, Leyden Fashion Home Store, for a faucet that guarantees stability for years to come. The Leyden Retro Bathroom Accessories are highly rated by customers as they add both functionality and style to your lavatory. 
 
 
-### [Antique Brass Toilet Paper Holder with Distinct Finish](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=antique-brass-toilet-paper-holder-with-distinct-finish)
+### [Antique Brass Toilet Paper Holder with Distinct Finish](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=antique-brass-toilet-paper-holder-with-distinct-finish)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=antique-brass-toilet-paper-holder-with-distinct-finish"><img alt="antique-brass-toilet-paper-holder-box-of-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antique-brass-toilet-paper-holder-box-of-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=antique-brass-toilet-paper-holder-with-distinct-finish"><img alt="antique-brass-toilet-paper-holder-box-of-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antique-brass-toilet-paper-holder-box-of-3/h=540,fit=pad,background=black"/></a></div>
 
 Experience timeless elegance with the CTW Home Collection's Antique Brass Toilet Paper Holder. With its sleek design, this charming toilet paper holder will elevate your bathroom experience. 
 
@@ -117,9 +117,9 @@ Crafted from sturdy metal, it features an elegantly aged finish in an appealing 
 With dimensions of 6½"W x 2"D x 6"H, the holder can easily accommodate your toilet paper rolls. Just remember to allow a handling time of 4 days when ordering. Though it's a bit smaller than expected, it's absolutely beautiful and sturdy once you figure out the hang of it. 
 
 
-### [Brushed Bronze Antique Toilet Paper Holder - Brass](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-bronze-antique-toilet-paper-holder-brass)
+### [Brushed Bronze Antique Toilet Paper Holder - Brass](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-bronze-antique-toilet-paper-holder-brass)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-bronze-antique-toilet-paper-holder-brass"><img alt="flybath-toilet-paper-holder-without-cover-antique-brass-bathroom-tissue-roll-bar-wall-mounted-20-cm--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flybath-toilet-paper-holder-without-cover-antique-brass-bathroom-tissue-roll-bar-wall-mounted-20-cm--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-bronze-antique-toilet-paper-holder-brass"><img alt="flybath-toilet-paper-holder-without-cover-antique-brass-bathroom-tissue-roll-bar-wall-mounted-20-cm--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/flybath-toilet-paper-holder-without-cover-antique-brass-bathroom-tissue-roll-bar-wall-mounted-20-cm--1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who was in search of a stylish and functional toilet paper holder, I must say the Flybath Antique Brass holder exceeded my expectations. The brushed bronze finish not only adds an elegant touch to my bathroom but is also resistant to corrosion and rust. 
 
@@ -128,18 +128,18 @@ What struck me the most was the sturdiness and versatility of this holder. It fi
 The installation process was breeze, as all the necessary fixtures and fitting were included, making it easy to set up. I'm thoroughly impressed with the quality and durability of this Flybath holder, and I think it's a fantastic addition to any bathroom or bedroom. 
 
 
-### [Brushed Brass Recessed Toilet Paper Holder with Aluminum Insert](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-brass-recessed-toilet-paper-holder-with-aluminum-insert)
+### [Brushed Brass Recessed Toilet Paper Holder with Aluminum Insert](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=brushed-brass-recessed-toilet-paper-holder-with-aluminum-insert)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-brass-recessed-toilet-paper-holder-with-aluminum-insert"><img alt="designers-impressions-brushed-brass-recessed-toilet-tissue-paper-holder-all-metal-construction-mount-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/designers-impressions-brushed-brass-recessed-toilet-tissue-paper-holder-all-metal-construction-mount-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=brushed-brass-recessed-toilet-paper-holder-with-aluminum-insert"><img alt="designers-impressions-brushed-brass-recessed-toilet-tissue-paper-holder-all-metal-construction-mount-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/designers-impressions-brushed-brass-recessed-toilet-tissue-paper-holder-all-metal-construction-mount-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the elegance of brushed brass with this charming, all-metal recessed toilet and tissue paper holder. With a sleek and stylish design, it adds a touch of sophistication to your bathroom, perfect for modern updates. Measuring 6 inches in width and 6 inches in height, it fits seamlessly into your space and requires a 5-inch by 5-inch hole in the wall for installation. 
 
 The metal construction ensures durability, and the aluminum insert adds a hint of extra shine. This versatile holder can be used for both toilet paper and tissues, making it a practical and attractive accessory for your bathroom. While some users may find installation a bit more challenging than expected, overall, the product receives high praise for its elegant design and convenient functionality, making it a great addition to stylish and comfortable bathrooms. 
 
 
-### [Polished Brass Standing Toilet Tissue Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=polished-brass-standing-toilet-tissue-holder)
+### [Polished Brass Standing Toilet Tissue Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=polished-brass-standing-toilet-tissue-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=polished-brass-standing-toilet-tissue-holder"><img alt="gatco-standing-toilet-tissue-holder-polished-brass-1437" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gatco-standing-toilet-tissue-holder-polished-brass-1437/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=polished-brass-standing-toilet-tissue-holder"><img alt="gatco-standing-toilet-tissue-holder-polished-brass-1437" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gatco-standing-toilet-tissue-holder-polished-brass-1437/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon Gatco's Standing Toilet Tissue Holder with Polished Brass finish, and it quickly caught my eye. The elegant design combined with easy installation made it an instant favorite. The removable high-tension spring dowel and circular base with pad added a sturdy, stable quality to this toilet tissue holder. 
 
@@ -150,9 +150,9 @@ However, I did experience a minor issue with the dispenser. The toilet paper wou
 Overall, I would highly recommend this toilet tissue holder to anyone looking for an easy-to-install, sturdy, and stylish option for their bathroom. Just be cautious of the slight issue with the spring tension. 
 
 
-### [Sento Gold Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=sento-gold-brass-toilet-paper-holder)
+### [Sento Gold Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=sento-gold-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=sento-gold-brass-toilet-paper-holder"><img alt="sento-gold-toilet-paper-holder-wall-mount-double-post-tissue-toilet-paper-holder-easy-installation-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sento-gold-toilet-paper-holder-wall-mount-double-post-tissue-toilet-paper-holder-easy-installation-h-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=sento-gold-brass-toilet-paper-holder"><img alt="sento-gold-toilet-paper-holder-wall-mount-double-post-tissue-toilet-paper-holder-easy-installation-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sento-gold-toilet-paper-holder-wall-mount-double-post-tissue-toilet-paper-holder-easy-installation-h-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Sento Gold Toilet Paper Holder, and let me tell you, it's made a significant impact on my daily routine. The heavy-duty metal construction combined with the satin brass finish adds a touch of elegance to my powder room. The installation process was a breeze, and I appreciate the included instruction manual. 
 
@@ -163,18 +163,18 @@ However, there were a couple of cons I encountered. Firstly, I found the toilet 
 Overall, the Sento Gold Toilet Paper Holder Wall Mount is an excellent addition to any home if one is seeking quality, style, and ease of use. Despite the minor drawbacks, the pros far outweigh the cons, making it a worthwhile investment in my book. 
 
 
-### [Elegant Brass Toilet Paper Holder by Elements of Design](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=elegant-brass-toilet-paper-holder-by-elements-of-design)
+### [Elegant Brass Toilet Paper Holder by Elements of Design](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=elegant-brass-toilet-paper-holder-by-elements-of-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=elegant-brass-toilet-paper-holder-by-elements-of-design"><img alt="elements-of-design-eba3968pb-chicago-polished-brass-toilet-paper-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elements-of-design-eba3968pb-chicago-polished-brass-toilet-paper-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=elegant-brass-toilet-paper-holder-by-elements-of-design"><img alt="elements-of-design-eba3968pb-chicago-polished-brass-toilet-paper-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elements-of-design-eba3968pb-chicago-polished-brass-toilet-paper-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine walking into a tastefully designed bathroom, and your eyes are immediately drawn to this Chicago Polished Brass Toilet Paper Holder. Crafted from solid brass, it exudes both durability and reliability that makes it a top choice for your space. The premium color finish ensures that it will resist tarnishing and corrosion, keeping its shine for longer. 
 
 What stood out in my experience was the ease of installation- I managed to do it alone without any hassle. The product is also quite heavy, which speaks volumes about its build quality. It's a perfect blend of style and practicality, fitting perfectly with my existing bathroom decor. The only downside was the price tag, which might be a bit high for some users. However, considering the quality and longevity of this piece, I truly believe it's worth the investment. 
 
 
-### [Kingston Brass Georgian Brushed Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=kingston-brass-georgian-brushed-brass-toilet-paper-holder)
+### [Kingston Brass Georgian Brushed Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=kingston-brass-georgian-brushed-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=kingston-brass-georgian-brushed-brass-toilet-paper-holder"><img alt="kingston-brass-cc2107-georgian-freestanding-toilet-paper-holder-brushed-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingston-brass-cc2107-georgian-freestanding-toilet-paper-holder-brushed-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=kingston-brass-georgian-brushed-brass-toilet-paper-holder"><img alt="kingston-brass-cc2107-georgian-freestanding-toilet-paper-holder-brushed-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingston-brass-cc2107-georgian-freestanding-toilet-paper-holder-brushed-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently installed the Kingston Brass Georgian Freestanding Toilet Paper Holder in my bathroom, and let me tell you, it's a game-changer. The first thing I noticed is how sturdy it is. The weighted base prevents it from tipping over or falling, and it blends effortlessly with my existing brushed gold fixtures and accessories. 
 
@@ -183,9 +183,9 @@ The overall depth and width of the holder are perfect for any standard bathroom,
 However, one thing to note is that it's a bit heavier than I expected. But honestly, that's a minor consideration compared to the product's overall quality and design. The Kingston Brass Georgian Freestanding Toilet Paper Holder is definitely a worthwhile investment for anyone looking to add a touch of timeless style to their bathroom. 
 
 
-### [Empire Industries Solid Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=empire-industries-solid-brass-toilet-paper-holder)
+### [Empire Industries Solid Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=empire-industries-solid-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=empire-industries-solid-brass-toilet-paper-holder"><img alt="empire-industries-bel-air-solid-brass-toilet-paper-holder-other-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/empire-industries-bel-air-solid-brass-toilet-paper-holder-other-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=empire-industries-solid-brass-toilet-paper-holder"><img alt="empire-industries-bel-air-solid-brass-toilet-paper-holder-other-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/empire-industries-bel-air-solid-brass-toilet-paper-holder-other-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Empire Industries Bel-Air solid brass toilet paper holder. At first glance, I was impressed by its sleek and stylish design. Made of durable brass, it gave my bathroom a premium look. 
 
@@ -196,18 +196,18 @@ Additionally, the holder was available in a range of styles to match any bathroo
 However, I did notice that the holder was quite heavy to lift, especially when replacing a toilet paper roll. It might be a bit of a workout for the weaker-armed folks out there. But all in all, the Empire Industries toilet paper holder was a great addition to my bathroom, offering both style and functionality. 
 
 
-### [Contemporary Satin Brass Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=contemporary-satin-brass-toilet-paper-holder)
+### [Contemporary Satin Brass Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=contemporary-satin-brass-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=contemporary-satin-brass-toilet-paper-holder"><img alt="delaney-hardware-510000-1100-series-satin-brass-toilet-paper-holder-satin-brass-toilet-paper-holder--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/delaney-hardware-510000-1100-series-satin-brass-toilet-paper-holder-satin-brass-toilet-paper-holder--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=contemporary-satin-brass-toilet-paper-holder"><img alt="delaney-hardware-510000-1100-series-satin-brass-toilet-paper-holder-satin-brass-toilet-paper-holder--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/delaney-hardware-510000-1100-series-satin-brass-toilet-paper-holder-satin-brass-toilet-paper-holder--1/h=540,fit=pad,background=black"/></a></div>
 
 The Delaney Hardware 1100 Series Satin Brass Toilet Paper Holder adds a contemporary touch to your bathroom decor. I recently installed this sleek, modern piece, and it seamlessly blends with my existing 1100 Series fixtures. The concealed screw design is a practical and neat feature, and the hardware needed for installation is conveniently included. 
 
 However, I did notice the metal finish doesn't quite match the description, as it has a green-gold hue. The toilet paper holder is also somewhat narrower than expected, which may not fit jumbo rolls. Despite these minor drawbacks, overall, the Delaney Hardware 1100 Series Satin Brass Toilet Paper Holder is a stylish and functional addition to any bathroom. 
 
 
-### [HITSLAM Luxury Brushed Brass Gold Toilet Paper Holder](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=hitslam-luxury-brushed-brass-gold-toilet-paper-holder)
+### [HITSLAM Luxury Brushed Brass Gold Toilet Paper Holder](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=hitslam-luxury-brushed-brass-gold-toilet-paper-holder)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=hitslam-luxury-brushed-brass-gold-toilet-paper-holder"><img alt="hitslam-brushed-brass-toilet-paper-holder-wall-mount-premium-304-stainless-steel-toilet-paper-roll-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hitslam-brushed-brass-toilet-paper-holder-wall-mount-premium-304-stainless-steel-toilet-paper-roll-h-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=hitslam-luxury-brushed-brass-gold-toilet-paper-holder"><img alt="hitslam-brushed-brass-toilet-paper-holder-wall-mount-premium-304-stainless-steel-toilet-paper-roll-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hitslam-brushed-brass-toilet-paper-holder-wall-mount-premium-304-stainless-steel-toilet-paper-roll-h-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the HITSLAM Gold Toilet Roll Holder and have to say, I'm impressed. The brushed gold finish adds a touch of elegance, while the square design maximizes space usage. It's durable too, so no worries about it wobbling or dropping off. 
 
@@ -216,9 +216,9 @@ Plus, the eco-friendly paint and 100% rust resistance materials ensure it's buil
 All in all, great value for a bathroom essential! 
 
 
-### [mDesign Elegant Brass Toilet Paper Holder Stand](https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm\_term=mdesign-elegant-brass-toilet-paper-holder-stand)
+### [mDesign Elegant Brass Toilet Paper Holder Stand](https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm\_term=mdesign-elegant-brass-toilet-paper-holder-stand)
 
-<div class="image"><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder?utm_term=mdesign-elegant-brass-toilet-paper-holder-stand"><img alt="mdesign-steel-free-standing-toilet-paper-holder-stand-and-dispenser-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mdesign-steel-free-standing-toilet-paper-holder-stand-and-dispenser-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder?utm_term=mdesign-elegant-brass-toilet-paper-holder-stand"><img alt="mdesign-steel-free-standing-toilet-paper-holder-stand-and-dispenser-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mdesign-steel-free-standing-toilet-paper-holder-stand-and-dispenser-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience hassle-free toilet paper storage and organization with the mDesign Steel Free Standing Toilet Paper Holder Stand and Dispenser in a sleek and modern Brass finish. This practical holder not only fits snugly into your bathroom décor but also offers convenience with its easy-to-use front-loading dispenser. With its sturdy construction and raised feet, it keeps toilet paper rolls off the floor, ensuring cleanliness and dryness. 
 
@@ -234,7 +234,7 @@ When it comes to selecting a brass toilet paper holder, there are various factor
 
 ### Important Features to Look for
 
-<div><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-2/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-2/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-2" height="540"></a></div>
 
 1. Material Quality: Choose a brass toilet paper holder with high-quality materials to ensure durability and a long-lasting product. Look for products with a thick, heavy base, polished surface, and evenly distributed brass alloy for better durability and resistance to tarnishing and oxidation. Brass with a 90% copper content or more is the best choice for a premium product. 
 
@@ -243,7 +243,7 @@ When it comes to selecting a brass toilet paper holder, there are various factor
 
 1. Style: Brass toilet paper holders come in a wide range of styles, including classic, modern, and contemporary designs. Choose a holder that complements your bathroom's overall theme and decor. Look for a holder with intricate patterns, embossed designs, or simple, sleek lines, depending on your preference. 
 
-<div><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-3/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-3/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-3" height="540"></a></div>
 
 
 ### Durability & Maintenance
@@ -253,14 +253,14 @@ When it comes to selecting a brass toilet paper holder, there are various factor
 
 ### Additional Tips & Precautions
 
-<div><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-4/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-4/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-4" height="540"></a></div>
 
 1. Measurement: Before making a purchase, ensure that the brass toilet paper holder fits perfectly at your bathroom. Measure the space between the two adjoining wall surfaces where you plan to place the holder. Double-check the dimensions of the holder you are interested in to ensure it is the right size for your space. 
 
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-5/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-5/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-5" height="540"></a></div>
 
 
 ### Discover the Classic Elegance of a Brass Toilet Paper Holder
@@ -274,7 +274,7 @@ Brass is also a highly durable metal, capable of withstanding constant use and w
 
 ### Exploring the Different Styles of Brass Toilet Paper Holders
 
-<div><a href="https://serp.ly/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-6/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Brass+Toilet+Paper+Holder"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Brass-Toilet-Paper-Holder-6/h=540,fit=pad,background=black" alt="Brass-Toilet-Paper-Holder-6" height="540"></a></div>
 
 Brass toilet paper holders come in a wide range of styles to cater to diverse interior design preferences and bathroom layouts. Some popular styles include traditional, modern, industrial, and vintage. These styles can be further customized with different shapes, finishes, and embellishments like scrollwork or decorative accents.
 

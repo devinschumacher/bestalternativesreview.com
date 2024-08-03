@@ -14,9 +14,9 @@ Unleash the power of Bergamote 22, a versatile and multi-functional product that
 ## Reviews
 
 
-### [Le Labo Bergamote 22 Eau de Parfum (15ml) - Spicy Musk & Amber Fragrance](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-eau-de-parfum-15ml-spicy-musk-amber-fragrance)
+### [Le Labo Bergamote 22 Eau de Parfum (15ml) - Spicy Musk & Amber Fragrance](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-eau-de-parfum-15ml-spicy-musk-amber-fragrance)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-eau-de-parfum-15ml-spicy-musk-amber-fragrance"><img alt="le-labo-eau-de-parfum-bergamote-22-15ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-eau-de-parfum-bergamote-22-15ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-eau-de-parfum-15ml-spicy-musk-amber-fragrance"><img alt="le-labo-eau-de-parfum-bergamote-22-15ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-eau-de-parfum-bergamote-22-15ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Le Labo's Eau de Parfum, Bergamote 22, is a captivating blend that effortlessly balances citrus freshness with a heady mélange of spices, making it the ideal scent for individuals who appreciate intricate yet light aromas. The 15ml flacon, designed with the user in mind, is easy to tote and can be kept on a desk or tucked into a gym bag for quick applications. 
 
@@ -25,9 +25,9 @@ Bergamote 22, aka 'Fire Cologne, ' was initially created by the brand during its
 This parfum is also made with high-quality ingredients and free of harsh chemicals, ensuring that it is environmentally friendly and suitable for all skin types. The 15ml Bergamote 22 flacon is perfect for those who love to layer scents or who appreciate a long-lasting fragrance. The scent is also quite versatile, making it suitable for casual outings as well as formal events, making it a versatile choice. 
 
 
-### [Bergamote 22 Eau de Parfum: A Unique Blend of Floral Notes and Soothing Cedarwood](https://serp.ly/amazon/Bergamote+22?utm\_term=bergamote-22-eau-de-parfum-a-unique-blend-of-floral-notes-and-soothing-cedarwood)
+### [Bergamote 22 Eau de Parfum: A Unique Blend of Floral Notes and Soothing Cedarwood](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=bergamote-22-eau-de-parfum-a-unique-blend-of-floral-notes-and-soothing-cedarwood)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=bergamote-22-eau-de-parfum-a-unique-blend-of-floral-notes-and-soothing-cedarwood"><img alt="le-labo-bergamote-22-eau-de-parfum-100-ml-34-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-100-ml-34-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=bergamote-22-eau-de-parfum-a-unique-blend-of-floral-notes-and-soothing-cedarwood"><img alt="le-labo-bergamote-22-eau-de-parfum-100-ml-34-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-100-ml-34-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Le Labo Bergamote 22, a unique Eau de Parfum that effortlessly blends freshness, sweetness, and sensuality. Crafted with a delightful combination of bergamot, petitgrain, grapefruit, orange blossom, cedarwood, vetiver, and musk, this perfume invigorates your senses and leaves a lasting impression. The Liquid Balm, a travel-friendly rollerball glass vial, allows you to carry this enchanting fragrance wherever you go. 
 
@@ -36,9 +36,9 @@ The Le Labo Bergamote 22 perfume is an all-time favorite among users, who rave a
 While some users appreciate the long-lasting nature of the fragrance, others mention that it doesn't last as long as they hoped. Nevertheless, the aroma lingers enough to make a lasting impression, earning the Le Labo Bergamote 22 Eau de Parfum a high rating and widespread appreciation. 
 
 
-### [Le Labo Bergamote 22 Shower Gel](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-shower-gel)
+### [Le Labo Bergamote 22 Shower Gel](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-shower-gel)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-shower-gel"><img alt="le-labo-bergamote-22-shower-gel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-shower-gel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-shower-gel"><img alt="le-labo-bergamote-22-shower-gel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-shower-gel-1/h=540,fit=pad,background=black"/></a></div>
 
 Le Labo Bergamote 22 Shower Gel is a luxurious product that offers a refreshing fragrance for your shower experience. Infused with nourishing ingredients such as aloe vera and vitamin E, this shower gel cleanses your body and leaves your skin moisturized and soft. Its unique scent, which combines various notes such as petit grain, grapefruit, and amber, creates a balanced and slightly feminine scent. 
 
@@ -47,18 +47,18 @@ Many users have shared their positive experiences with the shower gel, praising 
 Overall, Le Labo Bergamote 22 Shower Gel is a high-quality product that offers a luxurious shower experience. Its unique scent and nourishing ingredients make it a great choice for those looking to pamper themselves and enjoy a fragrant and rejuvenating shower. 
 
 
-### [Le Labo Bergamote 22 Travel Tube Refill Trio](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-travel-tube-refill-trio)
+### [Le Labo Bergamote 22 Travel Tube Refill Trio](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-travel-tube-refill-trio)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-travel-tube-refill-trio"><img alt="le-labo-bergamote-22-eau-de-parfum-travel-tube-refill-trio-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-travel-tube-refill-trio-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-travel-tube-refill-trio"><img alt="le-labo-bergamote-22-eau-de-parfum-travel-tube-refill-trio-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-travel-tube-refill-trio-1/h=540,fit=pad,background=black"/></a></div>
 
 Bring the refreshing scent of Le Labo Bergamote 22 with you on the go, now available in a convenient travel tube refill trio. This 22-ingredient fragrance embodies a blend of freshness, sweetness, and sensuality, with accents of delicate petit grain, bitter grapefruit, and flamboyant amber and musk. 
 
 A perfect addition to your skincare routine, this vegan, cruelty-free, paraben-free, phthalate-free, and 100% recyclable travel tube is truly a game-changer for any fragrance lover. 
 
 
-### [Le Labo Bergamote 22 Sample & Decants - Scents with Rich Aroma](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-sample-decants-scents-with-rich-aroma)
+### [Le Labo Bergamote 22 Sample & Decants - Scents with Rich Aroma](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-sample-decants-scents-with-rich-aroma)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-sample-decants-scents-with-rich-aroma"><img alt="bergamote-22-sample-decants-by-le-labo-scent-split-1ml-sample-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bergamote-22-sample-decants-by-le-labo-scent-split-1ml-sample-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-sample-decants-scents-with-rich-aroma"><img alt="bergamote-22-sample-decants-by-le-labo-scent-split-1ml-sample-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bergamote-22-sample-decants-by-le-labo-scent-split-1ml-sample-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bergamote 22 sample and decants from Le Labo are an exquisite addition to any cologne enthusiast's collection. With a 4.6-star rating from 140 reviews, it's clear that this product has captured the hearts of many. Scent Split, an independent entity, is responsible for rebottling these samples and decants, ensuring their authenticity. 
 
@@ -67,18 +67,18 @@ Many users have praised Bergamote 22 for its fresh, citrusy scent that is perfec
 In conclusion, Bergamote 22 by Le Labo is a delightful and refreshing cologne that has received high praise from its users. Although some may argue that it is expensive, most find it well worth the investment for its unique blend of scents. 
 
 
-### [Simply Bergamot Inspired by Bergamote 60ml / 2 oz Eau de Parfum](https://serp.ly/amazon/Bergamote+22?utm\_term=simply-bergamot-inspired-by-bergamote-60ml-2-oz-eau-de-parfum)
+### [Simply Bergamot Inspired by Bergamote 60ml / 2 oz Eau de Parfum](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=simply-bergamot-inspired-by-bergamote-60ml-2-oz-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=simply-bergamot-inspired-by-bergamote-60ml-2-oz-eau-de-parfum"><img alt="simply-bergamot-inspired-by-bergamote-22-60ml-2-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simply-bergamot-inspired-by-bergamote-22-60ml-2-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=simply-bergamot-inspired-by-bergamote-60ml-2-oz-eau-de-parfum"><img alt="simply-bergamot-inspired-by-bergamote-22-60ml-2-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simply-bergamot-inspired-by-bergamote-22-60ml-2-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Simply Bergamot, inspired by the iconic Bergamote 22, is an absolute delight. From the very first spritz, you're hit with a burst of juicy and slightly bitter lime peel, perfectly balanced by the sweetness of orange blossom. The true magic, however, lies in the sharp note of vetiver that grounds everything and keeps it from becoming too overpowering. As the fragrance dries down, you're left with a smooth, sophisticated scent that's surprisingly versatile. 
 
 One thing to note is the scent doesn't last as long as I’d hoped, requiring a couple of reapplications throughout the day. But given the affordable price point, that's not exactly a dealbreaker. Overall, I'd highly recommend Simply Bergamot to anyone seeking a fresh and clean fragrance with a touch of elegance. You might not get all the way to a full day of wear, but you'll be treated to a delightful scent journey each time you spray it. 
 
 
-### [22 Shades of Bergamot: Citrus Aromatic Parfum Extrait for a Unisex Scent](https://serp.ly/amazon/Bergamote+22?utm\_term=22-shades-of-bergamot-citrus-aromatic-parfum-extrait-for-a-unisex-scent)
+### [22 Shades of Bergamot: Citrus Aromatic Parfum Extrait for a Unisex Scent](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=22-shades-of-bergamot-citrus-aromatic-parfum-extrait-for-a-unisex-scent)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=22-shades-of-bergamot-citrus-aromatic-parfum-extrait-for-a-unisex-scent"><img alt="22-shades-of-bergamot-30ml-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-shades-of-bergamot-30ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=22-shades-of-bergamot-citrus-aromatic-parfum-extrait-for-a-unisex-scent"><img alt="22-shades-of-bergamot-30ml-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-shades-of-bergamot-30ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the 22 Shades of Bergamot 30ml Bottle, a captivating fragrance that effortlessly strikes the perfect balance between power and subtlety. This citrus aromatic scent, inspired by Bergamote 22 by Le Labo, takes your senses on a journey with its effervescent quality that seamlessly complements any outfit, situation, or occasion. 
 
@@ -87,9 +87,9 @@ The 22 Shades of Bergamot boasts a unisex composition, embodying character with 
 Experience the unforgettable charm of this stunning bergamot fragrance, as it brings brightness, allure, and a hint of sensuality to your daily life. The 22 Shades of Bergamot 30ml Bottle is a must-have for anyone seeking a timeless, versatile, and powerful scent. 
 
 
-### [Le Labo Bergamote 22 Body Oil - Invigorating Scents for Men](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-body-oil-invigorating-scents-for-men)
+### [Le Labo Bergamote 22 Body Oil - Invigorating Scents for Men](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-body-oil-invigorating-scents-for-men)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-body-oil-invigorating-scents-for-men"><img alt="le-labo-men-bergamote-22-body-oil-120ml-colorless-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-men-bergamote-22-body-oil-120ml-colorless-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-body-oil-invigorating-scents-for-men"><img alt="le-labo-men-bergamote-22-body-oil-120ml-colorless-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-men-bergamote-22-body-oil-120ml-colorless-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Bergamote 22 Body Oil by Le Labo, a masterpiece crafted for men. This 120ml bottle of colorless liquid boasts a unique blend of sweet amber and musk notes. 
 
@@ -98,9 +98,9 @@ Suitable for all skin types and vegan-friendly, it leaves your skin feeling mois
 Perfect for daily use, its versatility suits any occasion. Experience the perfect balance of scent and skincare with Bergamote 22. 
 
 
-### [Le Labo Bergamote 22 Essential Body Oil](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-essential-body-oil)
+### [Le Labo Bergamote 22 Essential Body Oil](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-essential-body-oil)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-essential-body-oil"><img alt="le-labo-bergamote-22-body-oil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-body-oil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-essential-body-oil"><img alt="le-labo-bergamote-22-body-oil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-body-oil-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I decided to give Le Labo Bergamote 22 Body Oil a try after hearing so many positive reviews. I was curious about this paraben-free, extra-dry oil that supposedly perfumed, softened, and smoothed my skin with its unique 22-ingredient formula. 
 
@@ -109,9 +109,9 @@ Upon opening the bottle, I was immediately greeted by the invigorating scent of 
 Using this body oil felt like a luxurious treat after a long day. I would easily recommend Bergamote 22 to anyone who's looking for a high-quality, long-lasting body oil with a touch of sensuality. Just be prepared to spend a little extra for the premium experience. 
 
 
-### [Luxury Bergamote 22 Body Lotion by LE Labo](https://serp.ly/amazon/Bergamote+22?utm\_term=luxury-bergamote-22-body-lotion-by-le-labo)
+### [Luxury Bergamote 22 Body Lotion by LE Labo](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=luxury-bergamote-22-body-lotion-by-le-labo)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=luxury-bergamote-22-body-lotion-by-le-labo"><img alt="le-labo-bergamote-22-body-lotion-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-body-lotion-237ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=luxury-bergamote-22-body-lotion-by-le-labo"><img alt="le-labo-bergamote-22-body-lotion-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-body-lotion-237ml-1/h=540,fit=pad,background=black"/></a></div>
 
 A few weeks ago, I decided to treat myself to a luxurious hand and body lotion. Out of curiosity, I chose the LE Labo Bergamote 22 Body Lotion, which I had heard great things about. The packaging was sleek and chic, and the fragrance was described as a unique blend of bergamot, amber, and musk, with a fresh, sweet, and sensual scent. 
 
@@ -122,9 +122,9 @@ Another minor drawback was the size of the bottle. It wasn't particularly big, s
 Overall, the LE Labo Bergamote 22 Body Lotion was a nice addition to my fragrance routine. The scent was unique, and it did leave my skin soft and moisturized. If I could go back in time, however, I would have chosen a less expensive and less fragrant option. 
 
 
-### [Le Labo Bergamote 22 Liquid Balm (9ml): A Sophisticated Signature Scent for Your Daily Use](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-liquid-balm-9ml-a-sophisticated-signature-scent-for-your-daily-use)
+### [Le Labo Bergamote 22 Liquid Balm (9ml): A Sophisticated Signature Scent for Your Daily Use](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-liquid-balm-9ml-a-sophisticated-signature-scent-for-your-daily-use)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-liquid-balm-9ml-a-sophisticated-signature-scent-for-your-daily-use"><img alt="le-labo-bergamote-22-liquid-balm-9ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-liquid-balm-9ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-liquid-balm-9ml-a-sophisticated-signature-scent-for-your-daily-use"><img alt="le-labo-bergamote-22-liquid-balm-9ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-liquid-balm-9ml-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're in search of a fresh, flirtatious scent that can keep up with your busy day, Le Labo's Bergamote 22 Liquid Balm (9ml) might just be what you've been craving. This sleek, portable rollerball houses a dreamy cocktail of sophisticated citrus, floral, and woody notes that will leave you enamored. 
 
@@ -137,18 +137,18 @@ As with any scent, personal preference plays a significant role. While some user
 Overall, if you're in the market for a new signature scent, Le Labo's Bergamote 22 Liquid Balm (9ml) is definitely worth considering. Its versatile, alluring fragrance, combined with its convenient design and eco-friendly ethos, make it an irresistible option for those seeking something unique and sophisticated. 
 
 
-### [Le Labo Bergamote 22 Bergamot Infused Conditioner for Sensual Hair Softness](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-bergamot-infused-conditioner-for-sensual-hair-softness)
+### [Le Labo Bergamote 22 Bergamot Infused Conditioner for Sensual Hair Softness](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-bergamot-infused-conditioner-for-sensual-hair-softness)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-bergamot-infused-conditioner-for-sensual-hair-softness"><img alt="le-labo-bergamote-22-perfuming-conditioner-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-perfuming-conditioner-237ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-bergamot-infused-conditioner-for-sensual-hair-softness"><img alt="le-labo-bergamote-22-perfuming-conditioner-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-perfuming-conditioner-237ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I've had the pleasure of trying out Le Labo's Bergamote 22 Perfuming Conditioner, and let me tell you, it's quite the experience. This 237ml bottle packs a punch with its blend of shea butter, sweet almond oil, and aloe, which leaves my hair soft and smooth. The scent, a dazzling bergamot, is both fresh and sweet, with notes of grapefruit, amber, and musk that have a unique personality all their own. 
 
 I've grown to rely on this conditioner in my daily routine, and I'm confident you'll love it too. 
 
 
-### [Sparkling Bergamot Inspired by Bergamote 22 Perfume (55 ml)](https://serp.ly/amazon/Bergamote+22?utm\_term=sparkling-bergamot-inspired-by-bergamote-22-perfume-55-ml)
+### [Sparkling Bergamot Inspired by Bergamote 22 Perfume (55 ml)](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=sparkling-bergamot-inspired-by-bergamote-22-perfume-55-ml)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=sparkling-bergamot-inspired-by-bergamote-22-perfume-55-ml"><img alt="sparkling-bergamot-inspired-by-bergamote-22-55-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sparkling-bergamot-inspired-by-bergamote-22-55-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=sparkling-bergamot-inspired-by-bergamote-22-perfume-55-ml"><img alt="sparkling-bergamot-inspired-by-bergamote-22-55-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sparkling-bergamot-inspired-by-bergamote-22-55-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the pleasure of trying out the Sparkling Bergamot fragrance, inspired by Bergamote 22. This crisp, citrus-infused scent instantly transported me to a sunny summer day. The opening note of bergamot was undeniably appealing, and it was beautifully complemented by the floral notes of grapefruit and petitgrain. 
 
@@ -157,9 +157,9 @@ As the scent settled, I appreciated the warmth from the cedarwood and vetiver, c
 Overall, the Sparkling Bergamot fragrance was a delightful experience. The balance of citrus and floral notes created a unique scent that was both refreshing and comforting. While it may not have been my personal taste, it certainly had a wide appeal and could easily be a favorite for many. 
 
 
-### [Le Labo Bergamote 22 Eau de Parfum - Fresh Citrus Scent](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-eau-de-parfum-fresh-citrus-scent)
+### [Le Labo Bergamote 22 Eau de Parfum - Fresh Citrus Scent](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-eau-de-parfum-fresh-citrus-scent)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-eau-de-parfum-fresh-citrus-scent"><img alt="le-labo-bergamote-22-eau-de-parfum-size-0-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-size-0-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-eau-de-parfum-fresh-citrus-scent"><img alt="le-labo-bergamote-22-eau-de-parfum-size-0-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-eau-de-parfum-size-0-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Bergamote 22 Eau de Parfum is a truly remarkable fragrance that has captured the hearts of many. I first experienced it on a whim, and boy was I hooked! The moment I sprayed it, it enveloped me in a delightful, citrusy aroma that transported me to a tranquil Mediterranean paradise. 
 
@@ -172,18 +172,18 @@ However, there is one downside to this incredible perfume: the price. It is not 
 Overall, I would highly recommend Bergamote 22 to anyone looking for a unique, long-lasting, and exquisite scent. Just be prepared to open your wallet a bit wider! 
 
 
-### [Simply Bergamot EDP by Alt Fragrances](https://serp.ly/amazon/Bergamote+22?utm\_term=simply-bergamot-edp-by-alt-fragrances)
+### [Simply Bergamot EDP by Alt Fragrances](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=simply-bergamot-edp-by-alt-fragrances)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=simply-bergamot-edp-by-alt-fragrances"><img alt="alt-fragrances-simply-bergamot-edp-60ml-inspired-by-bergamote-23" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alt-fragrances-simply-bergamot-edp-60ml-inspired-by-bergamote-23/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=simply-bergamot-edp-by-alt-fragrances"><img alt="alt-fragrances-simply-bergamot-edp-60ml-inspired-by-bergamote-23" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alt-fragrances-simply-bergamot-edp-60ml-inspired-by-bergamote-23/h=540,fit=pad,background=black"/></a></div>
 
 Simply Bergamot, a fragrance inspired by the renowned Bergamote 22, effortlessly captivates with its opening notes. Evoking the zesty aroma of juicy lime peels, the scent also boasts a delicate blend of orange blossom, giving way to a delectable sweetness. It's the vetiver, though, that brings a touch of balance, keeping everything in check. 
 
 The journey doesn't end there, as you'll find the scent mellowing out with time, leaving you with a lingering memory of its allure. This is a must-try for those in love with unique, invigorating fragrances. 
 
 
-### [Le Labo Bergamote 22 Perfuming Shampoo for Fresh, Sweet, and Sensual Hair](https://serp.ly/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-perfuming-shampoo-for-fresh-sweet-and-sensual-hair)
+### [Le Labo Bergamote 22 Perfuming Shampoo for Fresh, Sweet, and Sensual Hair](https://serp.ly/@outrun/amazon/Bergamote+22?utm\_term=le-labo-bergamote-22-perfuming-shampoo-for-fresh-sweet-and-sensual-hair)
 
-<div class="image"><a href="https://serp.ly/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-perfuming-shampoo-for-fresh-sweet-and-sensual-hair"><img alt="le-labo-bergamote-22-perfuming-shampoo-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-perfuming-shampoo-237ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Bergamote+22?utm_term=le-labo-bergamote-22-perfuming-shampoo-for-fresh-sweet-and-sensual-hair"><img alt="le-labo-bergamote-22-perfuming-shampoo-237ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-labo-bergamote-22-perfuming-shampoo-237ml-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Le Labo Bergamote 22 Perfuming Shampoo, and I must say it's been a game-changer for my hair. The moment I opened the bottle, the aroma of bergamot filled the air, making me excited to try it out. The shampoo was easy to lather and massaged my scalp, leaving me with a refreshing, clean feeling. 
 

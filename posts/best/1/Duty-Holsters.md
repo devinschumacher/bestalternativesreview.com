@@ -14,18 +14,18 @@ Looking for the perfect duty holster to keep your firearm secure and easily acce
 ## Reviews
 
 
-### [ComfortTac Belly Band Holster for Concealed Carry - Sized Medium, Right Hand Draw](https://serp.ly/amazon/Duty+Holsters?utm\_term=comforttac-belly-band-holster-for-concealed-carry-sized-medium-right-hand-draw)
+### [ComfortTac Belly Band Holster for Concealed Carry - Sized Medium, Right Hand Draw](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=comforttac-belly-band-holster-for-concealed-carry-sized-medium-right-hand-draw)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=comforttac-belly-band-holster-for-concealed-carry-sized-medium-right-hand-draw"><img alt="comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=comforttac-belly-band-holster-for-concealed-carry-sized-medium-right-hand-draw"><img alt="comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/comforttac-belly-band-holster-right-hand-draw-size-medium-nude-deep-concealment-edition-1/h=540,fit=pad,background=black"/></a></div>
 
 The ComfortTac Belly Band Holster is the perfect solution for those looking for versatility and deep concealment. This holster can securely hold a variety of gun sizes and is comfortable enough to be worn in most positions, making it a great choice for everyday carry. While it's lightweight and easy to use, it offers a comfortable and secure fit, even for heavier individuals. 
 
 However, some users have reported issues with the retention strap and the elastic holster holding up against larger guns, so it may require some adjustments or a reinforcing patch for more secure use. Overall, the ComfortTac Belly Band Holster is a reliable and practical choice for anyone in need of a good-quality holster. 
 
 
-### [Blade-Tech Classic OWB Duty Holster for Browning Hi-Power 9mm](https://serp.ly/amazon/Duty+Holsters?utm\_term=blade-tech-classic-owb-duty-holster-for-browning-hi-power-9mm)
+### [Blade-Tech Classic OWB Duty Holster for Browning Hi-Power 9mm](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=blade-tech-classic-owb-duty-holster-for-browning-hi-power-9mm)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=blade-tech-classic-owb-duty-holster-for-browning-hi-power-9mm"><img alt="browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=blade-tech-classic-owb-duty-holster-for-browning-hi-power-9mm"><img alt="browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-hi-power-9-owb-holster-right-handed-browning-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to the world of precision and performance with Blade-Tech's Classic OWB Holster for your Browning Hi-Power 9mm. Crafted from high-strength Boltaron right here in the United States, this holster guarantees a perfect fit and adjustment for your firearm. Its adjustable retention screws allow you to tailor the holster's grip to your preference, ensuring a secure and snug hold for your firearm, no matter the situation. 
 
@@ -36,9 +36,9 @@ Featuring a positive lock trigger guard, you can trust that your Browning Hi-Pow
 Although some users have encountered problems with the adjustment screws, most find the holster to be of high quality and performance. This holster is a reliable choice for serious marksmen seeking the utmost precision and performance in their shooting. 
 
 
-### [Blade-Tech H&K USP 9/40/45 Duty Holster - Right-Handed](https://serp.ly/amazon/Duty+Holsters?utm\_term=blade-tech-hk-usp-9-40-45-duty-holster-right-handed)
+### [Blade-Tech H&K USP 9/40/45 Duty Holster - Right-Handed](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=blade-tech-hk-usp-9-40-45-duty-holster-right-handed)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=blade-tech-hk-usp-9-40-45-duty-holster-right-handed"><img alt="hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=blade-tech-hk-usp-9-40-45-duty-holster-right-handed"><img alt="hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hk-usp-9-40-45-owb-holster-right-handed-hk-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blade-Tech Classic OWB Holster ensures a perfect fit for the HK USP, giving serious marksmen the precision and performance they need. Crafted with high-strength Boltaron in the U. S. , this holster features adjustable retention screws, allowing you to tailor the fit around your gun to your preference. 
 
@@ -47,9 +47,9 @@ The IDPA and USPSA legal speed cut design and optics compatibility make it an ex
 Although some users have experienced difficulties with adjustment screws and thread locker, many others have praised its quality and retention. 
 
 
-### [DropSlide OWB: Duty Holster for Law Enforcement](https://serp.ly/amazon/Duty+Holsters?utm\_term=dropslide-owb-duty-holster-for-law-enforcement)
+### [DropSlide OWB: Duty Holster for Law Enforcement](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=dropslide-owb-duty-holster-for-law-enforcement)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=dropslide-owb-duty-holster-for-law-enforcement"><img alt="dropslide-owb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dropslide-owb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=dropslide-owb-duty-holster-for-law-enforcement"><img alt="dropslide-owb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dropslide-owb-1/h=540,fit=pad,background=black"/></a></div>
 
 The DropSlide OWB holster has been a staple in my daily life for my Sig P365. After trying the crossbreed holster, I was pleasantly surprised by its overall performance and comfort. The lower position of the firearm allows for easier drawing and concealability, making it suitable for both indoor and outdoor range sessions. 
 
@@ -60,9 +60,9 @@ While many aspects of the DropSlide OWB are impressive, one thing that could be 
 Overall, the DropSlide OWB is a reliable option for those in need of an OWB crossbreed holster that offers both comfort and functionality. By addressing a few minor drawbacks, this holster has the potential to become an even better choice for consumers. 
 
 
-### [Blade-Tech Klipt IWB Sig Sauer P238 Duty Holster, Right-Handed](https://serp.ly/amazon/Duty+Holsters?utm\_term=blade-tech-klipt-iwb-sig-sauer-p238-duty-holster-right-handed)
+### [Blade-Tech Klipt IWB Sig Sauer P238 Duty Holster, Right-Handed](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=blade-tech-klipt-iwb-sig-sauer-p238-duty-holster-right-handed)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=blade-tech-klipt-iwb-sig-sauer-p238-duty-holster-right-handed"><img alt="klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=blade-tech-klipt-iwb-sig-sauer-p238-duty-holster-right-handed"><img alt="klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/klipt-iwb-sig-sauer-p238-holster-right-handed-inside-the-waistband-klipt-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 The Klipt IWB Holster, produced by Blade-Tech, is a high-quality holster designed for everyday carry of concealed firearms. Its slim and discreet design is perfect for everyday use, while the high sweat guard ensures that moisture or slide serrations won't cause discomfort. The holster also features easy on and off belt clips and built-in retention that keeps your firearm securely positioned. Additionally, the positive lock trigger guard provides tactile feedback for added safety. This holster is produced in the USA using a high-strength, heat-resistant polymer, ensuring a superior fit and long-lasting durability. 
 
@@ -71,9 +71,9 @@ This holster has received high ratings and positive reviews from users who appre
 Overall, the Klipt IWB Holster by Blade-Tech offers a minimalistic and efficient option for concealed carry enthusiasts, providing safety, comfort, and reliability in its performance. Its slim design, combined with its affordability and ease of use, make it a popular choice for everyday use. 
 
 
-### [Smith & Wesson M&P 2.0 Duty Holster - Right-Handed](https://serp.ly/amazon/Duty+Holsters?utm\_term=smith-wesson-mp-2-0-duty-holster-right-handed)
+### [Smith & Wesson M&P 2.0 Duty Holster - Right-Handed](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=smith-wesson-mp-2-0-duty-holster-right-handed)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=smith-wesson-mp-2-0-duty-holster-right-handed"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=smith-wesson-mp-2-0-duty-holster-right-handed"><img alt="sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sw-mp-2-0-9-40-4-25-classic-owb-holster-right-handed-smith-wesson-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 S&W - M&P 2.0 is a reliable and robust holster that offers ease of carrying for your firearm. The holster's precise fit and adjustable retention screws allow for customization to your preference, making it a perfect fit for any user. 
 
@@ -82,9 +82,9 @@ Crafted with high-strength Boltaron in the USA, this holster ensures durability 
 The holster's modular mounting holes provide the flexibility to tailor it to your perfect draw and ride. The Blade-Tech Classic OWB Holster offers a secure and versatile solution to your firearm carrying needs. 
 
 
-### [FNH FNX 45 Tactical Right-Handed OWB Holster - Blade-Tech](https://serp.ly/amazon/Duty+Holsters?utm\_term=fnh-fnx-45-tactical-right-handed-owb-holster-blade-tech)
+### [FNH FNX 45 Tactical Right-Handed OWB Holster - Blade-Tech](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=fnh-fnx-45-tactical-right-handed-owb-holster-blade-tech)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=fnh-fnx-45-tactical-right-handed-owb-holster-blade-tech"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=fnh-fnx-45-tactical-right-handed-owb-holster-blade-tech"><img alt="fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fnh-fnx-45-tactical-owb-holster-right-handed-fn-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 The Blade-Tech Classic OWB Holster for the FN FNX-45 Tactical is a reliable and versatile choice for serious shooters seeking precision and durability. Crafted in the USA from high-strength Boltaron material, this holster boasts a durable and secure design with quick and easy access when you need it. Adjustable retention screws ensure a snug fit for your firearm, allowing you to tighten or loosen the holster according to your preference. 
 
@@ -93,9 +93,9 @@ One of the key advantages of this holster is its compatibility with IDPA and USP
 The Blade-Tech Classic OWB Holster is backed by a lifetime guarantee, ensuring that it will be by your side for many years to come. While some users have had issues with the adjustment screws, the overall quality and performance of the holster make it a top choice for serious marksmen seeking ultimate precision and reliability. 
 
 
-### [BLADE-TECH FN-509 / 509 Tactical Classic OWB Holster (Right-Handed)](https://serp.ly/amazon/Duty+Holsters?utm\_term=blade-tech-fn-509-509-tactical-classic-owb-holster-right-handed)
+### [BLADE-TECH FN-509 / 509 Tactical Classic OWB Holster (Right-Handed)](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=blade-tech-fn-509-509-tactical-classic-owb-holster-right-handed)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=blade-tech-fn-509-509-tactical-classic-owb-holster-right-handed"><img alt="fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=blade-tech-fn-509-509-tactical-classic-owb-holster-right-handed"><img alt="fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fn-509-509-tactical-classic-owb-holster-right-handed-fn-blade-tech-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to the world of precision and performance with Blade-Tech's Classic OWB Holster for the FN 509 / 509 Tactical. Crafted in the USA with high-strength Boltaron, this holster is designed to provide an adjustable, perfect fit for your firearm. With adjustable retention screws, you can tighten or loosen the holster around your firearm to your preference, ensuring that it stays securely in place. The modular mounting holes allow for the perfect draw and ride, making it a superior choice for serious marksmen who want the best in durability and reliability. 
 
@@ -106,18 +106,18 @@ The positive lock trigger guard provides tactile feedback, letting you know that
 The Classic OWB Holster for the FN 509 / 509 Tactical is made for serious marksmen who demand the utmost precision and performance. Whether you're a competitive shooter or just looking for the best in durability and reliability, this holster has you covered. Discover the difference that Blade-Tech can make in your shooting experience and join the ranks of satisfied customers who trust this holster for their daily carry needs. 
 
 
-### [Vedder Holsters - Professional Duty Paddle Holster](https://serp.ly/amazon/Duty+Holsters?utm\_term=vedder-holsters-professional-duty-paddle-holster)
+### [Vedder Holsters - Professional Duty Paddle Holster](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=vedder-holsters-professional-duty-paddle-holster)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=vedder-holsters-professional-duty-paddle-holster"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=vedder-holsters-professional-duty-paddle-holster"><img alt="vedder-holsters-prodraw-owb-paddle-holster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vedder-holsters-prodraw-owb-paddle-holster-1/h=540,fit=pad,background=black"/></a></div>
 
 The ProDraw OWB Kydex holster from Vedder Holsters is a top-notch open carry and range option, praised by users for its precision and fit. Each holster is meticulously crafted to match the exact gun model, providing a secure and secure fit. 
 
 The attention to detail is so impressive, you'll even hear a distinctive "click" every time you holster your firearm, giving you peace of mind. 
 
 
-### [Glock 17/22/31/47 - Blade-Tech Signature OWB Holster](https://serp.ly/amazon/Duty+Holsters?utm\_term=glock-17-22-31-47-blade-tech-signature-owb-holster)
+### [Glock 17/22/31/47 - Blade-Tech Signature OWB Holster](https://serp.ly/@outrun/amazon/Duty+Holsters?utm\_term=glock-17-22-31-47-blade-tech-signature-owb-holster)
 
-<div class="image"><a href="https://serp.ly/amazon/Duty+Holsters?utm_term=glock-17-22-31-47-blade-tech-signature-owb-holster"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Duty+Holsters?utm_term=glock-17-22-31-47-blade-tech-signature-owb-holster"><img alt="glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glock-17-22-31-47-owb-holster-usa-made-signature-owb-holster-right-handed-outside-the-waistband-g17--1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of functionality and durability with the Blade-Tech Signature OWB Holster. This outside the waistband holster, handcrafted for the Glock 17/22/31/47, offers an adjustable retention system that provides you with a snug fit around your firearm. A versatile mounting pattern ensures seamless compatibility with numerous attachment options, giving you the freedom to customize your holster according to your specific needs. 
 
@@ -133,7 +133,7 @@ Duty holsters are an essential accessory for both law enforcement personnel and 
 
 When purchasing a duty holster, several critical factors must be taken into account. First and foremost, a reliable retention system is crucial for securing your firearm. Opt for holsters featuring adjustable tension screws and/or passive retention to prevent movement during strenuous activities. Furthermore, a holster design with a fully covering flap or closure system adds an extra layer of protection against environmental elements and unintended exposure.
 
-<div><a href="https://serp.ly/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-2/h=540,fit=pad,background=black" alt="Duty Holsters-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-2/h=540,fit=pad,background=black" alt="Duty Holsters-2" height="540"></a></div>
 
 
 ### Comfort and Fit
@@ -145,7 +145,7 @@ Comfort is a pivotal aspect when wearing a duty holster for extended periods. Lo
 
 Your duty holster should be built to withstand daily wear and tear. Premium leather, Kydex, or ballistic nylon are all viable options, depending on your needs and preferences. Assess the thickness, stitching quality, and overall construction of the holster, as well as the availability of replacement parts or accessories. 
 
-<div><a href="https://serp.ly/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-3/h=540,fit=pad,background=black" alt="Duty Holsters-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-3/h=540,fit=pad,background=black" alt="Duty Holsters-3" height="540"></a></div>
 
 
 ### Considerations and General Guidance
@@ -155,7 +155,7 @@ When selecting a duty holster, consider factors such as the type and size of you
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-4/h=540,fit=pad,background=black" alt="Duty Holsters-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-4/h=540,fit=pad,background=black" alt="Duty Holsters-4" height="540"></a></div>
 
 
 ### What is a duty holster?
@@ -171,7 +171,7 @@ When it comes to materials, durability and durability must be the primary consid
 
 Nylatron and Kydex are synthetic materials that have gained popularity in recent years because of their durability, low-friction finish, and resistance to wear and tear. Nylatron duty holsters offer a good balance between comfort and strength. Kydex holsters are popular choices for their retention capabilities and sleek designs, which can be a selling point for some users. 
 
-<div><a href="https://serp.ly/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-5/h=540,fit=pad,background=black" alt="Duty Holsters-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-5/h=540,fit=pad,background=black" alt="Duty Holsters-5" height="540"></a></div>
 
 
 ### How do I choose the right size for a duty holster?
@@ -187,7 +187,7 @@ Duty holsters come in a variety of styles, with some of the most common being ou
 
 Thigh holsters are designed to be carried on the leg, either at the front or rear of the thigh. They are often popular among those requiring easy access to a firearm but do not want to wear it on their waist. Some have an adjustable strap for a snug fit around the thigh and are secured with straps or snap closures. 
 
-<div><a href="https://serp.ly/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-6/h=540,fit=pad,background=black" alt="Duty Holsters-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Duty+Holsters"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Duty+Holsters-6/h=540,fit=pad,background=black" alt="Duty Holsters-6" height="540"></a></div>
 
 
 ### Can I attach additional gear to my duty holster?

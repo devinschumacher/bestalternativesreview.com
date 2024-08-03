@@ -14,9 +14,9 @@ Immerse yourself in the vibrant world of Kingdom Come Comic, where stunning visu
 ## Reviews
 
 
-### [Absolute Kingdom Come (New Edition) [Hardcover]: A Timeless Superhero Saga](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=absolute-kingdom-come-new-edition-hardcover-a-timeless-superhero-saga)
+### [Absolute Kingdom Come (New Edition) [Hardcover]: A Timeless Superhero Saga](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=absolute-kingdom-come-new-edition-hardcover-a-timeless-superhero-saga)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=absolute-kingdom-come-new-edition-hardcover-a-timeless-superhero-saga"><img alt="absolute-kingdom-come-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/absolute-kingdom-come-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=absolute-kingdom-come-new-edition-hardcover-a-timeless-superhero-saga"><img alt="absolute-kingdom-come-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/absolute-kingdom-come-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently dived into the world of Kingdom Come, the classic graphic novel written by Mark Waid and illustrated by Alex Ross. As a comic enthusiast, I was excited to get my hands on the Absolute Edition of this iconic story. The hardback binding is sturdy, and the high-quality images are beautifully reproduced on the archival paper. 
 
@@ -25,9 +25,9 @@ What really sets this edition apart is the plethora of bonus content. From rare 
 Overall, the Absolute Kingdom Come (New Edition) is a must-have for serious comic book collectors, thanks to its exceptional presentation and additional material. Just make sure to keep an eye out for any unforeseen cancelations when ordering! 
 
 
-### [Kingdom Come: Deliverance Prequel Comic Book](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-deliverance-prequel-comic-book)
+### [Kingdom Come: Deliverance Prequel Comic Book](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-deliverance-prequel-comic-book)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-deliverance-prequel-comic-book"><img alt="kingdom-come-deliverance-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-deliverance-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-deliverance-prequel-comic-book"><img alt="kingdom-come-deliverance-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-deliverance-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Kingdom Come: Deliverance [Book] offers a captivating prequel that sets the stage for the exhilarating video game that sold over 5 million units. This riveting tale of intrigue and betrayal unfolds in a kingdom where chaos reigns, with King Sigismund's half-brother, King Wenceslaus IV, captured by enemy forces. 
 
@@ -36,36 +36,36 @@ As the world turns into a battleground, the book delves into the lives of sinist
 Prepare to be immersed in a gripping adventure that masterfully bridges the gap between the game and its original source material. 
 
 
-### [Kingdom Come Comic Special Issue: Magog 1](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-comic-special-issue-magog-1)
+### [Kingdom Come Comic Special Issue: Magog 1](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-comic-special-issue-magog-1)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-comic-special-issue-magog-1"><img alt="jsa-kingdom-come-special-magog-i-ssue-1-dc-comics-back-issues-reader-comic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jsa-kingdom-come-special-magog-i-ssue-1-dc-comics-back-issues-reader-comic-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-comic-special-issue-magog-1"><img alt="jsa-kingdom-come-special-magog-i-ssue-1-dc-comics-back-issues-reader-comic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jsa-kingdom-come-special-magog-i-ssue-1-dc-comics-back-issues-reader-comic-1/h=540,fit=pad,background=black"/></a></div>
 
 Justice Society of America Kingdom Come Special" is a captivating comic book that dives deep into the universe of DC Comics. The storyline revolves around the character Magog, who finds himself in the midst of an epic superhero adventure. This enthralling comic book is perfect for fans of the modern age, showcasing the best elements of superhero lore. 
 
 As a standalone issue, it provides an immersive experience to its readers. The comic is published by DC Comics, and its release date falls in 2009. Overall, "Kingdom Come Comic" is a must-read for those who love superhero sagas and DC Comics' rich storytelling. 
 
 
-### [Kingdom Come: Volume One [Book] - Adventurous Journey Beyond Belief](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-volume-one-book-adventurous-journey-beyond-belief)
+### [Kingdom Come: Volume One [Book] - Adventurous Journey Beyond Belief](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-volume-one-book-adventurous-journey-beyond-belief)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-volume-one-book-adventurous-journey-beyond-belief"><img alt="kingdom-come-volume-one-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-volume-one-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-volume-one-book-adventurous-journey-beyond-belief"><img alt="kingdom-come-volume-one-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-volume-one-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Embark on an exceptional adventure with Silvanus Scathe, Abel Vykter, Willen Hartt, and Redina Tuserve in the thrilling Kingdom Come, Volume One. This gripping tale of faith and survival takes readers on a journey that pushes the boundaries of belief, as it follows God's people seeking refuge in the City On A Hill. With unforgettable characters and masterfully crafted plot twists, this hardcover volume will keep you turning the pages for more. 
 
 Embrace the suspense and dive into a world that will leave you breathless. 
 
 
-### [Justice Society of America Kingdom Come Part 2 Hardback Comic](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=justice-society-of-america-kingdom-come-part-2-hardback-comic)
+### [Justice Society of America Kingdom Come Part 2 Hardback Comic](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=justice-society-of-america-kingdom-come-part-2-hardback-comic)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=justice-society-of-america-kingdom-come-part-2-hardback-comic"><img alt="justice-society-of-america-thy-kingdom-come-part-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-part-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=justice-society-of-america-kingdom-come-part-2-hardback-comic"><img alt="justice-society-of-america-thy-kingdom-come-part-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-part-3/h=540,fit=pad,background=black"/></a></div>
 
 A few weeks ago, I stumbled upon this used book in near-perfect condition - "Justice Society of America Thy Kingdom Come Part 2. " It's the second part of an epic 160-page comic, packed with full-color illustrations. As I flipped through its dog-eared pages, it was obvious that this book's story revolves around a superhero team that's been revitalized by a new batch of heroes. 
 
 I admired their dedication to preserving the legacy of their predecessors, inspiring others worldwide to join the ranks of the superhuman. It was a nostalgic journey that took me back to a time when comics were full of grandeur and adventure, making it an exciting addition to my personal collection. 
 
 
-### [Justice Society Kingdom Come Part 1 Comic](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=justice-society-kingdom-come-part-1-comic)
+### [Justice Society Kingdom Come Part 1 Comic](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=justice-society-kingdom-come-part-1-comic)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=justice-society-kingdom-come-part-1-comic"><img alt="justice-society-of-america-thy-kingdom-come-part-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-part-2/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=justice-society-kingdom-come-part-1-comic"><img alt="justice-society-of-america-thy-kingdom-come-part-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-part-2/h=540,fit=pad,background=black"/></a></div>
 
 Thy Kingdom Come" brings the Justice Society of America together in a new, exciting journey. Debuting in a paperback format, this 2009 addition to the superhero series is still in great condition, with a fresh library cover. 
 
@@ -74,9 +74,9 @@ The story sees Nathan Heywood, a descendant of Commander Steel, becoming a super
 Adding to the excitement, the secrets of 52 are unveiled to the Society. A must-read for fans of the Justice Society and those who enjoy a thrilling superhero saga. 
 
 
-### [Mark Waid's Kingdom Come: Superheroes Unveiled](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=mark-waids-kingdom-come-superheroes-unveiled)
+### [Mark Waid's Kingdom Come: Superheroes Unveiled](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=mark-waids-kingdom-come-superheroes-unveiled)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=mark-waids-kingdom-come-superheroes-unveiled"><img alt="kingdom-come-mark-waid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-mark-waid-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=mark-waids-kingdom-come-superheroes-unveiled"><img alt="kingdom-come-mark-waid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-mark-waid-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine diving into a graphic novel that makes you question everything you know about heroes and villains. That's where "Kingdom Come" comes in. Set in a future where Batman has retired, Superman is exiled, and the Justice League is missing in action, this DC Comics masterpiece tells the story of a world spinning out of control. 
 
@@ -85,18 +85,18 @@ What stood out to me in my experience with "Kingdom Come" was how the new genera
 However, this masterpiece isn't without its challenges. Some may find the themes a bit dark and intense, so it might not be suitable for casual readers. But if you're a fan of DC Comics, "Kingdom Come" is a must-read. It's a thrilling, emotional ride that perfectly captures the essence of what it means to be a hero. 
 
 
-### [Kingdom Come: Graphic Novel Masterpiece](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-graphic-novel-masterpiece)
+### [Kingdom Come: Graphic Novel Masterpiece](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-graphic-novel-masterpiece)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-graphic-novel-masterpiece"><img alt="kingdom-come-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=kingdom-come-graphic-novel-masterpiece"><img alt="kingdom-come-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Kingdom Come, " a graphic novel from acclaimed writer Mark Waid and superstar painter Alex Ross, is considered a classic in the DC Universe. Set in a not-so-distant future where the moral compass of the justice-seeking superheroes is questionable, Waid weaves a tale that delves into the battle between the old and the new guard. 
 
 The story is filled with iconic DC characters, from Batman and Superman to Wonder Woman, and the captivating illustrations by Ross elevate the graphic novel's experience. With its five Eisner and Harvey Awards, "Kingdom Come" is a must-read for any comic enthusiast. 
 
 
-### [Justice Society of America: Thy Kingdom Come - A Kingdom Come Comic](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=justice-society-of-america-thy-kingdom-come-a-kingdom-come-comic)
+### [Justice Society of America: Thy Kingdom Come - A Kingdom Come Comic](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=justice-society-of-america-thy-kingdom-come-a-kingdom-come-comic)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=justice-society-of-america-thy-kingdom-come-a-kingdom-come-comic"><img alt="justice-society-of-america-thy-kingdom-come-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=justice-society-of-america-thy-kingdom-come-a-kingdom-come-comic"><img alt="justice-society-of-america-thy-kingdom-come-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-society-of-america-thy-kingdom-come-1/h=540,fit=pad,background=black"/></a></div>
 
 As a devoted comic book enthusiast, I was excited to get my hands on "Justice Society of America: Thy Kingdom Come. " This hardback edition, published in 2009, offers a thrilling journey with the world's first superheroes, as they inspire and recruit the next generation of heroes. It's a treat to see the heroes of Kingdom Come come together in this captivating plot. 
 
@@ -105,18 +105,18 @@ The story takes an interesting twist when an alternate-Earth Superman leads the 
 While I appreciate the well-crafted story, I noticed some minor cons, such as the pacing of certain scenes. Despite this, the overall experience was enjoyable, and I'm excited to see how the series unfolds. I would highly recommend "Justice Society of America: Thy Kingdom Come" to any comic book lover who's looking for a fresh and exciting adventure. 
 
 
-### [Mark Waid and Alex Ross's "Kingdom Come" Comic](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=mark-waid-and-alex-rosss-kingdom-come-comic)
+### [Mark Waid and Alex Ross's "Kingdom Come" Comic](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=mark-waid-and-alex-rosss-kingdom-come-comic)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=mark-waid-and-alex-rosss-kingdom-come-comic"><img alt="kingdom-come-by-mark-waid-alex-ross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-by-mark-waid-alex-ross-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=mark-waid-and-alex-rosss-kingdom-come-comic"><img alt="kingdom-come-by-mark-waid-alex-ross-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kingdom-come-by-mark-waid-alex-ross-1/h=540,fit=pad,background=black"/></a></div>
 
 Kingdom Come" is a thrilling comic book set in an unpredictable world at the brink of the 21st century where tradition and change collide. This captivating story features a heroic battle between seasoned superheroes, like Superman, Batman, and Wonder Woman, and a new generation that challenges their beliefs. The narrative masterfully explores the complexities of youth versus experience and what truly defines a hero in the face of adversity. 
 
 With stunning illustrations by Alex Ross, this graphic novel becomes a visual treat and keeps the reader hooked, turning pages eagerly for more. 
 
 
-### [DC Comics Kingdom Come: Revitalizing Superheroes (1996)](https://serp.ly/amazon/Kingdom+Come+Comic?utm\_term=dc-comics-kingdom-come-revitalizing-superheroes-1996)
+### [DC Comics Kingdom Come: Revitalizing Superheroes (1996)](https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm\_term=dc-comics-kingdom-come-revitalizing-superheroes-1996)
 
-<div class="image"><a href="https://serp.ly/amazon/Kingdom+Come+Comic?utm_term=dc-comics-kingdom-come-revitalizing-superheroes-1996"><img alt="1996-dc-comics-kingdom-come-1-kingdom-come-1996-series-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1996-dc-comics-kingdom-come-1-kingdom-come-1996-series-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kingdom+Come+Comic?utm_term=dc-comics-kingdom-come-revitalizing-superheroes-1996"><img alt="1996-dc-comics-kingdom-come-1-kingdom-come-1996-series-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/1996-dc-comics-kingdom-come-1-kingdom-come-1996-series-1/h=540,fit=pad,background=black"/></a></div>
 
 As a comic book admirer, I couldn't resist diving into the pages of Kingdom Come Series from 1996. The storyline, penned by acclaimed writer Mark Waid, had my attention from the get-go. 
 

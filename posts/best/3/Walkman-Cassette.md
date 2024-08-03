@@ -14,18 +14,18 @@ Get ready to relive the magic of the 80s and 90s with our roundup of the best Wa
 ## Reviews
 
 
-### [Portable Cassette Walkman with 3.5mm Jack](https://serp.ly/amazon/Walkman+Cassette?utm\_term=portable-cassette-walkman-with-3-5mm-jack)
+### [Portable Cassette Walkman with 3.5mm Jack](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=portable-cassette-walkman-with-3-5mm-jack)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=portable-cassette-walkman-with-3-5mm-jack"><img alt="byron-statics-cassette-player-fm-am-radio-walkman-portable-cassette-converter-automatic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/byron-statics-cassette-player-fm-am-radio-walkman-portable-cassette-converter-automatic-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=portable-cassette-walkman-with-3-5mm-jack"><img alt="byron-statics-cassette-player-fm-am-radio-walkman-portable-cassette-converter-automatic-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/byron-statics-cassette-player-fm-am-radio-walkman-portable-cassette-converter-automatic-1/h=540,fit=pad,background=black"/></a></div>
 
 Relive the nostalgia of your favorite tunes with this compact and portable KCS-315 Cassette Players Converter. Its lightweight design and easy-to-use buttons make it a convenient choice for wherever the music takes you, and the included 3.5mm jack lets you connect your earphones for hands-free listening. Whether you're in the classroom, car, or backyard, this Walkman Cassette Player brings the soundtrack of your past to life. 
 
 With a long-lasting battery life of either AA or USB power, you'll be ready to rock and reminisce whenever you want. 
 
 
-### [Vintage Walkman Cassette Player with Built-in Microphone and Speaker](https://serp.ly/amazon/Walkman+Cassette?utm\_term=vintage-walkman-cassette-player-with-built-in-microphone-and-speaker)
+### [Vintage Walkman Cassette Player with Built-in Microphone and Speaker](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=vintage-walkman-cassette-player-with-built-in-microphone-and-speaker)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=vintage-walkman-cassette-player-with-built-in-microphone-and-speaker"><img alt="walkman-cassette-player-portable-cassette-players-recorders-am-fm-radio-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walkman-cassette-player-portable-cassette-players-recorders-am-fm-radio-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=vintage-walkman-cassette-player-with-built-in-microphone-and-speaker"><img alt="walkman-cassette-player-portable-cassette-players-recorders-am-fm-radio-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walkman-cassette-player-portable-cassette-players-recorders-am-fm-radio-1/h=540,fit=pad,background=black"/></a></div>
 
 As a vintage walkman enthusiast, I recently discovered this convenient and lightweight portable cassette radio player. It's a pocket-sized gem that combines a cassette tape player with an AM/FM radio, making it a versatile option for music lovers. 
 
@@ -38,9 +38,9 @@ The included earphones make it a breeze to listen to your favorite tunes and the
 However, one could wish for a mini USB cable to be included in the package. Despite this minor inconvenience, the overall audio quality is impressive without any static or cut off sounds. For vintage walkman lovers, this cassette player would be a perfect addition to their collection of old-school music devices. 
 
 
-### [Retro Portable Walkman Cassette Player with AM/FM Radio](https://serp.ly/amazon/Walkman+Cassette?utm\_term=retro-portable-walkman-cassette-player-with-am-fm-radio)
+### [Retro Portable Walkman Cassette Player with AM/FM Radio](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=retro-portable-walkman-cassette-player-with-am-fm-radio)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=retro-portable-walkman-cassette-player-with-am-fm-radio"><img alt="portable-walkman-cassette-player-tape-recorder-am-fm-radio-with-headphone-jack-speaker-retro-audio-v-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/portable-walkman-cassette-player-tape-recorder-am-fm-radio-with-headphone-jack-speaker-retro-audio-v-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=retro-portable-walkman-cassette-player-with-am-fm-radio"><img alt="portable-walkman-cassette-player-tape-recorder-am-fm-radio-with-headphone-jack-speaker-retro-audio-v-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/portable-walkman-cassette-player-tape-recorder-am-fm-radio-with-headphone-jack-speaker-retro-audio-v-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few weeks, I've been using this Portable Walkman Cassette Player Tape Recorder and I must say it's been a delightful journey. I was intrigued by its retro style which reminded me of the good old days. The best part was that it could play tapes, record them, and even have AM/FM radio stations. It truly takes you back in time, making it a perfect companion for tape collectors. 
 
@@ -49,9 +49,9 @@ The sound quality of this device is another plus. It has built-in speakers with 
 The compact design with a detachable belt clip definitely adds to its portability. The device can operate on both AA batteries or DC 3V power adapter, making it suitable for different scenarios. However, the size might be a bit small for some, but overall, it's a great choice for those who cherish the nostalgic vibes of old-school music players. 
 
 
-### [Sony Walkman Cassette Digital AM/FM Stereo Player with MegaBass](https://serp.ly/amazon/Walkman+Cassette?utm\_term=sony-walkman-cassette-digital-am-fm-stereo-player-with-megabass)
+### [Sony Walkman Cassette Digital AM/FM Stereo Player with MegaBass](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=sony-walkman-cassette-digital-am-fm-stereo-player-with-megabass)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=sony-walkman-cassette-digital-am-fm-stereo-player-with-megabass"><img alt="sony-wmfx277-digital-am-fm-stereo-cassette-walkman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-wmfx277-digital-am-fm-stereo-cassette-walkman-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=sony-walkman-cassette-digital-am-fm-stereo-player-with-megabass"><img alt="sony-wmfx277-digital-am-fm-stereo-cassette-walkman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-wmfx277-digital-am-fm-stereo-cassette-walkman-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sony WMFX277 digital AM/FM stereo cassette walkman is a blast from the past, yet still relevant in today's world. It's compact and portable, with its anti-roll mechanism ensuring that your music keeps playing even on bumpy terrains. Its AM/FM stereo tuner is digitally synthesized, giving you drift-free reception. MegaBass technology adds an extra layer of depth to the audio, making your listening experience all the more enjoyable. The walkman even comes with an audio TV tuner, handy for catching up on your favorite shows during your commute or a workout session. 
 
@@ -64,9 +64,9 @@ In terms of audio quality, the WMFX277 is impressive for a cassette player. Its 
 Overall, the Sony WMFX277 digital AM/FM stereo cassette walkman is a great choice for those who want a bit of nostalgia in their daily life. With its solid build quality, decent battery life, and impressive audio performance, it's hard to find fault with this old-school device. 
 
 
-### [Sony Walkman AM/FM Cassette Tape Player - New and Improved](https://serp.ly/amazon/Walkman+Cassette?utm\_term=sony-walkman-am-fm-cassette-tape-player-new-and-improved)
+### [Sony Walkman AM/FM Cassette Tape Player - New and Improved](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=sony-walkman-am-fm-cassette-tape-player-new-and-improved)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=sony-walkman-am-fm-cassette-tape-player-new-and-improved"><img alt="sony-walkman-wm-fx101-am-fm-radio-cassette-tape-player-new-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-wm-fx101-am-fm-radio-cassette-tape-player-new-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=sony-walkman-am-fm-cassette-tape-player-new-and-improved"><img alt="sony-walkman-wm-fx101-am-fm-radio-cassette-tape-player-new-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-wm-fx101-am-fm-radio-cassette-tape-player-new-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine walking down memory lane with a classic piece of technology - the Sony Walkman Wm-fx101 AM/FM Radio Cassette Tape Player. This portable cassette player strikes a perfect balance between nostalgia and convenience. With a sleek design that stands about 11cm tall, the Walkman Wm-fx101 is a familiar sight for many. 
 
@@ -77,18 +77,18 @@ The Sony Walkman Wm-fx101 offers a sense of reliability and quality that Sony is
 While some may find the cassette player a bit outdated compared to modern smartphones and wireless speakers, the Sony Walkman Wm-fx101 continues to hold its ground as a reliable and enjoyable choice for those who appreciate the charm and simplicity of a well-crafted, classic technology. 
 
 
-### [Sony AM/FM Walkman Cassette Player](https://serp.ly/amazon/Walkman+Cassette?utm\_term=sony-am-fm-walkman-cassette-player)
+### [Sony AM/FM Walkman Cassette Player](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=sony-am-fm-walkman-cassette-player)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=sony-am-fm-walkman-cassette-player"><img alt="sony-stereo-cassette-player-am-fm-walkman-wm-fx251-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-stereo-cassette-player-am-fm-walkman-wm-fx251-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=sony-am-fm-walkman-cassette-player"><img alt="sony-stereo-cassette-player-am-fm-walkman-wm-fx251-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-stereo-cassette-player-am-fm-walkman-wm-fx251-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sony Walkman WM-FX251 is a classic compact cassette player with AM/FM radio capabilities. Its sleek design and portable size have made it a favorite among music lovers for decades. The player features easy-to-use buttons and a clear display for seamless operation. One of the highlights of this device is its ability to switch between different radio stations with ease, providing you with an endless variety of music options. 
 
 However, there are a few drawbacks to this product. The need for 2 AA batteries to operate the device can be inconvenient for some users. Additionally, the Walkman's tape player may require some adjustments to ensure optimal performance. Despite these downsides, the Sony WM-FX251 remains a reliable and nostalgic choice for those who appreciate the rich sound quality of vintage cassette players. 
 
 
-### [Bluetooth Walkman Cassette Player with 3.5mm Jack and Auto-Reverse Function](https://serp.ly/amazon/Walkman+Cassette?utm\_term=bluetooth-walkman-cassette-player-with-3-5mm-jack-and-auto-reverse-function)
+### [Bluetooth Walkman Cassette Player with 3.5mm Jack and Auto-Reverse Function](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=bluetooth-walkman-cassette-player-with-3-5mm-jack-and-auto-reverse-function)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=bluetooth-walkman-cassette-player-with-3-5mm-jack-and-auto-reverse-function"><img alt="bluetooth-walkman-cassette-player-bluetooth-transfer-personal-cassette-with-3-5mm-earphones-jack-siz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bluetooth-walkman-cassette-player-bluetooth-transfer-personal-cassette-with-3-5mm-earphones-jack-siz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=bluetooth-walkman-cassette-player-with-3-5mm-jack-and-auto-reverse-function"><img alt="bluetooth-walkman-cassette-player-bluetooth-transfer-personal-cassette-with-3-5mm-earphones-jack-siz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bluetooth-walkman-cassette-player-bluetooth-transfer-personal-cassette-with-3-5mm-earphones-jack-siz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the nostalgia of cassette tapes with this modern twist, the Bluetooth Walkman Cassette Player. Unlike the old Walkman tapes, this device comes equipped with Bluetooth technology, giving you the option to transmit your music to other compatible devices. And if you're in the mood for some private listening, simply connect your headphones via the 3.5mm earphone jack and enjoy high-quality audio. 
 
@@ -97,18 +97,18 @@ This portable and lightweight player provides versatility on-the-go. Play your m
 Some users may experience slight disappointment with the device's Bluetooth connectivity or build quality, so be sure to weigh these factors before making your purchase. Overall, the Bluetooth Walkman Cassette Player offers a unique blend of retro vibes and modern features, making it a great option for those looking to relive the good old days of cassette tapes. 
 
 
-### [We Are Rewind - Retro Style Portable Cassette Player](https://serp.ly/amazon/Walkman+Cassette?utm\_term=we-are-rewind-retro-style-portable-cassette-player)
+### [We Are Rewind - Retro Style Portable Cassette Player](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=we-are-rewind-retro-style-portable-cassette-player)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=we-are-rewind-retro-style-portable-cassette-player"><img alt="we-are-rewind-portable-cassette-player-keith-grey-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-are-rewind-portable-cassette-player-keith-grey-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=we-are-rewind-retro-style-portable-cassette-player"><img alt="we-are-rewind-portable-cassette-player-keith-grey-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/we-are-rewind-portable-cassette-player-keith-grey-1/h=540,fit=pad,background=black"/></a></div>
 
 For those yearning to relive the golden era of analog music, the We Are Rewind Portable Cassette Player is a modern classic, merging old-school charm with cutting-edge technology. This sleek device offers smooth sound, easy control, and a recording feature, all wrapped up in a premium aluminium casing available in three stylish colours. The built-in rechargeable battery, Bluetooth 5.1 connectivity, and high-quality audio make it an excellent choice for cassette enthusiasts and first-time users alike. 
 
 Get ready to rewind and recapture the magic of cassette playback. 
 
 
-### [Sony Portable Cassette Walkman with Mega Bass and Anti-Roll Mechanism](https://serp.ly/amazon/Walkman+Cassette?utm\_term=sony-portable-cassette-walkman-with-mega-bass-and-anti-roll-mechanism)
+### [Sony Portable Cassette Walkman with Mega Bass and Anti-Roll Mechanism](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=sony-portable-cassette-walkman-with-mega-bass-and-anti-roll-mechanism)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=sony-portable-cassette-walkman-with-mega-bass-and-anti-roll-mechanism"><img alt="sony-walkman-portable-stereo-radio-cassette-player-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-portable-stereo-radio-cassette-player-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=sony-portable-cassette-walkman-with-mega-bass-and-anti-roll-mechanism"><img alt="sony-walkman-portable-stereo-radio-cassette-player-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-portable-stereo-radio-cassette-player-1/h=540,fit=pad,background=black"/></a></div>
 
 Sony's sleek Walkman WM-FX195 cassette player is a perfect companion for music lovers on the go. The portable stereo radio cassette player comes packed with features like AM/FM stereo tuner with a large tuning scale for precise frequency centering, wideband AM radio reception, and anti-rolling mechanism for smooth tape playback. 
 
@@ -121,9 +121,9 @@ With over-ear headphones included, this Walkman provides clear sound and a wide 
 The package contains the cassette player, headphones, belt clip, and a user's manual. Despite its 90's roots, the Sony Walkman WM-FX195 continues to deliver solid performance and value-for-money, making it a worthwhile investment for those who appreciate the warm nostalgia of cassette tapes. 
 
 
-### [Portable Sony Walkman Cassette Radio with TV Audio Tuner](https://serp.ly/amazon/Walkman+Cassette?utm\_term=portable-sony-walkman-cassette-radio-with-tv-audio-tuner)
+### [Portable Sony Walkman Cassette Radio with TV Audio Tuner](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=portable-sony-walkman-cassette-radio-with-tv-audio-tuner)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=portable-sony-walkman-cassette-radio-with-tv-audio-tuner"><img alt="sony-walkman-stereo-radio-cassette-player-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-stereo-radio-cassette-player-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=portable-sony-walkman-cassette-radio-with-tv-audio-tuner"><img alt="sony-walkman-stereo-radio-cassette-player-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-walkman-stereo-radio-cassette-player-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sony Walkman Stereo Radio Cassette Player is a small, lightweight, and convenient audio device that provides a wide range of functionalities for music and radio lovers. The product is portable and compact, making it perfect for on-the-go use. It features a digital synthesized FM / AM tuner, which allows users to enjoy accurate and drift-free tuning of AM and FM stereo radio stations. 
 
@@ -138,9 +138,9 @@ The Walkman has an excellent battery life and an automatic volume limiter system
 However, one major con of this device is its lack of support for automatic-reverse playback, which many users prefer. Additionally, the door flap could be better secured to prevent it from becoming dislodged. Despite these minor drawbacks, the Sony Walkman Stereo Radio Cassette Player is an excellent choice for those who want a portable and powerful audio device. 
 
 
-### [Portable AM/FM Cassette Walkman by Sony](https://serp.ly/amazon/Walkman+Cassette?utm\_term=portable-am-fm-cassette-walkman-by-sony)
+### [Portable AM/FM Cassette Walkman by Sony](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=portable-am-fm-cassette-walkman-by-sony)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=portable-am-fm-cassette-walkman-by-sony"><img alt="sony-wm-fx290w-cassette-player-am-fm-weather-radio-portable-walkman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-wm-fx290w-cassette-player-am-fm-weather-radio-portable-walkman-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=portable-am-fm-cassette-walkman-by-sony"><img alt="sony-wm-fx290w-cassette-player-am-fm-weather-radio-portable-walkman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sony-wm-fx290w-cassette-player-am-fm-weather-radio-portable-walkman-1/h=540,fit=pad,background=black"/></a></div>
 
 Using this portable Walkman, cassette player, and weather radio has been a delightful experience. The slim and lightweight design makes it perfect for fitting in my pocket or carrying around inconspicuously. One of the notable features that impressed me is the Mega Bass Sound System, which adds a boost to the overall audio quality. The digital LCD display is easy to read and provides useful information such as battery level and tuner frequency. 
 
@@ -149,9 +149,9 @@ However, there were a few drawbacks I encountered. I found that the FM stereo/mo
 But, overall, this portable Walkman has been a great addition to my daily life, providing me with entertainment and useful information through its radio and weather alerts. 
 
 
-### [Tomashi Portable Cassette Player Walkman with Built-In Speaker and Microphone](https://serp.ly/amazon/Walkman+Cassette?utm\_term=tomashi-portable-cassette-player-walkman-with-built-in-speaker-and-microphone)
+### [Tomashi Portable Cassette Player Walkman with Built-In Speaker and Microphone](https://serp.ly/@outrun/amazon/Walkman+Cassette?utm\_term=tomashi-portable-cassette-player-walkman-with-built-in-speaker-and-microphone)
 
-<div class="image"><a href="https://serp.ly/amazon/Walkman+Cassette?utm_term=tomashi-portable-cassette-player-walkman-with-built-in-speaker-and-microphone"><img alt="tomashi-portable-cassette-player-tape-recorder-walkman-with-built-in-speakermicrophoneheadphone-jack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tomashi-portable-cassette-player-tape-recorder-walkman-with-built-in-speakermicrophoneheadphone-jack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Walkman+Cassette?utm_term=tomashi-portable-cassette-player-walkman-with-built-in-speaker-and-microphone"><img alt="tomashi-portable-cassette-player-tape-recorder-walkman-with-built-in-speakermicrophoneheadphone-jack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tomashi-portable-cassette-player-tape-recorder-walkman-with-built-in-speakermicrophoneheadphone-jack-1/h=540,fit=pad,background=black"/></a></div>
 
 The Tomashi Portable Cassette Player Tape Recorder, affectionately known as the Walkman with built-in speaker, microphone, and headphone jack, is simply a delight. Standing at 4.57 inches tall and 1.38 inches wide, this compact device is easy to handle and perfect for quick storage. Its user-friendly interface allows you to rewind, fast forward, stop, and record with the press of a button. But, wait, there's more! 
 

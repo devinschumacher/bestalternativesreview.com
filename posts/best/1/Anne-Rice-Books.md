@@ -14,9 +14,9 @@ Embark on a literary journey with us as we delve into the world of Anne Rice, a 
 ## Reviews
 
 
-### [The Vampire Lestat by Anne Rice (Inscribed, Hardcover)](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=the-vampire-lestat-by-anne-rice-inscribed-hardcover)
+### [The Vampire Lestat by Anne Rice (Inscribed, Hardcover)](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=the-vampire-lestat-by-anne-rice-inscribed-hardcover)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=the-vampire-lestat-by-anne-rice-inscribed-hardcover"><img alt="the-vampire-lestat-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-vampire-lestat-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=the-vampire-lestat-by-anne-rice-inscribed-hardcover"><img alt="the-vampire-lestat-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-vampire-lestat-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 The Vampire Lestat by Anne Rice is a gripping tale that invites readers to immerse themselves in the world of the undead. Receiving praise from critics for its attention to detail and rich narrative, the book presents a comprehensive history of vampires and showcases the captivating character of Lestat, a vampire unlike any other. 
 
@@ -25,18 +25,18 @@ With a fifth printing released in January 1986, the book offers 481 pages of fas
 Overall, this edition of The Vampire Lestat presents the perfect opportunity for fans of the genre to get lost in a world of eternal fascination. 
 
 
-### [Of Love and Evil: The Songs of The Seraphim - Anne Rice - A New Book Collection](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=of-love-and-evil-the-songs-of-the-seraphim-anne-rice-a-new-book-collection)
+### [Of Love and Evil: The Songs of The Seraphim - Anne Rice - A New Book Collection](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=of-love-and-evil-the-songs-of-the-seraphim-anne-rice-a-new-book-collection)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=of-love-and-evil-the-songs-of-the-seraphim-anne-rice-a-new-book-collection"><img alt="of-love-and-evil-the-songs-of-the-seraphim-by-rice-anne-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/of-love-and-evil-the-songs-of-the-seraphim-by-rice-anne-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=of-love-and-evil-the-songs-of-the-seraphim-anne-rice-a-new-book-collection"><img alt="of-love-and-evil-the-songs-of-the-seraphim-by-rice-anne-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/of-love-and-evil-the-songs-of-the-seraphim-by-rice-anne-1/h=540,fit=pad,background=black"/></a></div>
 
 Anne Rice's "Songs of the Seraphim" series takes readers on a captivating journey, continuing with "of Love and Evil: The Songs of The Seraphim". Set in the thick of the Renaissance era and present day, this book brings together a skilled assassin and an angelic summons, entangling them in darkness and danger. The characters find themselves navigating through a world of ancient secrets, dark plots, and soul-stirring encounters. 
 
 As the story unfolds, Toby Ors'dare must rediscover his past while embracing a deeper understanding of love and salvation, leaving readers with a profound sense of connection and a gripping tale. 
 
 
-### [The Vampire Chronicles: The Queen of The Damned by Anne Rice](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=the-vampire-chronicles-the-queen-of-the-damned-by-anne-rice)
+### [The Vampire Chronicles: The Queen of The Damned by Anne Rice](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=the-vampire-chronicles-the-queen-of-the-damned-by-anne-rice)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=the-vampire-chronicles-the-queen-of-the-damned-by-anne-rice"><img alt="the-queen-of-the-damned-the-vampire-chronicles-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-queen-of-the-damned-the-vampire-chronicles-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=the-vampire-chronicles-the-queen-of-the-damned-by-anne-rice"><img alt="the-queen-of-the-damned-the-vampire-chronicles-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-queen-of-the-damned-the-vampire-chronicles-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently picked up "The Queen of The Damned" by Anne Rice, and I must say, it's been an unforgettable journey through the complex and seductive world of the undead. Anne Rice's storytelling prowess is on full display as she unleashes the queen of the damned, Akasha, who's emerged from a centuries-long slumber to wreak havoc on mankind and vampire Lestat alike. 
 
@@ -45,9 +45,9 @@ With its captivating prose and evocative imagery, the novel has drawn me in, and
 However, one minor drawback I encountered was the binding type. Though it's a paperback, I wish it were a little bit more sturdy to withstand frequent use. Despite this minor hiccup, "The Queen of The Damned" remains an excellent addition to Anne Rice's Vampire Chronicles series and a must-read for fans of the genre. 
 
 
-### [The Queen of the Damned by Anne Rice: Vampire Chronicles Novel](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=the-queen-of-the-damned-by-anne-rice-vampire-chronicles-novel)
+### [The Queen of the Damned by Anne Rice: Vampire Chronicles Novel](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=the-queen-of-the-damned-by-anne-rice-vampire-chronicles-novel)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=the-queen-of-the-damned-by-anne-rice-vampire-chronicles-novel"><img alt="the-queen-of-the-damned-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-queen-of-the-damned-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=the-queen-of-the-damned-by-anne-rice-vampire-chronicles-novel"><img alt="the-queen-of-the-damned-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-queen-of-the-damned-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 The Queen of The Damned" by Anne Rice is a mesmerizing gothic novel that takes readers on a captivating journey through the world of the undead. The paperback, published by Random House USA Inc, showcases the captivating storytelling prowess of Anne Rice, who is best known for her intriguing series, The Vampire Chronicles. With a staggering 480 pages, the book is a testament to Rice's ability to weave together a complex tale filled with intrigue, passion, and a touch of the macabre. 
 
@@ -56,27 +56,27 @@ This particular volume features Akasha, the queen of the damned, who rises from 
 While the book may be a departure from Rice's usual style, its compelling plot and rich character development make it an enjoyable addition to her body of work. Overall, "The Queen of The Damned" is a captivating, well-crafted tale that showcases Rice's mastery of the gothic genre, earning it a well-deserved place in the hearts of fans and book enthusiasts alike. 
 
 
-### [Interview with the Vampire: A Classic Anne Rice Reissue](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=interview-with-the-vampire-a-classic-anne-rice-reissue)
+### [Interview with the Vampire: A Classic Anne Rice Reissue](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=interview-with-the-vampire-a-classic-anne-rice-reissue)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=interview-with-the-vampire-a-classic-anne-rice-reissue"><img alt="interview-with-the-vampire-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/interview-with-the-vampire-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=interview-with-the-vampire-a-classic-anne-rice-reissue"><img alt="interview-with-the-vampire-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/interview-with-the-vampire-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 Interview with The Vampire" by Anne Rice is a compelling tale of one vampire's journey through centuries of existence, while navigating the challenges and relationships that come with immortality. The story, with some violence and descriptions of sex sprinkled throughout, is a gripping exploration of the human condition within the framework of the supernatural. 
 
 This 1976 1st edition hardback, often accompanied by library markings, has captured the hearts of many as it continues to set the stage for the rest of Rice's Vampire series. 
 
 
-### [Anne Rice: Pandora - New Tales of the Vampires](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=anne-rice-pandora-new-tales-of-the-vampires)
+### [Anne Rice: Pandora - New Tales of the Vampires](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=anne-rice-pandora-new-tales-of-the-vampires)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=anne-rice-pandora-new-tales-of-the-vampires"><img alt="pandora-new-tales-of-the-vampires-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pandora-new-tales-of-the-vampires-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=anne-rice-pandora-new-tales-of-the-vampires"><img alt="pandora-new-tales-of-the-vampires-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pandora-new-tales-of-the-vampires-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Pandora: New Tales of the Vampires by Anne Rice takes us on a thrilling journey through the ages, introducing readers to a captivating character named Pandora. This novel is set in present-day Paris and follows the mesmerizing tale of Pandora, a vampire who meets the fledgling vampire David Talbot. David persuades her to share her life story, which spans from Imperial Rome to eighteenth-century France, all the way to twentieth-century Paris and New Orleans. 
 
 Anne Rice's lyrical prose and vivid storytelling transport us to these incredible worlds and leave a lasting impression. The hardback binding invites us to immerse ourselves in the tale and hold the pages of this Anne Rice masterpiece. 
 
 
-### [Prince Lestat by Anne Rice (Vintage Publishing, 2014)](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=prince-lestat-by-anne-rice-vintage-publishing-2014)
+### [Prince Lestat by Anne Rice (Vintage Publishing, 2014)](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=prince-lestat-by-anne-rice-vintage-publishing-2014)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=prince-lestat-by-anne-rice-vintage-publishing-2014"><img alt="prince-lestat-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prince-lestat-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=prince-lestat-by-anne-rice-vintage-publishing-2014"><img alt="prince-lestat-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prince-lestat-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently dived into Anne Rice's masterpiece, "Prince Lestat, " and I must say, the paperback binding effortlessly fit into my bag for on-the-go reading. The novel, set in a world of vampires in chaos, left me thoroughly engrossed. I couldn't put it down. 
 
@@ -87,27 +87,27 @@ That being said, one drawback I found was the book's language barrier. Not being
 Nonetheless, "Prince Lestat" was an enthralling read, thanks to its engaging storyline and vivid characters. I would highly recommend it to any avid fan of the vampire genre or for those seeking a captivating escape. 
 
 
-### [Intimate Portrait of Anne Rice's Life and Work](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=intimate-portrait-of-anne-rices-life-and-work)
+### [Intimate Portrait of Anne Rice's Life and Work](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=intimate-portrait-of-anne-rices-life-and-work)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=intimate-portrait-of-anne-rices-life-and-work"><img alt="conversations-with-anne-rice-an-intimate-enlightening-portrait-of-her-life-and-work-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/conversations-with-anne-rice-an-intimate-enlightening-portrait-of-her-life-and-work-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=intimate-portrait-of-anne-rices-life-and-work"><img alt="conversations-with-anne-rice-an-intimate-enlightening-portrait-of-her-life-and-work-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/conversations-with-anne-rice-an-intimate-enlightening-portrait-of-her-life-and-work-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Delve deep into the life and work of the acclaimed author Anne Rice with "Conversations with Anne Rice." This captivating read offers an intimate glimpse into the mind of this extraordinary writer, exploring her journey from a budding author to the success of her Vampire Chronicles. 
 
 The book's interview, conducted by esteemed film scholar and author Michael Riley, unveils the mysteries surrounding the woman behind these timeless tales. With its 316 pages housed in a reliable paperback edition published by Random House, "Conversations with Anne Rice" serves as an enthralling testament to Anne Rice's life, as well as the beliefs, inspirations, and passions that drive her enchanting literary career. 
 
 
-### [The Witching Hour by Anne Rice](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=the-witching-hour-by-anne-rice)
+### [The Witching Hour by Anne Rice](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=the-witching-hour-by-anne-rice)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=the-witching-hour-by-anne-rice"><img alt="the-witching-hour-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-witching-hour-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=the-witching-hour-by-anne-rice"><img alt="the-witching-hour-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-witching-hour-book-1/h=540,fit=pad,background=black"/></a></div>
 
 The Witching Hour is a spellbinding audiobook by Anne Rice, narrated by Kate Reading. This captivating story follows the Mayfair family, a dynasty of witches spanning four centuries. From New Orleans to Amsterdam, France, and beyond, readers are immersed in a mesmerizing tale of poetry, incest, murder, philosophy, and the haunting presence of an otherworldly figure named Lasher. 
 
 Anne Rice's vivid storytelling transports listeners to various eras and locations, creating a rich and engaging experience. The 49-hour, 58-minute audiobook is a must-listen for fans of Anne Rice and those who enjoy spellbinding stories filled with suspense and intrigue. 
 
 
-### [Vienna-Inspired Supernatural Novel by Anne Rice](https://serp.ly/amazon/Anne+Rice+Books?utm\_term=vienna-inspired-supernatural-novel-by-anne-rice)
+### [Vienna-Inspired Supernatural Novel by Anne Rice](https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm\_term=vienna-inspired-supernatural-novel-by-anne-rice)
 
-<div class="image"><a href="https://serp.ly/amazon/Anne+Rice+Books?utm_term=vienna-inspired-supernatural-novel-by-anne-rice"><img alt="violin-by-rice-anne-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/violin-by-rice-anne-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books?utm_term=vienna-inspired-supernatural-novel-by-anne-rice"><img alt="violin-by-rice-anne-by-anne-rice-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/violin-by-rice-anne-by-anne-rice-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently picked up a copy of Anne Rice's latest novel, "Violin, " and let me tell you, it was quite the ride. This story transports us seamlessly from 19th-century Vienna to present-day New Orleans, following the journeys of two captivating characters bound by their shared passion for music. 
 
@@ -128,7 +128,7 @@ Discover the captivating world of Anne Rice books as you explore this comprehens
 Anne Rice is renowned for her diverse writing portfolio, including the following popular series and standalone novels: 
 1) The Vampire Chronicles, 2) The Mayfair Witches, 3) The Lives of the Mayfair Witches, 4) The Tales of the City, and 5) The Wolves of Paradise. Each series offers a unique blend of fantasy, horror, and historical fiction. Consider which genre or series resonates most with your reading preferences before diving into the world of Anne Rice's storytelling. 
 
-<div><a href="https://serp.ly/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-2/h=540,fit=pad,background=black" alt="Anne-Rice-Books-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-2/h=540,fit=pad,background=black" alt="Anne-Rice-Books-2" height="540"></a></div>
 
 
 ### Finding the Right Fit: Paperback, Hardcover, or eBook
@@ -140,7 +140,7 @@ Anne Rice books are available in various formats, including paperback, hardcover
 
 Some Anne Rice books come in special editions, complete with exclusive content or enhanced features, such as maps, author notes, or illustrations. These editions can enhance your reading experience and provide additional insights into the author's creative process. Look for these special editions when browsing for your next Anne Rice book. 
 
-<div><a href="https://serp.ly/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-3/h=540,fit=pad,background=black" alt="Anne-Rice-Books-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-3/h=540,fit=pad,background=black" alt="Anne-Rice-Books-3" height="540"></a></div>
 
 
 ### Starting Your Journey
@@ -150,7 +150,7 @@ If you are new to Anne Rice's works, consider starting with one of her popular s
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-4/h=540,fit=pad,background=black" alt="Anne-Rice-Books-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-4/h=540,fit=pad,background=black" alt="Anne-Rice-Books-4" height="540"></a></div>
 
 
 ### Which novel by Anne Rice is the first of The Vampire Chronicles series?
@@ -166,7 +166,7 @@ As a prolific writer, Anne Rice has explored various themes throughout her exten
 
 Rice's recurrent motifs, such as the supernatural, religion, sexuality, and immortality, are woven into her tales, providing the foundation for her captivating narratives. She is renowned for her vivid and immersive writing style, which allows readers to traverse the depths of her characters and the universes she creates. 
 
-<div><a href="https://serp.ly/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-5/h=540,fit=pad,background=black" alt="Anne-Rice-Books-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-5/h=540,fit=pad,background=black" alt="Anne-Rice-Books-5" height="540"></a></div>
 
 
 ### What is the significance of the Louisiana setting in Anne Rice's work?
@@ -182,7 +182,7 @@ Anne Rice faced criticism for The Queen of the Damned, particularly concerning t
 
 However, Rice has always maintained that her intention was not to depict a typical African-American figure but rather to introduce a fresh perspective on the vampire mythology. She has consistently defended her portrayal of Rowan Morrison, stating that she did not mean to perpetuate any harmful stereotypes and that her goal was to create a complex and multifaceted character who would challenge the prevailing vampire lore. 
 
-<div><a href="https://serp.ly/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-6/h=540,fit=pad,background=black" alt="Anne-Rice-Books-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Anne+Rice+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Anne-Rice-Books-6/h=540,fit=pad,background=black" alt="Anne-Rice-Books-6" height="540"></a></div>
 
 
 ### What is the significance of the vampiric mythology in Anne Rice's works?

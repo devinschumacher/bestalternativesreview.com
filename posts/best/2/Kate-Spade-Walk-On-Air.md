@@ -14,9 +14,9 @@ Get ready to soar high with the iconic Kate Spade brand as we take a closer look
 ## Reviews
 
 
-### [Kate Spade Walk on Air Mini EDP Spray for Women: Light and Fresh Fragrance](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-mini-edp-spray-for-women-light-and-fresh-fragrance)
+### [Kate Spade Walk on Air Mini EDP Spray for Women: Light and Fresh Fragrance](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-mini-edp-spray-for-women-light-and-fresh-fragrance)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-mini-edp-spray-for-women-light-and-fresh-fragrance"><img alt="walk-on-air-by-kate-spade-mini-edp-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-mini-edp-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-mini-edp-spray-for-women-light-and-fresh-fragrance"><img alt="walk-on-air-by-kate-spade-mini-edp-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-mini-edp-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Walk on Air, the signature Kate Spade perfume, brings a refreshing scent to the world of women's fragrances. Introduced in 2015, the delicate fragrance is a perfect addition to any woman's collection. The scent is light, airy, and ideal for everyday wear. Fresh and invigorating, Walk on Air boasts a blend of floral, citrus, and earthy notes that together create an enchanting aroma. Tunisian neroli and Calabrian bergamot provide a luscious, juicy opening, while linden blossom and Solomon's seal add a soft, sweet floral touch. The middle notes present a lovely bouquet of narcissus, Egyptian jasmine, southern magnolia, and lily of the valley. These beautifully complement a cooling touch of violet leaf, white iris, and crinum lily for a powdery base. 
 
@@ -27,18 +27,18 @@ Not all reviews have been praiseworthy, however. Some users have described the f
 Overall, Walk on Air by Kate Spade remains a highly sought-after fragrance, perfect for those seeking a light, airy scent suitable for any occasion. Its popularity is no surprise, as the brand continues to captivate the hearts and minds of fashion enthusiasts worldwide. 
 
 
-### [Kate Spade Walk on Air Tester for Women](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-tester-for-women)
+### [Kate Spade Walk on Air Tester for Women](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-tester-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-tester-for-women"><img alt="kate-spade-walk-on-air-by-kate-spade-for-women-0-03-oz-vial-tester-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-by-kate-spade-for-women-0-03-oz-vial-tester-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-tester-for-women"><img alt="kate-spade-walk-on-air-by-kate-spade-for-women-0-03-oz-vial-tester-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-by-kate-spade-for-women-0-03-oz-vial-tester-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience a breath of fresh air with the Kate Spade Walk on Air Eau de Parfum Spray. This captivating scent, released in 2015, exudes a free-spirited, carefree vibe that evokes the essence of a woman who takes each day in her stride. The fragrance's composition features lively top notes of Neroli, Bergamot Lime and Fern, gently transitioning to a delicate heart of Lily-of-the-Valley, Magnolia Narcissus, and Jasmine. 
 
 The base notes of White Iris, Violet Leaf, and Crinum Lily add a sweet and aquatic touch. Housed in a chic tester packaging, this 0.03 oz vial is a perfect way to sample the exquisite Kate Spade Walk on Air Eau de Parfum. 
 
 
-### [Kate Spade Walk On Air Eau de Parfum Spray for Women](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-eau-de-parfum-spray-for-women)
+### [Kate Spade Walk On Air Eau de Parfum Spray for Women](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-eau-de-parfum-spray-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-eau-de-parfum-spray-for-women"><img alt="walk-on-air-by-kate-spade-eau-de-parfum-spray-1-7-oz-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-eau-de-parfum-spray-1-7-oz-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-eau-de-parfum-spray-for-women"><img alt="walk-on-air-by-kate-spade-eau-de-parfum-spray-1-7-oz-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-eau-de-parfum-spray-1-7-oz-women-1/h=540,fit=pad,background=black"/></a></div>
 
 The Walk on Air by Kate Spade fragrance is a delightful, light, and refreshing aroma that I've enjoyed wearing in my daily life. The sweet undertones of lily of the valley, magnolia, and crinum lily are like a breath of fresh air, making me feel graceful and confident. 
 
@@ -47,9 +47,9 @@ I particularly appreciate the beautiful packaging, which is a perfect addition t
 One notable issue I faced is the fragrance spray not working as intended, but fortunately, customer service came to the rescue and helped me with the situation. This minor inconvenience aside, the Walk on Air perfume remains my favorite, and I highly recommend it to those looking for a light, lovely scent that lasts throughout the day. 
 
 
-### [Kate Spade Walk On Air Perfume: Fresh, Feminine, and Confident](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-perfume-fresh-feminine-and-confident)
+### [Kate Spade Walk On Air Perfume: Fresh, Feminine, and Confident](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-perfume-fresh-feminine-and-confident)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-perfume-fresh-feminine-and-confident"><img alt="walk-on-air-by-kate-spade-3-4oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-3-4oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-perfume-fresh-feminine-and-confident"><img alt="walk-on-air-by-kate-spade-3-4oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-3-4oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Kate Spade's Walk on Air is a refreshing and alluring fragrance that captivates its wearer. With top notes of crisp Calabrian bergamot and the delicate scent of linden blossom, the perfume invigorates the senses. Nestled within the heart notes are the sweet and feminine scents of magnolia, Egyptian jasmine, and narcissus. The base notes bring depth and stability, with the soothing notes of crinum lily, white iris, and violet leaf. 
 
@@ -58,9 +58,9 @@ Reviews for the Walk on Air perfume are overwhelmingly positive. Users appreciat
 Walk on Air is recommended for spring and summer, as it radiates the warmth and optimism of the season. It is the perfect choice for those seeking a bright, feminine scent that uplifts and delights the senses. 
 
 
-### [Kate Spade Walk on Air Fragrance for Women - Lightweight Scent Experience](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-fragrance-for-women-lightweight-scent-experience)
+### [Kate Spade Walk on Air Fragrance for Women - Lightweight Scent Experience](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-fragrance-for-women-lightweight-scent-experience)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-fragrance-for-women-lightweight-scent-experience"><img alt="kate-spade-8-4-oz-walk-on-air-fragrance-mist-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-8-4-oz-walk-on-air-fragrance-mist-for-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-fragrance-for-women-lightweight-scent-experience"><img alt="kate-spade-8-4-oz-walk-on-air-fragrance-mist-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-8-4-oz-walk-on-air-fragrance-mist-for-women-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Kate Spade 8.4 oz Walk on Air Fragrance Mist for Women, and let me tell you, the experience has been nothing short of refreshing. As someone who prefers lighter, airier scents, this body spray delivered on all fronts. Its floral woodsy fragrance reminds me of a summer breeze through a blossoming garden, making it the perfect addition to my daily routine. 
 
@@ -71,9 +71,9 @@ However, there was a slight downside. While the scent was light and delightful, 
 Despite this minor letdown, I'm still very satisfied with the Kate Spade 8.4 oz Walk on Air Fragrance Mist for Women. Its fresh, breezy scent and convenient application make it an excellent choice for anyone looking to add a touch of nature to their daily life. 
 
 
-### [Kate Spade Walk On Air Eau de Parfum Spray](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-eau-de-parfum-spray)
+### [Kate Spade Walk On Air Eau de Parfum Spray](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-eau-de-parfum-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-eau-de-parfum-spray"><img alt="kate-spade-new-york-walk-on-air-eau-de-parfum-spray-1-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-walk-on-air-eau-de-parfum-spray-1-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-eau-de-parfum-spray"><img alt="kate-spade-new-york-walk-on-air-eau-de-parfum-spray-1-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-walk-on-air-eau-de-parfum-spray-1-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Walk on Air is a whimsical scent that has been captivating perfume lovers since its debut in 2015. Founded by Kate Spade, this enchanting creation is infused with a delicate fragrance that leaves a lasting impression. The perfume is perfect for those who like to keep things fresh and unique, as the scent is not easily forgotten. The bottle itself is an eye-catching masterpiece, featuring a green glass body and a sleek metal cap adorned with a black bow. 
 
@@ -84,9 +84,9 @@ The longevity and quality of Walk on Air have proven to be impressive, with many
 While the scent of Walk on Air has garnered a loyal following, there have been some minor issues with the quality of some bottles, including clogged nozzles or weak sprayers. However, these concerns have been addressed by the brand, and overall, the perfume remains a favorite among those who are seeking a unique, long-lasting, and airy scent for their daily lives. 
 
 
-### [Kate Spade Walk On Air Gift Set - Fragrant Eau de Parfum and Face Mist for Women](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-gift-set-fragrant-eau-de-parfum-and-face-mist-for-women)
+### [Kate Spade Walk On Air Gift Set - Fragrant Eau de Parfum and Face Mist for Women](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-gift-set-fragrant-eau-de-parfum-and-face-mist-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-gift-set-fragrant-eau-de-parfum-and-face-mist-for-women"><img alt="walk-on-air-by-kate-spade-for-women-2-pc-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-for-women-2-pc-gift-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-gift-set-fragrant-eau-de-parfum-and-face-mist-for-women"><img alt="walk-on-air-by-kate-spade-for-women-2-pc-gift-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-for-women-2-pc-gift-set-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of Kate Spade fragrances, I was delighted to receive this Walk on Air 2 PC Gift Set. The perfume itself is a delightful mix of florals and citrus notes, leaving a subtle yet memorable scent. The set includes both the perfume spray and a convenient face mist, perfect for on-the-go touch-ups. 
 
@@ -97,9 +97,9 @@ Another issue I encountered was the discrepancy between the perfume's scent and 
 Despite these minor drawbacks, I still found this Walk on Air set to be a great deal, offering 100ml of perfume for just $40. Overall, I'd say it's a solid choice for someone looking for a new, affordable scent from a trusted brand. 
 
 
-### [Kate Spade Walk on Air Body Spray: Fresh Floral Woodsy Scent](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-body-spray-fresh-floral-woodsy-scent)
+### [Kate Spade Walk on Air Body Spray: Fresh Floral Woodsy Scent](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-body-spray-fresh-floral-woodsy-scent)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-body-spray-fresh-floral-woodsy-scent"><img alt="kate-spade-walk-on-air-body-spray-8-4-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-body-spray-8-4-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-body-spray-fresh-floral-woodsy-scent"><img alt="kate-spade-walk-on-air-body-spray-8-4-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-body-spray-8-4-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Kate Spade's Walk on Air body spray is a delightful and fresh addition to my daily routine. Being a fan of floral scents, I was intrigued by the citrus, herbal, and floral notes promised by this mist. 
 
@@ -112,18 +112,18 @@ However, there were a couple of minor drawbacks I faced. Firstly, the body spray
 Overall, Kate Spade's Walk on Air body spray is a fantastic choice for someone like me who enjoys floral scents that aren't too overpowering. Its distinctive aroma and long-lasting effect make it a perfect daily mist for freshening up. While the minor shortcomings might be a concern for a few, they certainly do not take away from the positive benefits this body spray has to offer. 
 
 
-### [Kate Spade Walk on Air Sunshine Women's Eau de Parfum](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-sunshine-womens-eau-de-parfum)
+### [Kate Spade Walk on Air Sunshine Women's Eau de Parfum](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-sunshine-womens-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-sunshine-womens-eau-de-parfum"><img alt="walk-on-air-sunshine-women-3-4-oz-eau-de-parfum-spray-by-kate-spade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-sunshine-women-3-4-oz-eau-de-parfum-spray-by-kate-spade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-sunshine-womens-eau-de-parfum"><img alt="walk-on-air-sunshine-women-3-4-oz-eau-de-parfum-spray-by-kate-spade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-sunshine-women-3-4-oz-eau-de-parfum-spray-by-kate-spade-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade Walk on Air Sunshine Women 3.4 oz Eau de Parfum Spray is a delightful scent that brings a burst of energy and confidence with a spritz. Housed in a sleek glass bottle with a classic Kate Spade black bow, this fragrance features refreshing top notes of clementine, Sicilian lemon, and linden blossom. Violet, jasmine, vetiver, and white peach round out this delightful scent. 
 
 With an overall rating of 4.5 out of 5 from 20 reviews, users praise its light, fresh, and feminine fragrance, perfect for spring and summer. 
 
 
-### [Kate Spade Walk on Air Sunshine Eau de Parfum Rollerball](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball)
+### [Kate Spade Walk on Air Sunshine Eau de Parfum Rollerball](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball"><img alt="kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball-10-ml-0-34-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball-10-ml-0-34-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball"><img alt="kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball-10-ml-0-34-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-sunshine-eau-de-parfum-rollerball-10-ml-0-34-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade Walk on Air Sunshine Eau de Parfum Rollerball is a delightful, lightweight edition of the popular Walk on Air fragrance. This refreshing scent celebrates graceful confidence and comes in a convenient rollerball format. 
 
@@ -132,27 +132,27 @@ With top notes of clementine and linden blossom, the fragrance offers a fresh an
 Users appreciate the convenient rollerball design and the scent's ability to last up to 8 hours. 
 
 
-### [Walk On Air by Kate Spade for Women: Delicate, Dreamy, and Floral](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=walk-on-air-by-kate-spade-for-women-delicate-dreamy-and-floral)
+### [Walk On Air by Kate Spade for Women: Delicate, Dreamy, and Floral](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=walk-on-air-by-kate-spade-for-women-delicate-dreamy-and-floral)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=walk-on-air-by-kate-spade-for-women-delicate-dreamy-and-floral"><img alt="walk-on-air-by-kate-spade-for-women-mini-edp-0-25-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-for-women-mini-edp-0-25-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=walk-on-air-by-kate-spade-for-women-delicate-dreamy-and-floral"><img alt="walk-on-air-by-kate-spade-for-women-mini-edp-0-25-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-for-women-mini-edp-0-25-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Walk on Air by Kate Spade is a delightful, whimsical fragrance that truly lives up to its name. The airy scent, released in 2015, combines fresh, floral notes, creating a dreamy experience. The opening notes transport you to a fresh garden with Tunisian neroli and Calabrian bergamot bursting in a luscious, juicy aroma. Linden blossom and Solomon's seal add a touch of sweetness. The heart of the fragrance brings together a beautiful bouquet of flowers, from narcissus, Egyptian jasmine, and southern magnolia to the gentle touch of lily of the valley. The base notes of violet leaf, white iris, and crinum lily round out the scent with a powdery hint. 
 
 Holding high the Kate Spade name, the brand was founded by Kate and her husband, Andy, in 1993. It started out selling handbags and has since expanded into an array of products, including clothing, footwear, home goods, accessories, and baby products. But their fragrances, like Walk on Air, continue to captivate and inspire the wearer with a touch of whimsy. The Kate Spade Walk on Air mini EDP 0.25 oz perfume is a refreshing addition to the brand's fragrance collection. 
 
 
-### [Kate Spade "Walk on Air" Body Lotion](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-body-lotion)
+### [Kate Spade "Walk on Air" Body Lotion](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-body-lotion)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-body-lotion"><img alt="kate-spade-walk-on-air-body-lotion-6-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-body-lotion-6-8-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-body-lotion"><img alt="kate-spade-walk-on-air-body-lotion-6-8-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-walk-on-air-body-lotion-6-8-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the graceful confidence and boundless joy of the Kate Spade New York woman with Walk on Air Body Lotion. This luxurious lotion embodies the sophisticated charm of the brand, leaving your skin feeling refreshed and invigorated. 
 
 With its captivating scent, this lotion will become an essential part of your daily routine, perfect for layering with the companion fragrance. Embrace the elegance and allure of Kate Spade New York with Walk on Air Body Lotion. 
 
 
-### [Kate Spade Walk on Air Women's Eau de Parfum Spray](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-womens-eau-de-parfum-spray)
+### [Kate Spade Walk on Air Women's Eau de Parfum Spray](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-walk-on-air-womens-eau-de-parfum-spray)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-womens-eau-de-parfum-spray"><img alt="walk-on-air-by-kate-spade-1-oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-1-oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-walk-on-air-womens-eau-de-parfum-spray"><img alt="walk-on-air-by-kate-spade-1-oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walk-on-air-by-kate-spade-1-oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the refreshing Kate Spade Walk on Air perfume, a delightful fragrance that captures the essence of a carefree and joyful day. This lightweight eau de parfum spray is perfect for women who love simplicity and feel rejuvenated with its uplifting scent. With notes of lily of the valley, neroli, and bergamot, this fragrance opens with an invigorating burst, followed by a floral heart of jasmine, magnolia, and violet leaf. 
 
@@ -161,9 +161,9 @@ The base notes of musk, ambrette seeds, and cedarwood add warmth and a long-last
 bottle, making it a thoughtful and stylish gift for yourself or a loved one. Experience the joy of feeling light, free, and alive with the Kate Spade Walk on Air Eau de Parfum Spray. 
 
 
-### [Kate Spade New York Travel Spray Set: Eau De Parfum Trio](https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-new-york-travel-spray-set-eau-de-parfum-trio)
+### [Kate Spade New York Travel Spray Set: Eau De Parfum Trio](https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm\_term=kate-spade-new-york-travel-spray-set-eau-de-parfum-trio)
 
-<div class="image"><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-new-york-travel-spray-set-eau-de-parfum-trio"><img alt="kate-spade-new-york-travel-spray-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-travel-spray-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air?utm_term=kate-spade-new-york-travel-spray-set-eau-de-parfum-trio"><img alt="kate-spade-new-york-travel-spray-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-travel-spray-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in the timeless beauty and allure of Kate Spade with this delightful travel spray trio set, featuring 3x10ml exquisite fragrances, each boasting a unique and captivating essence. From the iconic Kate Spade Eau de Parfum's sweet fruity-floral scent, reminiscent of wild strawberry, bergamot, rose essence, and freesia, to the irresistible Sparkle Eau de Parfum's intoxicating amber-floral notes, merging the enticing scent of black currant and pink pepper with the lushness of peony and hawthorn, enhanced by the mouth-watering crème brulee and vanilla accord - the perfect accompaniment to any sensory journey - to the joyful Cherie Eau de Parfum, bursting with crisp refreshing raspberry and red currant notes, blending subtly with the enchanting melody of sweet pea, rose, and jasmine. This delightful trio is not only an elegant and transportable addition to any travel collection but a celebration of the quintessential Kate Spade woman - youthful, spirited, and unapologetically feminine. 
 
@@ -177,7 +177,7 @@ Welcome to the buyer's guide for Kate Spade Walk On Air and other similar produc
 
 The Kate Spade Walk On Air is a popular line of fragrances that offers a mixture of citrus and floral scents. It is designed for both men and women and comes in various sizes, making it ideal for everyday wear or special occasions. When considering the Kate Spade Walk On Air, it's essential to know the different notes, strengths, and sizes available to fit your preferences and lifestyle. 
 
-<div><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-2/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-2" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-2/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-2" height="540"></a></div>
 
 
 ### Considerations When Purchasing a Fragrance
@@ -189,7 +189,7 @@ When shopping for a fragrance like the Kate Spade Walk On Air, there are several
 
 When selecting a fragrance, it's crucial to test it on your skin and in different environments to determine whether it suits your taste. Additionally, consider the scent's longevity and how it complements your personal style. It's also essential to choose a fragrance that aligns with the occasions you'll wear it, whether for work, social events, or special nights out. 
 
-<div><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-3/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-3" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-3/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-3" height="540"></a></div>
 
 
 ### Common Fragrance Pairings
@@ -199,7 +199,7 @@ When purchasing a fragrance like the Kate Spade Walk On Air, you may also want t
 
 ## FAQ
 
-<div><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-4/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-4" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-4/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-4" height="540"></a></div>
 
 
 ### What are the main features of Kate Spade's Walk On Air collection?
@@ -215,7 +215,7 @@ Kate Spade's Walk On Air collection incorporates a range of materials to create 
 
 There are also cases where synthetics, such as microfiber, are used to offer a more affordable option while retaining some of the benefits of genuine leather or suede. When designing their products, Kate Spade prioritizes both style and comfort, so you can expect these materials to offer both durability and a fashionable look. 
 
-<div><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-5/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-5" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-5/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-5" height="540"></a></div>
 
 
 ### What sizes and widths does Kate Spade's Walk On Air collection offer?
@@ -231,7 +231,7 @@ Kate Spade is known for its individualistic approach to fashion, which often inc
 
 It is essential to check with the sales representative or online store for the most accurate information regarding available customization options on the specific products you are considering from the Walk On Air collection. Also, note that customization options may have an additional cost and may take longer to process. 
 
-<div><a href="https://serp.ly/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-6/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-6" height="540"></a></div>
+<div><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Walk+On+Air"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Kate-Spade-Walk-On-Air-6/h=540,fit=pad,background=black" alt="Kate-Spade-Walk-On-Air-6" height="540"></a></div>
 
 
 ### How does Kate Spade ensure the sustainability and ethical production of its products in the Walk On Air collection?

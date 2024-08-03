@@ -14,9 +14,9 @@ Hey there, shoe enthusiasts! Get ready to discover the perfect pair of shoes tha
 ## Reviews
 
 
-### [Hey Dude Women's Wendy Fold - Authentic Style and Comfort](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-womens-wendy-fold-authentic-style-and-comfort)
+### [Hey Dude Women's Wendy Fold - Authentic Style and Comfort](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-womens-wendy-fold-authentic-style-and-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-womens-wendy-fold-authentic-style-and-comfort"><img alt="hey-dude-womens-wendy-fold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-womens-wendy-fold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-womens-wendy-fold-authentic-style-and-comfort"><img alt="hey-dude-womens-wendy-fold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-womens-wendy-fold-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey Dude's Wendy Fold is a popular slip-on sneaker among women, praised for its versatility and comfort in various activities. Boasting an elastic lace system for a secure fit, the textile upper feels soft and comfortable on the feet. The removable foam footbed ensures supportive cushioning, while the lightweight outsole allows for extended exploration. 
 
@@ -27,9 +27,9 @@ Although the Wendy Fold has received overwhelmingly positive reviews from custom
 In conclusion, Hey Dude's Wendy Fold is a stylish and versatile slip-on sneaker that offers not only comfort but also convenience in various outdoor activities. The textile upper, elastic laces, and removable foam footbed contribute to its appeal, making it a top choice for many women looking for comfortable shoes for their everyday lives. 
 
 
-### [Hey Dude Wally Youth Sport Mesh Black Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-youth-sport-mesh-black-shoes)
+### [Hey Dude Wally Youth Sport Mesh Black Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-youth-sport-mesh-black-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-youth-sport-mesh-black-shoes"><img alt="heydude-boys-wally-youth-sport-mesh-black-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-boys-wally-youth-sport-mesh-black-shoes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-youth-sport-mesh-black-shoes"><img alt="heydude-boys-wally-youth-sport-mesh-black-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-boys-wally-youth-sport-mesh-black-shoes-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Hey Dude's Wally Youth Sport Mesh Black Shoes, a crowd-pleaser among boys' footwear. Boasting a breathable mesh upper, these shoes strike a perfect balance between style and comfort. The easy-on lace system makes them a go-to for families on the go. Not only do they look great, but they're also comfortable enough for daily wear, proving to be a durable and functional choice for growing feet. 
 
@@ -40,9 +40,9 @@ The breathable mesh upper is a standout feature that sets these shoes apart from
 Overall, Hey Dude's Wally Youth Sport Mesh Black Shoes offer a great combination of style and practicality. With the vast majority of customers expressing satisfaction, these shoes are an excellent choice for active little boys seeking both comfort and style in their footwear. 
 
 
-### [Hey Dude Wendy Cheetah Grey Sneakers for Women](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wendy-cheetah-grey-sneakers-for-women)
+### [Hey Dude Wendy Cheetah Grey Sneakers for Women](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wendy-cheetah-grey-sneakers-for-women)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wendy-cheetah-grey-sneakers-for-women"><img alt="heydude-womens-wendy-cheetah-grey-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-wendy-cheetah-grey-shoes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wendy-cheetah-grey-sneakers-for-women"><img alt="heydude-womens-wendy-cheetah-grey-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-wendy-cheetah-grey-shoes-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey there, I've been rocking my Hey Dude Wendy Cheetah sneakers lately, and I gotta say, I'm in love with the whole thing! Imagine sashaying about like a cheetah in your casual footwear. I got 'em in gray and let me tell you, they instantly uplifted both my look and mood. These sneakers are lightweight, flexible, and the perfect companion for your journey. 
 
@@ -53,9 +53,9 @@ Now, let's talk about the snugness. These shoes might run a tad big, so you migh
 I have to say, the Hey Dude Wendy Cheetah shoes have a unique and playful vibe. It's not your ordinary pair; they add a touch of whimsy to your casual wear, making you stand out from the crowd. Just remember, they run big, so size up accordingly. And there you have it – the Hey Dude Wendy Cheetah sneakers, my comfy, stylish, and travel-friendly footwear BFF! 
 
 
-### [Hey Dude Wendy Fold Stitch Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wendy-fold-stitch-shoes)
+### [Hey Dude Wendy Fold Stitch Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wendy-fold-stitch-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wendy-fold-stitch-shoes"><img alt="heydude-wendy-fold-stitch-cozy-tan-shoes-in-brown-size-12-kids-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-wendy-fold-stitch-cozy-tan-shoes-in-brown-size-12-kids-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wendy-fold-stitch-shoes"><img alt="heydude-wendy-fold-stitch-cozy-tan-shoes-in-brown-size-12-kids-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-wendy-fold-stitch-cozy-tan-shoes-in-brown-size-12-kids-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the HEYDUDE Wendy Fold Stitch Cozy Tan Shoes - your child's go-to footwear for comfort and style. These shoes are perfect for those chilly days, offering all the cozy comfort you could ask for with their cushioning foam insole and faux-shearling lining. The fold-over upper adds an extra touch of warmth, making them ideal for kids who love to play outside in the cold. 
 
@@ -64,9 +64,9 @@ One of the best features of these shoes is their stretchy elastic laces, which m
 Parents and kids alike rave about the comfort and style of HEYDUDE Wendy Fold Stitch Cozy Tan Shoes. They're perfect as a gift for birthdays or Christmas, and your child is sure to love them just as much as their siblings and friends who already own a pair. With a 4.8-star rating based on 9 reviews, you can't go wrong with this comfy and stylish footwear option. 
 
 
-### [Hey Dude Men's Wally Sport Mesh Shoes - Size 13, White](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sport-mesh-shoes-size-13-white)
+### [Hey Dude Men's Wally Sport Mesh Shoes - Size 13, White](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sport-mesh-shoes-size-13-white)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sport-mesh-shoes-size-13-white"><img alt="hey-dude-mens-wally-sport-mesh-shoe-size-13-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sport-mesh-shoe-size-13-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sport-mesh-shoes-size-13-white"><img alt="hey-dude-mens-wally-sport-mesh-shoe-size-13-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sport-mesh-shoe-size-13-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Lately, I've been wearing Hey Dude Shoes' Wally Sport Mesh, and I must say, they're quite a breath of fresh air for my shoes collection! The first thing that struck me is the abundance of colors they offer. It's like a fun palette explosion. The shoe fits like a glove, with the textile upper providing a snug, comfy sensation. The foam insole is another treat that's hard to forget. It's like the shoe is saying, "Feel good, all day long! "
 
@@ -75,9 +75,9 @@ However, the only downside I found is that the shoe does require replacement ins
 Apart from that, the supportive and flexible outsole of the shoe makes it a great companion for any adventure that comes my way. The Wally Sport Mesh by Hey Dudes is surely a comfy and stylish choice that could potentially leave you with a smile on your face all day long. I do highly recommend giving them a try! 
 
 
-### [Stylish Hey Dude Wendy Rodeo Slip-On Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=stylish-hey-dude-wendy-rodeo-slip-on-shoes)
+### [Stylish Hey Dude Wendy Rodeo Slip-On Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=stylish-hey-dude-wendy-rodeo-slip-on-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=stylish-hey-dude-wendy-rodeo-slip-on-shoes"><img alt="hey-dude-wendy-rodeo-slip-on-11-womens-star-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wendy-rodeo-slip-on-11-womens-star-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=stylish-hey-dude-wendy-rodeo-slip-on-shoes"><img alt="hey-dude-wendy-rodeo-slip-on-11-womens-star-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wendy-rodeo-slip-on-11-womens-star-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey Dudes never cease to amaze me with their comfortable and versatile shoe designs. I recently tried on the Hey Dude Wendy Rodeo Star slip-on shoes, and I was blown away by how comfortable and stylish they were. The cotton canvas upper is breathable and flexible, making it perfect for all-day wear. I was particularly impressed with the easy-on system that features no-tie elastic laces, which made it a breeze to slip them on and off. 
 
@@ -86,27 +86,27 @@ One feature that really stood out to me is the removable memory-foam insole. Aft
 However, there's one area where Hey Dude could improve – sizing. I found that the shoes run quite big, so make sure to size down one if you're planning to buy a pair. Additionally, the color and print might vary slightly due to different manufacturing methods, but overall, the shoes are still a great choice for anyone looking for a comfortable and stylish slip-on shoe. 
 
 
-### [Hey Dude Wally Youth Tri Varsity Big Kids' Shoes - Grey (Size 5)](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-youth-tri-varsity-big-kids-shoes-grey-size-5)
+### [Hey Dude Wally Youth Tri Varsity Big Kids' Shoes - Grey (Size 5)](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-youth-tri-varsity-big-kids-shoes-grey-size-5)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-youth-tri-varsity-big-kids-shoes-grey-size-5"><img alt="heydude-big-kids-shoes-wally-youth-tri-varsity-grey-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-big-kids-shoes-wally-youth-tri-varsity-grey-size-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-youth-tri-varsity-big-kids-shoes-grey-size-5"><img alt="heydude-big-kids-shoes-wally-youth-tri-varsity-grey-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-big-kids-shoes-wally-youth-tri-varsity-grey-size-5-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hey Dude Wally Youth Tri Varsity shoes are a stylish and comfortable option for the young ones. Made with a rubber sole, these shoes are perfect for everyday wear. The Tri Varsity design adds a fun touch to the footwear, and the color selection caters to various preferences. 
 
 Customers love the comfortable fit that these shoes offer, and the shoes are even suitable for kids with wider feet. However, there have been some concerns about the sizing, with some consumers mentioning that the shoes run small and need to be returned for a larger size. Additionally, there have been issues with the delivery process and customer service, but overall, the Hey Dude Wally Youth Tri Varsity shoes receive positive reviews from parents and kids alike. 
 
 
-### [Hey Dude Women's Slip-On Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-womens-slip-on-shoes)
+### [Hey Dude Women's Slip-On Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-womens-slip-on-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-womens-slip-on-shoes"><img alt="heydude-womens-casual-wendy-stretch-canvas-neon-pink-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-casual-wendy-stretch-canvas-neon-pink-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-womens-slip-on-shoes"><img alt="heydude-womens-casual-wendy-stretch-canvas-neon-pink-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-casual-wendy-stretch-canvas-neon-pink-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 These Wendy slip-ons from Hey Dude are all about comfort and casual style that every woman craves. The Flex & Fold outsole adds a lightweight touch, making it perfect for easy wear and daily use. The cushioned footbed compliments your foot's unique shape, offering customized comfort on-the-go. 
 
 However, be careful with sizing - some reviewers found that the shoes didn't fit quite right, so you'll want to make sure to order the perfect size to ensure a comfortable walking experience. 
 
 
-### [Hey Dude Wally - Micro Total Black Comfortable Casual Shoes for Men (10)](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-micro-total-black-comfortable-casual-shoes-for-men-10)
+### [Hey Dude Wally - Micro Total Black Comfortable Casual Shoes for Men (10)](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-micro-total-black-comfortable-casual-shoes-for-men-10)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-micro-total-black-comfortable-casual-shoes-for-men-10"><img alt="hey-dude-wally-sox-micro-total-black-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wally-sox-micro-total-black-10-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-micro-total-black-comfortable-casual-shoes-for-men-10"><img alt="hey-dude-wally-sox-micro-total-black-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wally-sox-micro-total-black-10-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on a pair of Hey Dude's Wally Sox Micro Total Black 10 shoes and I must say, I was pleasantly surprised. As someone who values comfort and style, these shoes seemed like the perfect match for me. 
 
@@ -117,9 +117,9 @@ The ultra-light outsole made walking in these shoes a breeze. They felt so incre
 However, there was one downside to these shoes that I noticed. Despite the wide range of sizes available, I found that they weren't quite true to size. I had to order a size larger than my usual, which resulted in a slightly loose fit. Other than this minor issue, I was really impressed with the Hey Dude's Wally Sox Micro Total Black 10 shoes. They blend comfort, style, and function, and I would definitely recommend them to anyone in the market for a new pair of casual shoes. 
 
 
-### [Hey Dude Men's Wally Sox Shoes: Ultra-Comfortable Stretch Knit Design](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sox-shoes-ultra-comfortable-stretch-knit-design)
+### [Hey Dude Men's Wally Sox Shoes: Ultra-Comfortable Stretch Knit Design](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sox-shoes-ultra-comfortable-stretch-knit-design)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sox-shoes-ultra-comfortable-stretch-knit-design"><img alt="hey-dude-mens-wally-sox-shoes-ice-grey-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-shoes-ice-grey-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sox-shoes-ultra-comfortable-stretch-knit-design"><img alt="hey-dude-mens-wally-sox-shoes-ice-grey-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-shoes-ice-grey-11-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hey Dude Men's Wally Sox Shoes Ice Grey 11 offer a unique blend of style and comfort. These shoes feature a knit upper that conforms to the shape of your foot, providing supportive foot movements, while the memory foam insole ensures a smooth and cushioned underfoot experience. The wide forefoot vamp and round toe design contribute to the comfortable in-shoe feel. 
 
@@ -128,9 +128,9 @@ The shoes are built on an ultralight outsole and utilize an easy-on system with 
 Although some users have reported sizing issues, the majority of customers highly recommend Hey Dude for their amazing shoe collection, praising the style, comfort, and quality of their shoes. 
 
 
-### [Hey Dude Wally Sox: Stylish Brown Casual Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-stylish-brown-casual-shoes)
+### [Hey Dude Wally Sox: Stylish Brown Casual Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-stylish-brown-casual-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-stylish-brown-casual-shoes"><img alt="hey-dude-mens-wally-sox-casual-shoes-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-casual-shoes-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-stylish-brown-casual-shoes"><img alt="hey-dude-mens-wally-sox-casual-shoes-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-casual-shoes-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hey Dude Men's Wally Sox casual shoes offer a unique blend of style and comfort. These shoes feature a textile upper, making them lightweight and easy to break in, while elastic laces ensure a snug fit. The lightweight outsole provides excellent traction, and the removable foam insole adds an extra layer of cushioning for added comfort. 
 
@@ -139,9 +139,9 @@ The easy-on system and easy-to-wash design make these shoes perfect for travel o
 Overall, the Hey Dude Men's Wally Sox casual shoes are a great choice for those looking for a versatile, stylish, and comfortable pair of shoes. 
 
 
-### [Hey Dude Summer Sox Men's Shoes for Ultimate Comfort](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-summer-sox-mens-shoes-for-ultimate-comfort)
+### [Hey Dude Summer Sox Men's Shoes for Ultimate Comfort](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-summer-sox-mens-shoes-for-ultimate-comfort)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-summer-sox-mens-shoes-for-ultimate-comfort"><img alt="hey-dude-mens-wally-sox-stitch-shoes-sand-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-stitch-shoes-sand-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-summer-sox-mens-shoes-for-ultimate-comfort"><img alt="hey-dude-mens-wally-sox-stitch-shoes-sand-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-stitch-shoes-sand-8-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Hey Dude Men's Wally Sox Stitch Shoes Sand, a stylish and comfy summertime essential. These shoes offer a unique mix of high-quality materials and innovative design elements that enhance comfort and durability. 
 
@@ -150,9 +150,9 @@ The knit textured upper, backed by a cotton-blend lining, ensures breathability 
 And not to worry about keeping them clean – these shoes are machine washable! The Hey Dude Men's Wally Sox Stitch Shoes Sand are the perfect blend of stylish design and comfortable performance, making them the ultimate choice for your summer footwear needs. 
 
 
-### [Hey Dude Wally Workwear Shoes: Stylish, Comfortable, and Easy to Clean](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-workwear-shoes-stylish-comfortable-and-easy-to-clean)
+### [Hey Dude Wally Workwear Shoes: Stylish, Comfortable, and Easy to Clean](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-workwear-shoes-stylish-comfortable-and-easy-to-clean)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-workwear-shoes-stylish-comfortable-and-easy-to-clean"><img alt="hey-dude-mens-wally-workwear-shoes-size-11-olive-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-workwear-shoes-size-11-olive-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-workwear-shoes-stylish-comfortable-and-easy-to-clean"><img alt="hey-dude-mens-wally-workwear-shoes-size-11-olive-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-workwear-shoes-size-11-olive-green-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever since I started using Hey Dude's Wally workwear shoes, I must say, I've been thoroughly impressed. These shoes are a true blend of style and functionality. The denim and twill upper not only adds a touch of elegance but also makes it suitable for any casual or office setting. The Easy-On system with elastic laces saves me time during mornings when I rush getting dressed. The lightweight and flexible sole further enhances my comfort during those long, tiring workdays. 
 
@@ -161,9 +161,9 @@ When it comes to the insides, the removable foam insole cushions my feet beautif
 This versatile version of Hey Dude's slip-on shoes has become a staple in my wardrobe, not just for its functionality but also for its stylish design. It makes me wonder how I managed without it before. But remember, these shoes do run a bit small, so it's crucial to check sizing charts before making a purchase. Overall, these slip-ons are definitely worth a try! 
 
 
-### [Hey Dude Wally Sox Ice Grey Loafer: Lightweight Knitted Shoes with Memory Foam Insole](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-ice-grey-loafer-lightweight-knitted-shoes-with-memory-foam-insole)
+### [Hey Dude Wally Sox Ice Grey Loafer: Lightweight Knitted Shoes with Memory Foam Insole](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-ice-grey-loafer-lightweight-knitted-shoes-with-memory-foam-insole)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-ice-grey-loafer-lightweight-knitted-shoes-with-memory-foam-insole"><img alt="hey-dude-110350127-mens-wally-sox-ice-grey-loafer-size-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-110350127-mens-wally-sox-ice-grey-loafer-size-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-ice-grey-loafer-lightweight-knitted-shoes-with-memory-foam-insole"><img alt="hey-dude-110350127-mens-wally-sox-ice-grey-loafer-size-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-110350127-mens-wally-sox-ice-grey-loafer-size-8-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out a pair of Hey Dude's Men's Wally Sox in Ice Grey and my experience was quite delightful. Right out of the box, I noticed the impressive knitted upper - it's certainly a stylish statement. What intrigued me the most, though, was the addition of memory foam in the insole which offered plush comfort with every step I took. 
 
@@ -176,18 +176,18 @@ Also, it seemed that the shoe was cut a little lower at the rear than most of my
 Overall, I found Hey Dude's Men's Wally Sox to be a comfy and stylish choice, however, the narrow toe box and slightly lower rear cut did make a difference in my experience. Nonetheless, I've seen other positive reviews that suggest these might be more comfortable to others. 
 
 
-### [Hey Dude Wally Plaid Men's Shoes: Stylish, Comfortable, and Easy to Clean](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-plaid-mens-shoes-stylish-comfortable-and-easy-to-clean)
+### [Hey Dude Wally Plaid Men's Shoes: Stylish, Comfortable, and Easy to Clean](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-plaid-mens-shoes-stylish-comfortable-and-easy-to-clean)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-plaid-mens-shoes-stylish-comfortable-and-easy-to-clean"><img alt="hey-dude-wally-plaid-mens-shoes-brown-8-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wally-plaid-mens-shoes-brown-8-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-plaid-mens-shoes-stylish-comfortable-and-easy-to-clean"><img alt="hey-dude-wally-plaid-mens-shoes-brown-8-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-wally-plaid-mens-shoes-brown-8-m-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey Dude Wally Plaid Men's Shoes are a fun, stylish, and comfortable option for those looking to spice up their casual wardrobe. The textile upper, featuring a plaid design, provides a comfortable and eye-catching fit. These shoes also come equipped with a non-tying elastic lacing system, making it easy to slip them on and off. 
 
 The lightweight and flexible sole offer a comfortable, natural stride, while the removable foam insole ensures proper cushioning. Another bonus? These shoes can easily be washed, making them a practical choice for everyday wear. The Hey Dude Wally Plaid Men's Shoes not only look great but also provide the comfort and style you need. Worn and loved by many, these shoes are a standout choice for those looking to make a fashionable statement. 
 
 
-### [Hey Dude Wally Sox Stitch: Orion Blue Casual Men's Shoes - Size 11](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-stitch-orion-blue-casual-mens-shoes-size-11)
+### [Hey Dude Wally Sox Stitch: Orion Blue Casual Men's Shoes - Size 11](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-stitch-orion-blue-casual-mens-shoes-size-11)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-stitch-orion-blue-casual-mens-shoes-size-11"><img alt="heydude-mens-casual-wally-sox-stitch-orion-blue-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-mens-casual-wally-sox-stitch-orion-blue-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-stitch-orion-blue-casual-mens-shoes-size-11"><img alt="heydude-mens-casual-wally-sox-stitch-orion-blue-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-mens-casual-wally-sox-stitch-orion-blue-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey Dude's Wally Sox shoes made a delightful entrance into my wardrobe. Their iconic moccasin style and sleek blue hue caught my attention right away, but it was the fit that truly won me over. The stretch-polyester blend upper hugged my foot perfectly, allowing for a comfortable and snug fit. And don't get me started on the cushioned ankle collar! It wrapped around my foot like a warm embrace, providing the right amount of support without being too restrictive. 
 
@@ -198,9 +198,9 @@ Now for a little constructive feedback. Washing my Wally Sox required a bit of s
 Despite these minor setbacks, Hey Dude's Wally Sox proved to be an excellent addition to my wardrobe. Their effortless comfort and stylish flair are undeniably worth the investment. Whether I'm heading out for a casual day or just lounging around the house, I can count on my Wally Sox for a smooth and snug fit that keeps my feet dancing throughout the day! 
 
 
-### [Hey Dude Men's Wally Sox: Comfortable and Durable Lightweight Casual Shoes - Blue/Orange](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sox-comfortable-and-durable-lightweight-casual-shoes-blue-orange)
+### [Hey Dude Men's Wally Sox: Comfortable and Durable Lightweight Casual Shoes - Blue/Orange](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-mens-wally-sox-comfortable-and-durable-lightweight-casual-shoes-blue-orange)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sox-comfortable-and-durable-lightweight-casual-shoes-blue-orange"><img alt="hey-dude-mens-wally-sox-casual-shoes-blue-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-casual-shoes-blue-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-mens-wally-sox-comfortable-and-durable-lightweight-casual-shoes-blue-orange"><img alt="hey-dude-mens-wally-sox-casual-shoes-blue-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-casual-shoes-blue-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the pleasure of trying out the Hey Dude Men's Wally Sox casual shoes in the blue/orange color. From the moment I slipped them on, I was blown away by their comfort. The shoe's memory foam insole molded perfectly to the shape of my feet, making it feel like I was walking on a cloud. Additionally, the synthetic upper material was a game-changer for me, as it provided excellent durability and protection against scuffs and abrasions. 
 
@@ -209,18 +209,18 @@ However, there was one downside to these shoes - the Flex & Fold technology. Alt
 Overall, the Hey Dude Wally Sox casual shoes were incredibly comfortable and stylish, but the Flex & Fold technology was a bit of a letdown. If you're looking for a lightweight, comfortable, and fashionable shoe, these might be worth giving a try. 
 
 
-### [Women's Hey Dude Wendy Boho Embroidered Shoes in Grey Size 5](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=womens-hey-dude-wendy-boho-embroidered-shoes-in-grey-size-5)
+### [Women's Hey Dude Wendy Boho Embroidered Shoes in Grey Size 5](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=womens-hey-dude-wendy-boho-embroidered-shoes-in-grey-size-5)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=womens-hey-dude-wendy-boho-embroidered-shoes-in-grey-size-5"><img alt="heydude-womens-casual-wendy-boho-embroidery-grey-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-casual-wendy-boho-embroidery-grey-size-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=womens-hey-dude-wendy-boho-embroidered-shoes-in-grey-size-5"><img alt="heydude-womens-casual-wendy-boho-embroidery-grey-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heydude-womens-casual-wendy-boho-embroidery-grey-size-6/h=540,fit=pad,background=black"/></a></div>
 
 Hey Dude Women's Casual Weddy Boho Embroidery Grey offers both style and comfort, thanks to its unique blend of materials, such as cotton-blend upper, embroidered fabric, and crochet details. The shoes feature an easy-on system with cotton laces, an ultralight outsole, and leather-lined, removable insoles. The flexible design adds to its overall versatility and casual appeal, making it a popular choice for everyday wear and festival-going. 
 
 Despite the comfortable shoe experience, some users have noted that sizing can be an issue, requiring some trial and error to find the perfect fit. Overall, these shoes offer a unique and attractive alternative for those seeking comfortable, stylish footwear. 
 
 
-### [Hey Dude Wally Sox Men's Ash Shoes](https://serp.ly/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-mens-ash-shoes)
+### [Hey Dude Wally Sox Men's Ash Shoes](https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm\_term=hey-dude-wally-sox-mens-ash-shoes)
 
-<div class="image"><a href="https://serp.ly/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-mens-ash-shoes"><img alt="hey-dude-mens-wally-sox-shoes-ash-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-shoes-ash-9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@outrun/amazon/Hey+Dude+Shoes?utm_term=hey-dude-wally-sox-mens-ash-shoes"><img alt="hey-dude-mens-wally-sox-shoes-ash-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hey-dude-mens-wally-sox-shoes-ash-9-1/h=540,fit=pad,background=black"/></a></div>
 
 These Hey Dude Wally Sox shoes offer a perfect balance of style and comfort. The memory foam insole provides exceptional support, while the over-stitched seams create a casual, effortless appearance. 
 
