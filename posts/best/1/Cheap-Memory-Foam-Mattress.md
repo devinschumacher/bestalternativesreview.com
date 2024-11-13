@@ -1,9 +1,8 @@
 ---
-
 title: Sleep Comfortably on a Budget -  Our Top 19 Cheap Memory Foam Mattresses
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Memory-Foam-Mattress.md
 ---
 
 Say goodbye to sleepless nights and hello to sweet dreams with our roundup of the best affordable memory foam mattresses. In this article, we've handpicked a selection of quality options that won't break the bank while still providing the comfort and support you need for a restful night's sleep. Read on to find your perfect match! 

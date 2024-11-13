@@ -1,9 +1,8 @@
 ---
-
 title: Stay Cool and Confident -  48 Best Mesh Shorts for Athletic Performance and Style
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mesh-Shorts.md
 ---
 
 Summertime is all about staying cool and comfortable, and what better way to do that than with a pair of mesh shorts? In this article, we'll be rounding up the top picks for the season, showcasing a variety of styles, materials, and price points to suit any budget. From workout-friendly options to casual and versatile designs, we've got you covered! 

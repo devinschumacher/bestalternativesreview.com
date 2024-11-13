@@ -1,9 +1,8 @@
 ---
-
 title: Celebrate the King of Pop with the Top 11 Michael Jackson Funko Pop Collectibles
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Michael-Jackson-Funko-Pop.md
 ---
 
 Put on your dancing shoes and get ready to groove, because we're diving into the world of collector's items with a roundup of the hottest Michael Jackson Funko Pops! From his iconic moonwalk look to his timeless hits, we'll be exploring the various designs that pay tribute to the King of Pop. Whether you're a die-hard fan or just dabbling in the world of Funko Pops, this article has got you covered. 

@@ -1,9 +1,8 @@
 ---
-
 title: Black Eyeshadow -  Top 15 Eyeshadow Palettes for Dramatic and Versatile Looks
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Eyeshadow.md
 ---
 
 If you're in search of the perfect black eyeshadow to elevate your makeup game, look no further. In this comprehensive roundup, we've curated a selection of top-rated options designed to suit a range of skin types and styles. From matte to shimmery finishes, we've got you covered. Step into the world of black eyeshadow and let your creativity run wild. 

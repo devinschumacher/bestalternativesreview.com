@@ -1,9 +1,8 @@
 ---
-
 title: Discover the Top 20 Backless Benches for Comfort and Style
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Backless-Bench.md
 ---
 
 If you're looking to add a touch of elegance to your outdoor space, the Backless Bench is the perfect addition. This article brings you a roundup of the top backless benches on the market, ensuring you find the perfect fit for your garden or patio. 

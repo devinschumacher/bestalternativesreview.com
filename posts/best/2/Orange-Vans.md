@@ -1,9 +1,8 @@
 ---
-
 title: Discover the Top 16 Orange Vans for Your Next Adventure
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Orange-Vans.md
 ---
 
 Discover the top orange vans on the market that'll make your head turn! In this roundup, we've handpicked the best options for your next adventure, ensuring style, durability, and performance. Get ready to hit the road in style with our selection of orange vans. 

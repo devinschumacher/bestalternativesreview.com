@@ -1,9 +1,8 @@
 ---
-
 title: Unleash Comfort on a Budget -  Top 18 Cheap Running Shoes for Every Footprint
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Running-Shoes.md
 ---
 
 Strap on your running shoes and let's dive into the world of budget-friendly footwear! In this article, we'll be checking out some of the best cheap running shoes that don't compromise on quality. Get ready to find the perfect pair for your next jog, all while saving money! 

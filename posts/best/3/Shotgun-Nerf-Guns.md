@@ -1,9 +1,8 @@
 ---
-
 title: Ready, Aim, Fire! The Top 17 Shotgun Nerf Guns for Nerf Wars and Fun
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shotgun-Nerf-Guns.md
 ---
 
 Are you looking for a fun and unique way to engage in nerf gun play? Look no further than our roundup of the top shotgun nerf guns. In this article, we'll showcase some of the most impressive and versatile shotgun nerf guns available on the market, guaranteed to add excitement to your next nerf gun battle. 

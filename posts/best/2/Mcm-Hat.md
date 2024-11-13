@@ -1,9 +1,8 @@
 ---
-
 title: Making a Statement -  Top 20 Mcm Hats for Your Bold and Classic Look
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mcm-Hat.md
 ---
 
 Get ready to impress with this stylish and unique collection of Mcm Hats! 

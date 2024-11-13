@@ -1,9 +1,8 @@
 ---
-
 title: Optimize Your Health with the Best Potassium Supplements -  50 Top Picks
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potassium-Supplement.md
 ---
 
 Welcome to our guide on Potassium Supplements! Delve into the world of health supplements as we present your roundup of some top-of-the-line Potassium products to keep your body in top shape. 

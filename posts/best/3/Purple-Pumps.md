@@ -1,9 +1,8 @@
 ---
-
 title: Step Up Your Style Game -  29 Best Purple Pumps for Fashionable Flair
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Purple-Pumps.md
 ---
 
 Step into the world of fashion with our latest roundup: Purple Pumps! 

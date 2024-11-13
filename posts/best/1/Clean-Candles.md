@@ -1,9 +1,8 @@
 ---
-
 title: Freshen Your Home with These Top 20 Clean Candles
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Clean-Candles.md
 ---
 
 Looking for a cleaner and healthier alternative to traditional candles? You're in luck! In this article, we round up some of the best clean candle options on the market. From all-natural soy wax to lead-free cotton wicks, discover the top choices that will make your home smell great without compromising your health. 

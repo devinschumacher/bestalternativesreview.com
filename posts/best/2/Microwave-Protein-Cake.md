@@ -1,9 +1,8 @@
 ---
-
 title: Healthy Microwave Protein Cakes -  Quick and Easy Snacks - Our Top 16 Picks
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Microwave-Protein-Cake.md
 ---
 
 Looking for a quick and easy way to satisfy your sweet tooth while keeping it healthy? Then, our Microwave Protein Cake roundup article is just what you need! From delicious chocolate chip options to scrumptious banana nut cakes, we've compiled a list of the best microwave protein cakes that will leave you feeling full and satisfied, without compromising your fitness goals. 

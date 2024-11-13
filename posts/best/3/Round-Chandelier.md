@@ -1,9 +1,8 @@
 ---
-
 title: The Top 19 Stunning Round Chandeliers to Brighten Your Space
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Round-Chandelier.md
 ---
 
 Welcome to our roundup of the most stunning **Round Chandelier** designs! In this article, we'll be exploring the latest trends in chandelier design, showcasing a variety of unique and captivating options that will elevate your space to new heights. Get ready to be dazzled as we reveal the perfect round chandelier for your home or office. 

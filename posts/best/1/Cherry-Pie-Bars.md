@@ -1,9 +1,8 @@
 ---
-
 title: Satisfy Your Cravings -  The Top 30 Cherry Pie Bars for a Sweet Treat
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cherry-Pie-Bars.md
 ---
 
 Looking for a delightful and easy-to-make dessert that brings a burst of cherry flavor to your taste buds? You're in luck! This article features a roundup of the best Cherry Pie Bars, each one offering a unique spin on the classic cherry pie recipe. From gooey to crunchy, you'll find a variety of mouth-watering treats to satisfy your sweet tooth. 

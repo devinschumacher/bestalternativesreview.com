@@ -1,9 +1,8 @@
 ---
-
 title: Affordable Luxury -  Our Top 19 Cheap Dog Beds for Comfort and Style
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Dog-Beds.md
 ---
 
 Are you looking for a cozy spot for your furry friend to snooze? Look no further! In this article, we'll be reviewing some of the best cheap dog beds on the market. These affordable options will not only keep your pup comfortable but also won't break the bank. Get ready to find the perfect bed for your beloved pet. 

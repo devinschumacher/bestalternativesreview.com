@@ -1,9 +1,8 @@
 ---
-
 title: Unleash Your Furry Friend's Adventure -  Top 18 Cat Drone Toys
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cat-Drones.md
 ---
 
 Ready for some "meow-sing" fun? Cat drones are the latest trend in pet tech, and we're here to make some feline friends fly high! Get your claws into the best cat drones of the year, and watch your furry friend take to the sky with a cat's eye view to boot. 

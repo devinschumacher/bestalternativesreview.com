@@ -1,9 +1,8 @@
 ---
-
 title: Top 27 Side Tables with Drawers -  Organize Your Space in Style
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Side-Table-With-Drawer.md
 ---
 
 Are you in search of a versatile addition to your living room or home office space? Look no further! In this article, we present a roundup of top-notch side tables with drawers that will not only enhance your room's aesthetics but also serve as a practical storage solution. Get ready to discover your perfect match and transform your space. 

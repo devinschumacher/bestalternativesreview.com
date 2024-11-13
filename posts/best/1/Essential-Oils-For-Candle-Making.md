@@ -1,9 +1,8 @@
 ---
-
 title: Discover the Top 16 Essential Oils for Creating Amazing Candles
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md
 ---
 
 Welcome to our roundup of the best essential oils for candle making! Whether you're a beginner or a seasoned candle crafter, this guide will provide you with a range of fragrances that are perfect for enhancing your candle creations. From refreshing citrus scents to calming lavender and everything in between, we've got you covered. So sit back, relax, and let's explore the world of essential oils for candle making together. 

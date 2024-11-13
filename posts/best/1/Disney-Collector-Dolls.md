@@ -1,9 +1,8 @@
 ---
-
 title: Discover the Magic -  Top 18 Disney Collector Dolls to Add to Your Collection
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Disney-Collector-Dolls.md
 ---
 
 Step into the magical world of Disney collectibles as we showcase a selection of enchanting Disney collector dolls, each captured in unparalleled detail, captivating character, and charming charm. 

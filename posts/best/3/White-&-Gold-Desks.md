@@ -1,9 +1,8 @@
 ---
-
 title: Transform Your Space with These 38 Best White & Gold Desks
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-&-Gold-Desks.md
 ---
 
 Welcome to our white & gold desk roundup! Whether you're a fan of minimalistic design or a lover of all things elegant, we've got you covered. Join us as we explore some of the most exquisite white and gold desks that will turn your office into a work of art. 

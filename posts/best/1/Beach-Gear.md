@@ -1,9 +1,8 @@
 ---
-
 title: Beach Vacation Essentials -  Our Top 46 Recommended Beach Gear
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beach-Gear.md
 ---
 
 Get ready to hit the shore with our ultimate guide to the best Beach Gear! 

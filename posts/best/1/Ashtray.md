@@ -1,9 +1,8 @@
 ---
-
 title: The Top 13 Ashtrays for A Smoke-Free Environment
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Ashtray.md
 ---
 
 Get ready to enhance your smoking experience with our top picks for ashtrays. From sleek designs to environmentally friendly options, we've got it all. 

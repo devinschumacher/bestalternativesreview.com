@@ -1,9 +1,8 @@
 ---
-
 title: Skate to School -  19 Best Skateboard Backpacks for Active Students
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Skateboard-Backpack.md
 ---
 
 Welcome skateboard enthusiasts! If you're in need of a versatile and stylish carry solution for all your gear, look no further. In this article, we'll introduce you to the best Skateboard Backpacks on the market, designed to keep your belongings safe and secure while you're cruising the streets or hitting the ramps. 

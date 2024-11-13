@@ -1,9 +1,8 @@
 ---
-
 title: Aromatherapeutic Bliss -  13 Best Spruce Essential Oil Products for Calm and Refreshing Home Scents
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Spruce-Essential-Oil.md
 ---
 
 Welcome to the world of Spruce Essential Oil! In this article, we're going to explore a wide range of products that feature this invigorating and refreshing essential oil

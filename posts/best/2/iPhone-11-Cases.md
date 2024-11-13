@@ -1,9 +1,8 @@
 ---
-
 title: Protect Your iPhone 11 with the Best 19 of Cases on the Market
 
 date: 2024-07-28
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/iPhone-11-Cases.md
 ---
 
 Are you tired of constantly worrying about your iPhone 11's safety against accidental drops and scratches? Look no further! We've gathered a collection of the top Iphone 11 cases that not only offer reliable protection but also add a touch of style to your device. From sleek leather cases to rugged military-grade options, we've got you covered. Read on to find the perfect case for your Iphone 11 and enjoy a peace of mind. 

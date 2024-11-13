@@ -1,9 +1,8 @@
 ---
-
 title: Organize Your Space -  49 Best Small Desk Tables for Compact Work Spaces
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Desk-Table.md
 ---
 
 Looking for a small desk table that won't take up too much space in your room? You're in luck! In this article, we will be showcasing a variety of compact desk tables that are perfect for small spaces, while still offering functionality and style. From minimalist designs to unique shapes, we've got you covered. Get ready to browse through our selection of top-quality small desk tables. 

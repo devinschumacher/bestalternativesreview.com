@@ -1,9 +1,8 @@
 ---
-
 title: Royal Rest -  14 Best Tufted King Beds for an Opulent Sleep Experience
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tufted-King-Bed.md
 ---
 
 Get ready to indulge in opulence with our roundup of the best **Tufted King Bed** options on the market. 

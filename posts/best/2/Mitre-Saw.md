@@ -1,9 +1,8 @@
 ---
-
 title: Best Mitre Saws for Accurate Angle Cuts -  Our Top 17 Picks
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mitre-Saw.md
 ---
 
 Get ready to cut through the clutter and discover the best mitre saws on the market

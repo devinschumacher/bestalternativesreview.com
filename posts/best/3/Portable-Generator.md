@@ -1,9 +1,8 @@
 ---
-
 title: Power On the Go -  20 Best Portable Generators for Emergency and Outdoor Use
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Portable-Generator.md
 ---
 
 Welcome! Today, we're diving into the world of portable generators. Whether you're an outdoors enthusiast preparing for a camping trip or a homeowner needing a backup power source during a blackout, a reliable portable generator can be your lifesaver. Our roundup covers top-rated models in the market, offering comprehensive reviews to help guide your decision. So, buckle up and let's explore the world of portable generators together! 

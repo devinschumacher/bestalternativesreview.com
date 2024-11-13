@@ -1,9 +1,8 @@
 ---
-
 title: Study Smart -  18 Best Student Desks to Boost Productivity and Organization
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Student-Desk.md
 ---
 
 Get ready to organize your study space with the best student desks on the market! In this roundup, we've gathered a collection of desks tailored to fit the needs of students, offering style, functionality, and versatility. Whether you're looking for a sleek and modern design or a sturdy and ergonomic solution, we've got you covered. 

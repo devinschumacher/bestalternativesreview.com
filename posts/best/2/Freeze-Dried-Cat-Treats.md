@@ -1,9 +1,8 @@
 ---
-
 title: Purrfectly Delicious -  17 Best Freeze Dried Cat Treats for Healthy and Enjoyable Snacking
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Freeze-Dried-Cat-Treats.md
 ---
 
 Indulge your furry friend with the premium taste of the Freeze Dried Cat Treats! This collection of scrumptious treats is made to please your cat's palate while maintaining the highest quality [cat food standards](https: //www. health. com/health/food/cat-food-recall/). Explore our top-rated freeze-dried cat treats and let your cat enjoy the best snack time ever. 

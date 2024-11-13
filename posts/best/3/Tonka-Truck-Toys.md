@@ -1,9 +1,8 @@
 ---
-
 title: 10 Classic Tonka Truck Toys -  Relive Your Childhood with the Best of the Best
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tonka-Truck-Toys.md
 ---
 
 Welcome to the world of Tonka Truck Toys, where imagination and adventure come together in the form of durable and fun-filled playsets. Whether you're searching for the perfect gift for a young child, or looking to replenish your own collection of toy trucks, this roundup is your go-to guide for all things Tonka. 

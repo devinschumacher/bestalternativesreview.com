@@ -1,9 +1,8 @@
 ---
-
 title: Organize Your Sleep Space -  Our Top 47 Picks for Bedroom Desks with Drawers
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bedroom-Desk-With-Drawers.md
 ---
 
 Welcome to our roundup of the top bedroom desks with drawers, designed to help you organize your space while adding a touch of elegance to your bedroom. From sleek and modern to classic and timeless, we've curated a selection of desks that cater to various tastes and styles. Get ready to discover the perfect addition to your bedroom retreat! 

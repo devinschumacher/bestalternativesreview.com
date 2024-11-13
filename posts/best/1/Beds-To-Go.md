@@ -1,9 +1,8 @@
 ---
-
 title: The Best Beds To Go -  Top 5 High-Quality Folding Beds for Compact Living
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beds-To-Go.md
 ---
 
 Get ready to discover a range of versatile and comfortable bed options with our comprehensive roundup of Beds To Go. From cozy sleeping solutions to stylish statement pieces, we've curated a selection of beds that cater to various tastes and budgets, ensuring a restful night's sleep is just a click away. 

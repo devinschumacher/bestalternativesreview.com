@@ -1,9 +1,8 @@
 ---
-
 title: Choose Your Best Bridesmaid -  21 Best Sage Bridesmaid Dresses for a Gorgeous Wedding Party
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sage-Bridesmaid-Dresses.md
 ---
 
 Are you looking for the perfect shade of green to complement your wedding theme? Look no further, as we present a roundup of the best **Sage Bridesmaid Dresses** that perfectly capture the essence of nature and the outdoors. 

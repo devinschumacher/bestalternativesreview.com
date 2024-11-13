@@ -1,9 +1,8 @@
 ---
-
 title: Unleash Your Adventure -  18 Best Hot Tent Options for Your Next Outdoor Experience
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hot-Tent.md
 ---
 
 Hot Tent: A Cozy Retreat for Your Next Adventure

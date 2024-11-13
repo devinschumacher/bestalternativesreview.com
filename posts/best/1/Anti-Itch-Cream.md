@@ -1,9 +1,8 @@
 ---
-
 title: Relieve Itchy Skin with the Best 14 Anti-Itch Creams and Ointments
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Anti-Itch-Cream.md
 ---
 
 Say goodbye to those pesky itchy rashes and hello to soothing relief with our roundup of the best anti itch creams on the market. In this article, we'll be exploring the top options to help you find the perfect solution for your itchy skin woes. 

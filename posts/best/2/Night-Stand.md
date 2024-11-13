@@ -1,9 +1,8 @@
 ---
-
 title: Our Top 50 Night Stands for Functionality and Style in Your Bedroom
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Night-Stand.md
 ---
 
 For those seeking the perfect addition to complete their bedroom space, our roundup of the most notable Night Stands has got you covered. 

@@ -1,9 +1,8 @@
 ---
-
 title: The Top 20 Cool Dog Leashes for Stylish and Comfortable Walks
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cool-Dog-Leashes.md
 ---
 
 Who doesn't love a good accessory that highlights our pet's personality while adding a touch of style? 

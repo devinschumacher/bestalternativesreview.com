@@ -1,9 +1,8 @@
 ---
-
 title: Unforgettable Tales -  23 Best Jerry Spinelli Books for an Unforgettable Reading Experience
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Jerry-Spinelli-Books.md
 ---
 
 Are you a fan of heartwarming stories that tug at your emotions, written by a master of literary craftsmanship? Look no further! This roundup of Jerry Spinelli Books offers a diverse collection of novels, all promising to transport you to a world of adventure, love, and personal growth. From classics like "Maniac Magee" to recent releases, we've got you covered with this engaging overview of Spinelli's literary universe. 

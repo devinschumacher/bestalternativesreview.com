@@ -1,9 +1,8 @@
 ---
-
 title: Keep Your Wine Cool and Crisp -  Top 46 Wine Chillers for Your Home Bar
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wine-Chiller.md
 ---
 
 If you're a wine enthusiast looking to elevate your drinking experience, a wine chiller is a must-have addition to your collection. In this article, we'll be taking a closer look at some of the top wine chillers on the market - perfect for both casual and serious wine lovers alike. 

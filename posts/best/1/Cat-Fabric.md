@@ -1,9 +1,8 @@
 ---
-
 title: Cuddle Up in Style -  Top 15 Cat Fabric Picks for the Perfect Feline-Inspired Home Decor
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cat-Fabric.md
 ---
 
 Welcome to our exciting journey through the world of cat fabric! Get ready to explore a delightful selection of fabrics designed specifically for your feline friends. In this article, we'll showcase an array of fabrics that are both stylish and functional, perfect for creating cozy cat beds, toys, and more. 

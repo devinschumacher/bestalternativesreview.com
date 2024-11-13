@@ -1,9 +1,8 @@
 ---
-
 title: Unleash Your Imagination with the Best 10 Alien Puppets for Creative Play and Fun Times
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Alien-Puppets.md
 ---
 
 Hey there, space aficionados! Are you ready to enter a bold and imaginative world of aliens and puppets? 

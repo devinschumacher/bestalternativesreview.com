@@ -1,9 +1,8 @@
 ---
-
 title: Rock Out With the Best -  20 Orange Amps for Unmatched Audio and Stage Performance
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Orange-Amps.md
 ---
 
 Get ready to rock with our comprehensive roundup of Orange Amps, the iconic British guitar amp brand that has been rocking stages for decades. 

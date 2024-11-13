@@ -1,9 +1,8 @@
 ---
-
 title: Cuddle Up -  23 Best Loveseat Sofas for Cozy Couples and Movie Nights
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Loveseat-Sofa.md
 ---
 
 Introducing Loveseat Sofa: A Comprehensive Guide

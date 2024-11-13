@@ -1,9 +1,8 @@
 ---
-
 title: Cool Off in Style -  Our Top 18 Best Selling Electric Air Conditioners for Home and Office
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Electric-Air-Conditioner.md
 ---
 
 Are you tired of sweltering in the heat during the summer months? Look no further than our top picks for electric air conditioners that will keep you cool and comfortable in your own home. In this roundup, we'll showcase the best models on the market, highlighting their features, pros, and cons to help you make an informed decision on your next purchase. 

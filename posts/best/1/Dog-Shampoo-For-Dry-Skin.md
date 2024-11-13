@@ -1,9 +1,8 @@
 ---
-
 title: Soothe and Shine -  50 Top Dog Shampoos for Dry Skin Relief and Radiant Coats
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Shampoo-For-Dry-Skin.md
 ---
 
 Are you concerned about your furry friend's dry skin? Look no further! In this article, we'll be rounding up some of the best dog shampoos on the market that are specifically designed to tackle dry skin and keep your dog feeling comfortable and healthy. 

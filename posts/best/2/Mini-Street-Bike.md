@@ -1,9 +1,8 @@
 ---
-
 title: Adventure Awaits -  12 Best Mini Street Bikes for Urban Exploration and Thrill-Seeking Riders
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Street-Bike.md
 ---
 
 Strap in and get ready to rev up your engines as we take a thrilling ride through the world of Mini Street Bikes! 

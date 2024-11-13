@@ -1,9 +1,8 @@
 ---
-
 title: Secure Your Firearms with the Best Gun Safe Under $500 -  Top 20 Options
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gun-Safe-Under-500.md
 ---
 
 Looking for the perfect gun safe at an affordable price? Look no further! In this article, we're rounding up the best gun safes under 500 dollars, providing you with a comprehensive guide to help you make the right choice for your security needs. 

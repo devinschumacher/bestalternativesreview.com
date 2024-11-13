@@ -1,9 +1,8 @@
 ---
-
 title: Eyes That Pop -  50 Best Waterproof Mascaras for Long-Lasting and Smudge-Proof Lashes
 
 date: 2024-07-29
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Waterproof-Mascara.md
 ---
 
 Get ready for a day of adventure without compromising your look, as we round up the top waterproof mascaras on the market! These formulas are designed to stay put through sweat, tears, and even a dip in the pool. Discover the best options to keep your lashes looking full and fabulous, no matter what life's surprises throw your way. 

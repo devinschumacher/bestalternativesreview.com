@@ -1,9 +1,8 @@
 ---
-
 title: Write on the Wall -  20 Best Magnetic Dry Erase Markers for Effortless Brainstorming and Organization
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md
 ---
 
 Get ready to take your dry erase board game to the next level with our roundup of **Magnetic Dry Erase Markers**. 

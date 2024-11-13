@@ -1,9 +1,8 @@
 ---
-
 title: Put an End to Dandruff -  The 16 Best Essential Oils for a Flake-Free Future
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Dandruff.md
 ---
 
 Are you tired of the pesky flakes on your shoulders and in your hair? Fear not, as we've rounded up the top essential oils that can help you combat dandruff and restore your crowning glory. From tea tree to lavender, discover these natural remedies to keep your hair healthy and dandruff-free. 

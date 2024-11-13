@@ -1,9 +1,8 @@
 ---
-
 title: Choose the Best Metal Dog Crate for Your Furry Friend -  Our Top 26 Recommendations
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Metal-Dog-Crate.md
 ---
 
 Are you looking for the perfect solution to keep your furry friend safe and secure? Look no further than our roundup of the best Metal Dog Crates! In this article, we'll take a closer look at the top-rated options available on the market, ensuring that you find the perfect fit for your beloved pet. 

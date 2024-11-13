@@ -1,9 +1,8 @@
 ---
-
 title: Affordable Elegance -  19 Best Budget Nightstands for a Stylish Home
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Nightstand.md
 ---
 
 Are you seeking an affordable and fashionable addition to your bedroom? Look no further! In this article, we present a compilation of the top affordable nightstand alternatives, enabling you to save money without compromising on quality. 

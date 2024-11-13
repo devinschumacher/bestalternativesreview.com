@@ -1,9 +1,8 @@
 ---
-
 title: Unleash the Power of Scent -  Top 18 Tea Candles for Your Home
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tea-Candles.md
 ---
 
 Delve into the world of fragrant and inviting tea candles as we present a handpicked selection of the finest products available on the market. From their soothing aromas to their charming designs, these carefully curated tea candles will add a touch of warmth and tranquility to your space. Get ready to explore a variety of options to suit your home and lifestyle, all in one informative and engaging article. 

@@ -1,9 +1,8 @@
 ---
-
 title: Secure Your Taurus TH9 with These Top 13 Holsters
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Taurus-Th9-Holster.md
 ---
 
 Are you a gun enthusiast looking for the perfect holster to hold your Taurus Th9? Look no further *-* our roundup article has got you covered! 

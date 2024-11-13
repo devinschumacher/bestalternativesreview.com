@@ -1,9 +1,8 @@
 ---
-
 title: Hitch with Ease -  14 Best Trailer Tongue Options for RV and Boat Towing
 
 date: 2024-07-29
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Trailer-Tongue.md
 ---
 
 Welcome to our review of the Top 10 Trailer Tongue models available in the market! 

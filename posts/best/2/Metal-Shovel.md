@@ -1,9 +1,8 @@
 ---
-
 title: Top 20 Heavy-Duty Metal Shovels -  Dig Your Way to Success with Ease
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Metal-Shovel.md
 ---
 
 If you're searching for a sturdy, reliable tool to tackle your outdoor tasks, a metal shovel might just be the solution you've been looking for. In this article, we'll be exploring the top metal shovels on the market, focusing on their durability, versatility, and ease of use. By the end of our roundup, you'll be equipped with the knowledge to choose the perfect metal shovel for your needs. 

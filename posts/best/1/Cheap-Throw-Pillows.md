@@ -1,9 +1,8 @@
 ---
-
 title: Cozy Comfort on a Budget -  18 Best Cheap Throw Pillows for Style and Affordability
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Throw-Pillows.md
 ---
 
 Looking to spice up your home decor without breaking the bank? Look no further than our roundup of the best cheap throw pillows! 

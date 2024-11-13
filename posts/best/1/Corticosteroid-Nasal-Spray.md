@@ -1,9 +1,8 @@
 ---
-
 title: Relief in a Spray -  18 Best Corticosteroid Nasal Sprays for Effective Allergy and Sinus Relief
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corticosteroid-Nasal-Spray.md
 ---
 
 If you're looking for a treatment to help alleviate nasal congestion and inflammation, a corticosteroid nasal spray might just be what you need. In this roundup article, we'll be taking a closer look at some of the top corticosteroid nasal sprays available on the market. From effective ingredients to ease of use, we've got you covered. 

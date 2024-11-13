@@ -1,9 +1,8 @@
 ---
-
 title: Luxury Sleeper -  20 Best Gold Nightstands for Elegant and Functional Storage
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gold-Nightstand.md
 ---
 
 Get ready to illuminate your nights with the perfect addition to your bedroom! In this article, we present a roundup of the most impressive and stylish gold nightstands that will transform your sleeping space into a luxurious retreat. 

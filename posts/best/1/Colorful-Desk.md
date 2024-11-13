@@ -1,9 +1,8 @@
 ---
-
 title: Bring Color to Your Home Office -  20 Best Colorful Desks Reviewed
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Colorful-Desk.md
 ---
 
 Looking for a desk that stands out and adds a splash of color to your workspace? Look no further! In this article, we'll be rounding up a selection of colorful desks that not only provide the functionality you need but also bring some personality to your office or home. 

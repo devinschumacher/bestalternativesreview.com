@@ -1,9 +1,8 @@
 ---
-
 title: Bring Life Indoors -  Top 20 Small Plants for Any Space
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Plants.md
 ---
 
 Welcome to our roundup of small plants, the perfect addition to any space-conscious garden or apartment. We've carefully curated a selection of compact and easy-to-care-for species that will bring life and vibrancy to any corner. So sit back, relax, and let us help you discover the joy of small plants. 

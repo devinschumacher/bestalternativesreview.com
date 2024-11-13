@@ -1,9 +1,8 @@
 ---
-
 title: Curl Up in Luxury -  16 Best Cable Knit Throw Blankets for Cozy Winter Nights
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cable-Knit-Throw-Blanket.md
 ---
 
 Get ready to wrap yourself in warmth and comfort with our roundup of the best cable knit throw blankets. From cozy winter nights to those chilly outdoor evenings, these blankets offer the perfect blend of style and warmth to keep you snug all year round. 

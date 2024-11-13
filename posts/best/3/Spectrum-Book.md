@@ -1,9 +1,8 @@
 ---
-
 title: Literary Treasure -  18 Best Spectrum Books for Exploring Classic Literature
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Spectrum-Book.md
 ---
 
 Gear up for an exhilarating journey as we unveil the latest and greatest in the world of literature. Welcome to our Spectrum Book roundup, where we've gathered an array of mesmerizing novels and inspiring non-fiction books for you to indulge in and expand your horizons. Get ready to embark on unparalleled literary adventures, and let's dive in together! 

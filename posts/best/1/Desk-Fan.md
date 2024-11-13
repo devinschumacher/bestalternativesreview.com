@@ -1,9 +1,8 @@
 ---
-
 title: Stay Cool and Productive -  Top 49 Desk Fans for Your Workspace
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Desk-Fan.md
 ---
 
 Feeling the heat of summer or the sting of AC on your neck during winter? We know how it feels. That's why we've gathered together the best desk fans that could give you a cool, refreshing breeze, all from the comfort of your workspace. 

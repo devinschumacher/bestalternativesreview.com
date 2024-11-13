@@ -1,9 +1,8 @@
 ---
-
 title: Organize Your Space -  38 Best Shelf Brackets for Versatile Storage Solutions
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shelf-Brackets.md
 ---
 
 Shelf Brackets: The Ultimate Guide to Organizing Your Storage Space

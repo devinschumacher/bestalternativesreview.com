@@ -1,9 +1,8 @@
 ---
-
 title: Brighten Up Your Patio -  Top 19 Decorative Patio Lights to Illuminate Your Outdoor Space
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Patio-Lights.md
 ---
 
 Transform your outdoor space into a cozy oasis with Decorative Patio Lights! In this roundup, we have handpicked a selection of beautiful outdoor lighting fixtures that not only enhance the look of your patio but also serve as functional lighting solutions. From string lights to lanterns, get ready to discover the perfect patio lighting to suit your style and budget. Let's illuminate your world together! 

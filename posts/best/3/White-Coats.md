@@ -1,9 +1,8 @@
 ---
-
 title: Best White Coats for Medical Professionals -  Our Top 11 Picks
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-Coats.md
 ---
 
 White coats have long been a symbol of authority and professionalism within the medical field. As technology continues to advance, so too have the offerings of white coats. In this article, we've highlighted a selection of top-rated white coats that will keep you looking sharp while providing the functionality you need for a medical setting. 

@@ -1,9 +1,8 @@
 ---
-
 title: Smooth and Soothe -  Top 18 After Shave Balms for a Refreshing Post-Shave Experience
 
 date: 2024-07-28
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/After-Shave-Balm.md
 ---
 
 Welcome to our roundup of the best after shave balms! After a close shave, it's essential to pamper your skin and keep it healthy. In this article, we'll take you through top-rated after shave balms on the market, their benefits, and how they can transform your daily skin routine. So, let's dive in and discover the perfect after shave balm for you! 

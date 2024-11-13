@@ -1,9 +1,8 @@
 ---
-
 title: Stylish Summer Vibes -  12 Best Beige Shorts for Casual Chic
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beige-Shorts.md
 ---
 
 Get ready to add a touch of sophistication to your summer wardrobe with our roundup of the best beige shorts on the market. From classic cuts to trendy designs, we've curated a selection of shorts that will take you from the beach to the city with ease. 

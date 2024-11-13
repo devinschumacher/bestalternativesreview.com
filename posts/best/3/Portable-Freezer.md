@@ -1,9 +1,8 @@
 ---
-
 title: Keep Your Cool on the Go -  Top 17 Portable Freezers Reviewed
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Portable-Freezer.md
 ---
 
 Looking for a reliable and efficient way to keep your perishable goods fresh while on the go? The search for the perfect portable freezer is over. In this article, we'll be rounding up some of the most popular portable freezer options on the market, ensuring that you have access to the coolest and most convenient solutions for your refrigeration needs. 

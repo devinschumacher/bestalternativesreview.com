@@ -1,9 +1,8 @@
 ---
-
 title: Get Fit Anywhere with the Best 19 Sole Treadmills for Home Gyms
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sole-Treadmill.md
 ---
 
 Welcome to our roundup on the latest top-tier Sole Treadmill models. In this exciting article, we'll be taking you on a journey to discover the perfect treadmill for your fitness goals. 

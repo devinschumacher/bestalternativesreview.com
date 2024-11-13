@@ -1,9 +1,8 @@
 ---
-
 title: Cherished Memories -  13 Best Collectible Dolls to Add to Your Treasured Collection
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Collectible-Dolls.md
 ---
 
 Enjoy the enchanting world of collectible dolls as we showcase an exclusive roundup of these rare and captivating treasures. From vintage to modern designs, these charming figurines are perfect for doll enthusiasts, art collectors, and anyone who appreciates the artistry and beauty of these intricate creations. 

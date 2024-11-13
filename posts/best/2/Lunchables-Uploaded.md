@@ -1,9 +1,8 @@
 ---
-
 title: Pack It Up -  20 Best Lunchables Options for School and Workday Meals
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lunchables-Uploaded.md
 ---
 
 Get ready to indulge in some nostalgic snacking as we explore the latest additions to the Lunchables lineup in our article, "Lunchables Uploaded". From classic favorites to exciting new flavors, we've got you covered with a tasteful roundup that's sure to satisfy your cravings. 

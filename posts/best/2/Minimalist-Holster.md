@@ -1,9 +1,8 @@
 ---
-
 title: Minimalist Holsters -  Our Top 19 Picks for Concealed Carry
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Minimalist-Holster.md
 ---
 
 Welcome to our roundup article on the best minimalist holsters available in the market. If you're looking for a sleek and functional holster that won't compromise your style, this guide is for you. Get ready to explore some of the most innovative and stylish minimalist holsters that are perfect for everyday carry. 

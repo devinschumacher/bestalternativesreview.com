@@ -1,9 +1,8 @@
 ---
-
 title: Brighten Up Your Worksite -  Top 20 Construction Lights for Optimal Illumination
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Construction-Lights.md
 ---
 
 Welcome to our roundup of the top construction lights currently on the market. We understand the importance of proper lighting in any construction project, and we've done the research to provide you with the best options available. Whether you're looking for LED, fluorescent, or other types of lighting solutions, our list has got you covered. So, grab a cup of coffee and join us as we explore the world of construction lights in detail. 

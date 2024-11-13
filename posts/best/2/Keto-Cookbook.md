@@ -1,9 +1,8 @@
 ---
-
 title: Delicious and Healthy -  20 Top-Rated Keto Cookbooks for Easy and Flavorful Meal Planning
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keto-Cookbook.md
 ---
 
 Discover the joys of keto cooking with our curated Keto Cookbook roundup! From delicious low-carb recipes to helpful meal planning tips, this guide is perfect for those seeking simple yet satisfying meals on a ketogenic diet. Let's dive in and explore the best cookbooks that will make your keto journey a breeze. 

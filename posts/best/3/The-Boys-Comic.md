@@ -1,9 +1,8 @@
 ---
-
 title: Unleash the Power -  Top 19 The Boys Comics to Satisfy Your Inner Hero
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/The-Boys-Comic.md
 ---
 
 Embark on a thrilling adventure into the world of comics with our latest roundup - The Boys Comic. 

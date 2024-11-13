@@ -1,9 +1,8 @@
 ---
-
 title: Eye-catching and Long-Lasting -  The Top 15 Waterproof Eyeliners for Your Makeup Collection
 
 date: 2024-07-27
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Waterproof-Eyeliner.md
 ---
 
 Say goodbye to smudgy and easily wiped off eyeliner! In this article, we've compiled a roundup of the *Waterproof Eyeliners* that are not only long-lasting but also effortlessly glamorous. From budget-friendly options to high-end choices, we've got you covered for a flawless and waterproof look all day long. 

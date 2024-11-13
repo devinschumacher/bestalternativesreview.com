@@ -1,9 +1,8 @@
 ---
-
 title: Get Ready to Make a Splash -  12 Best Miami Shirt Styles for Summer
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Miami-Shirt.md
 ---
 
 Welcome to our Miami Shirt roundup, where we showcase the hottest and most stylish shirts from the city that never sleeps. From bold prints to comfortable fabrics, we dive into the vibrant world of Miami fashion to bring you the best options for your wardrobe. 

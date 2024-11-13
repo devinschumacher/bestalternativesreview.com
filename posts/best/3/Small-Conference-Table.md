@@ -1,9 +1,8 @@
 ---
-
 title: Top Small Conference Tables for Efficient and Stylish Meetings
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Conference-Table.md
 ---
 
 Are you in the market for a new conference table? Look no further! In this roundup article, we've gathered an assortment of the best small conference tables available. From sleek, modern designs to traditional yet elegant pieces, these tables are sure to fit seamlessly into any conference room setting. Get ready to find your perfect match and take your meetings to the next level. 

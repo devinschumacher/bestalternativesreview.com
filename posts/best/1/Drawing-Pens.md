@@ -1,9 +1,8 @@
 ---
-
 title: Top 42 Drawing Pens for Creative Expressions and Artistic Touch
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Drawing-Pens.md
 ---
 
 Welcome art enthusiasts! If you're looking for the perfect pen to bring your creations to life, look no further. In this roundup, we will explore some of the best drawing pens on the market. Discover which one suits your style and budget, and start creating unforgettable masterpieces today! 

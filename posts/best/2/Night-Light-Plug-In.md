@@ -1,9 +1,8 @@
 ---
-
 title: Light Up Your Space -  Top 20 Night Light Plug In Options for Safety and Ambiance
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Night-Light-Plug-In.md
 ---
 
 Welcome to our roundup of the **top Night Light Plug Ins** available in the market. As you search for the perfect product to add warmth to your space while keeping energy consumption to a minimum, our curated selection of standout options will help guide you in making the best possible choice. Read on for an engaging journey through the diverse range of options showcased in this article. 

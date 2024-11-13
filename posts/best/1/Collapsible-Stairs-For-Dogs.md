@@ -1,9 +1,8 @@
 ---
-
 title: Top 20 Collapsible Stairs for Easy Dog Access -  Perfect for Your Furry Friend
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Collapsible-Stairs-For-Dogs.md
 ---
 
 Are you a dog owner constantly struggling to help your furry friend up and down the stairs? Look no further! In this article, we've gathered eight fantastic collapsible stairs for dogs that will make getting up and down those steep steps a breeze for both you and your beloved pet. 

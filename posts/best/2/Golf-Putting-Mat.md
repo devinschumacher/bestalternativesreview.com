@@ -1,9 +1,8 @@
 ---
-
 title: Practice Perfect -  30 Best Golf Putting Mats for Home Greens and Improved Skill
 
 date: 2024-07-28
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Golf-Putting-Mat.md
 ---
 
 Welcome to our Golf Putting Mat roundup! 

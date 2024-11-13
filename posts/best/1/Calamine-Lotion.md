@@ -1,9 +1,8 @@
 ---
-
 title: Soothe Your Skin -  39 Best Calamine Lotion Options for Effective Itch Relief and Sunburn Remedy
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Calamine-Lotion.md
 ---
 
 Calamine Lotion, a beloved classic in home remedies, has been a staple for generations. In this article, we will take a closer look at the top Calamine Lotion products available in the market today. From their ingredients and effectiveness to their pricing and customer reviews, we'll provide you with a comprehensive guide to help you make the best choice for your needs. 

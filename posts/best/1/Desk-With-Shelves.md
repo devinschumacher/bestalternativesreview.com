@@ -1,9 +1,8 @@
 ---
-
 title: Organize in Style -  Our Top 19 Desk with Shelves for Effortless Home Office Storage
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Desk-With-Shelves.md
 ---
 
 Looking for the perfect piece of furniture to help you stay organized while working from home? A desk with shelves might be just the thing! In this roundup, we'll be showcasing various desks that offer ample storage space, ensuring the workspace you create is both functional and stylish. Whether you prioritize appearance or practicality, our selection has got you covered! 

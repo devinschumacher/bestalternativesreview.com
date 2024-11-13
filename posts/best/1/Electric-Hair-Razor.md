@@ -1,9 +1,8 @@
 ---
-
 title: Best Electric Hair Razors -  49 Top Picks for a Smooth Shave
 
 date: 2024-08-01
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Electric-Hair-Razor.md
 ---
 
 Step into the world of personal grooming with our latest Electric Hair Razor roundup. Discover the perfect match for your needs as we explore various options, features, and quality factors that make hair removal a breeze. Dive in and unlock the secrets behind finding your ideal electric hair razor! 

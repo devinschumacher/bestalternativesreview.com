@@ -1,9 +1,8 @@
 ---
-
 title: Relive the Glory Days -  Top 13 Allen Iverson Denver Nuggets Jerseys for Collectors
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md
 ---
 
 Get ready to relive the legendary moments of one of basketball's greatest players with our Allen Iverson Nuggets Jersey roundup. In this article, we'll highlight some of the most sought-after jerseys from Iverson's time with the Nuggets, giving you a chance to add a piece of NBA history to your collection. 

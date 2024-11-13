@@ -1,9 +1,8 @@
 ---
-
 title: Breath Easier -  Discover the 20 Best Air Purifying House Plants for a Healthier Home
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md
 ---
 
 Welcome to our roundup of the top air purifying house plants, designed to help you breathe easier and create a healthier living environment. 

@@ -1,9 +1,8 @@
 ---
-
 title: Top 20 Khaki Cargo Shorts for Casual and Outdoor Styles
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Khaki-Cargo-Shorts.md
 ---
 
 Get ready to step up your style game with our roundup of the best Khaki Cargo Shorts. In this article, we'll be showcasing the top picks in the market, perfect for those who value both functionality and fashion. From classic designs to modern twists, we've got you covered with our comprehensive guide. So, whether you're headed to the office or exploring the great outdoors, you'll find the perfect pair of khaki cargo shorts right here. 

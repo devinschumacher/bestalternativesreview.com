@@ -1,9 +1,8 @@
 ---
-
 title: Serving Perfect Drinks -  Our Top 19 Cocktail Strainer Picks
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cocktail-Strainer.md
 ---
 
 Say goodbye to a drink covered in ice and unwanted garnishes. Our roundup of the top cocktail strainers will transform your homemade cocktails into perfectly stirred masterpieces. From classic metal designs to innovative silicone options, we've got you covered with a selection of the best cocktail strainers on the market to ensure your drinks are always on point. 

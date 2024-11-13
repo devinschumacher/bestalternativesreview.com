@@ -1,9 +1,8 @@
 ---
-
 title: Golf Game Changer -  Scotty Cameron Phantom X 5 - Premium Putter in the Hands of Pros
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Scotty-Cameron-Phantom-X-5.md
 ---
 
 Get ready to tee off with the latest creation from the master golf club designer, Scotty Cameron. This roundup article takes a deep dive into the Scotty Cameron Phantom X 5, exploring its features, performance, and everything in between. Prepare to be captivated by the finesse and style that comes with this iconic golf club series. 

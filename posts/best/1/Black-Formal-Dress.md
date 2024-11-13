@@ -1,9 +1,8 @@
 ---
-
 title: Black Tie Gala -  16 Best Black Formal Dresses for Elegant and Memorable Events
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Formal-Dress.md
 ---
 
 Are you in search of the perfect black formal dress? Look no further! Our roundup of Black Formal Dresses has gathered a variety of sophisticated and elegant options to ensure you're turning heads at your next formal event. Dive in and discover the perfect fit for your special occasion. 

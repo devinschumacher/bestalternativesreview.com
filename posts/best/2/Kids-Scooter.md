@@ -1,9 +1,8 @@
 ---
-
 title: Roll and Glide -  20 Best Kids Scooters for Fun and Adventure
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kids-Scooter.md
 ---
 
 Discover the best scooters for your little ones with our top picks for Kids Scooter. 

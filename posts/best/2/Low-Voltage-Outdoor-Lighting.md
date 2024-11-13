@@ -1,9 +1,8 @@
 ---
-
 title: Illuminate Your Space -  20 Best Low Voltage Outdoor Lighting Solutions for Safety and Style
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Voltage-Outdoor-Lighting.md
 ---
 
 Welcome to our roundup of the best low voltage outdoor lighting options available today. In this article, we'll help you navigate the world of energy-efficient outdoor lighting solutions. From elegant floodlights to discrete garden accent lights, we'll highlight the top picks that are perfect for creating a cozy and inviting atmosphere in your outdoor space. 

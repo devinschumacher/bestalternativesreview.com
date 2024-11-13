@@ -1,9 +1,8 @@
 ---
-
 title: Keen Shoes -  Top 19 Picks for Adventure and Comfort on Your Feet
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Shoes.md
 ---
 
 Welcome to the Keen Shoes roundup! Our team has collected the latest and greatest Keen Shoes for you to explore. From waterproof hiking boots to stylish casual shoes, we've got you covered. Delve into the world of Keen footwear and discover your perfect pair! 

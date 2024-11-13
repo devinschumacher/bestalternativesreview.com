@@ -1,9 +1,8 @@
 ---
-
 title: Keep Your Food Warm and Tasty with the Top 36 Heated Lunch Boxes
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Heated-Lunch-Box.md
 ---
 
 Welcome to our Heated Lunch Box roundup! Are you tired of your lunch going cold by the time you're ready to eat? Look no further - we've gathered a list of the top heated lunch boxes on the market to keep your meals at the perfect temperature all day long. Get ready to enjoy a satisfying, warm lunch no matter where you are. 

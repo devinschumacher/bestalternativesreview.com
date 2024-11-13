@@ -1,9 +1,8 @@
 ---
-
 title: Best Home Gym Flooring for Comfort and Safety -  Our Top 26 Picks
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Home-Gym-Flooring.md
 ---
 
 Transform your home gym experience with our roundup of the best flooring options.   

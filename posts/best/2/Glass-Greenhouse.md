@@ -1,9 +1,8 @@
 ---
-
 title: Create a cozy green oasis -  Top 20 Glass Greenhouses for Year-Round Planting
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glass-Greenhouse.md
 ---
 
 Welcome to our roundup of the top Glass Greenhouse options available on the market today. Whether you're looking to add a touch of nature to your living space or simply cultivate your own garden, we've got you covered with this comprehensive guide. 

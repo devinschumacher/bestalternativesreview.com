@@ -1,9 +1,8 @@
 ---
-
 title: Illuminate Your Kitchen -  Our Top 19 Modern Kitchen Island Lighting Picks
 
 date: 2024-08-02
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Modern-Kitchen-Island-Lighting.md
 ---
 
 Transform your kitchen into a sophisticated and inviting space with our selection of **Modern Kitchen Island Lighting**. In this roundup, we'll explore the latest trends and innovative designs that will surely illuminate your culinary haven. 

@@ -1,9 +1,8 @@
 ---
-
 title: Add Warmth to Your Space -  15 Best Rustic End Tables for a Cozy Look
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rustic-End-Tables.md
 ---
 
 Introducing a collection of handcrafted, rustic end tables that bring a touch of charm and warmth to any living space. Discover the perfect blend of traditional design and modern functionality as we round up the most captivating end table options for your home. 

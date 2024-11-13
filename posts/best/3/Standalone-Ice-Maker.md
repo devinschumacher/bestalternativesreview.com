@@ -1,9 +1,8 @@
 ---
-
 title: Our Top 19 Standalone Ice Makers -  Keep Your Drinks Cool and Refreshments Ready
 
 date: 2024-08-03
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Standalone-Ice-Maker.md
 ---
 
 Are you tired of constantly filling and emptying your ice bin in your home refrigerator? Say hello to convenience with our roundup of the most popular standalone ice makers on the market. These sleek and self-sufficient machines will change the way you handle your icy needs. 

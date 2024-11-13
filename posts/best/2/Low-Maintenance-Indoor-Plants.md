@@ -1,9 +1,8 @@
 ---
-
 title: Top 20 Low Maintenance Indoor Plants -  Brighten Up Your Home Without the Hassle
 
 date: 2024-07-30
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Maintenance-Indoor-Plants.md
 ---
 
 Breathe life into your living space with our roundup of the easiest indoor plants to care for! In this article, we'll introduce you to the low-maintenance varieties that can thrive without constant attention, perfect for plant enthusiasts and novices alike. Explore our selection and discover the perfect green companion for your home. 

@@ -1,9 +1,8 @@
 ---
-
 title: Find Your Perfect Fit -  Top 13 White Capri Leggings for Comfort and Style
 
 date: 2024-07-31
-
+slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-Capri-Leggings.md
 ---
 
 Get ready to slip into comfortable style with our roundup of the best White Capri Leggings on the market! 
