@@ -2,8 +2,10 @@
 title: Top 34 Metal Kennels for Safe and Comfortable Dog Housing
 
 date: 2024-08-03
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Metal-Kennels-For-Dogs.md
+slug: /blob/main/posts/best/2/Metal-Kennels-For-Dogs.md
 ---
+
+# Top 34 Metal Kennels for Safe and Comfortable Dog Housing
 
 Welcome to our roundup of the best metal kennels for dogs! Whether you're looking for a durable and spacious dog kennel to keep your furry friend safe and comfortable, or you need a sturdy and practical option for your backyard, we've got you covered. 
 

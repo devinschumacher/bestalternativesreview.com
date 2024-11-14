@@ -2,8 +2,10 @@
 title: Relive the 90s with the Top 15 Mom Jeans in Fashion Today
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/90s-Mom-Jeans.md
+slug: /blob/main/posts/best/1/90s-Mom-Jeans.md
 ---
+
+# Relive the 90s with the Top 15 Mom Jeans in Fashion Today
 
 Take a trip down memory lane with us as we delve into the world of 90s mom jeans. These iconic denim staples are making a comeback, and if you're curious about what was once the epitome of casual chic, you're in for a treat. 
 

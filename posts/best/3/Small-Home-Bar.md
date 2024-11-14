@@ -2,8 +2,10 @@
 title: Create a Title for an Article with the Given Keyword -  Small Home Bar
 
 date: 2024-07-31
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Home-Bar.md
+slug: /blob/main/posts/best/3/Small-Home-Bar.md
 ---
+
+# Create a Title for an Article with the Given Keyword -  Small Home Bar
 
 Welcome to our small home bar roundup! Whether you're a cocktail enthusiast or simply looking to up your at-home hosting game, we've got you covered with our curated selection of essentials perfect for your cozy space. Get ready to transform your home into a stylish and functional bar, all within just a few square feet. Let's dive in! 
 

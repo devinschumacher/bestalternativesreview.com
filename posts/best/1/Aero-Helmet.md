@@ -2,8 +2,10 @@
 title: Stay Safe and Stylish -  15 Best Aero Helmets for Motorcycle Riders
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Aero-Helmet.md
+slug: /blob/main/posts/best/1/Aero-Helmet.md
 ---
+
+# Stay Safe and Stylish -  15 Best Aero Helmets for Motorcycle Riders
 
 Welcome to our comprehensive roundup of the innovative Aero Helmet! 
 

@@ -2,8 +2,10 @@
 title: Discover the Best John Green Books -  Our Top 20 Recommendations
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/John-Green-Books.md
+slug: /blob/main/posts/best/2/John-Green-Books.md
 ---
+
+# Discover the Best John Green Books -  Our Top 20 Recommendations
 
 Looking for some great reads that delve into complex themes, heartfelt relationships, and unforgettable characters? Look no further than the world of John Green Books! In this captivating roundup, we're diving into the best works of the beloved novelist, sharing engaging insights and recommendations to help you find your next favorite read. 
 

@@ -2,8 +2,10 @@
 title: Elevate Your Bathroom Style -  Top 19 Brass Toilet Paper Holders
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Brass-Toilet-Paper-Holder.md
+slug: /blob/main/posts/best/1/Brass-Toilet-Paper-Holder.md
 ---
+
+# Elevate Your Bathroom Style -  Top 19 Brass Toilet Paper Holders
 
 In this roundup, we'll be diving into the elegant and timeless world of brass toilet paper holders. From sleek and modern designs to classic and traditionally styled holders, we've got you covered. These brass beauties are not only functional but also add an air of sophistication to any bathroom. 
 

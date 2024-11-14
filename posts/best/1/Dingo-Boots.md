@@ -2,8 +2,10 @@
 title: Stylish and Durable -  The Best 19 Dingo Boots for Your Footwear Collection
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dingo-Boots.md
+slug: /blob/main/posts/best/1/Dingo-Boots.md
 ---
+
+# Stylish and Durable -  The Best 19 Dingo Boots for Your Footwear Collection
 
 Looking to upgrade your footwear game? Dingo Boots might just be the answer you've been seeking! 
 

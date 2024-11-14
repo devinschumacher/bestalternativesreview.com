@@ -2,8 +2,10 @@
 title: Top 48 Single Mattresses for Comfort and Support
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Single-Mattress.md
+slug: /blob/main/posts/best/3/Single-Mattress.md
 ---
+
+# Top 48 Single Mattresses for Comfort and Support
 
 Welcome to our roundup of the top single mattresses available on the market today! Whether you're a single sleeper, a college student, or just someone who appreciates a good night's sleep, we've got you covered. In this article, we'll be showcasing a variety of single mattresses, each with its unique features and benefits. So, get ready to find your perfect match and turn your bedroom into a cozy haven. 
 

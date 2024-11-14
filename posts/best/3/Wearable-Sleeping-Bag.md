@@ -2,8 +2,10 @@
 title: Snuggle Up -  17 Best Wearable Sleeping Bags for Insulated Comfort Anywhere
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wearable-Sleeping-Bag.md
+slug: /blob/main/posts/best/3/Wearable-Sleeping-Bag.md
 ---
+
+# Snuggle Up -  17 Best Wearable Sleeping Bags for Insulated Comfort Anywhere
 
 Aren't we all just a little too familiar with the discomfort of a restless night spent tossing and turning? 
 

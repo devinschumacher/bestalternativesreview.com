@@ -2,8 +2,10 @@
 title: Black Cargo Shorts -  Top 16 Versatile Styles for Your Wardrobe
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Cargo-Shorts.md
+slug: /blob/main/posts/best/1/Black-Cargo-Shorts.md
 ---
+
+# Black Cargo Shorts -  Top 16 Versatile Styles for Your Wardrobe
 
 Welcome to our roundup of top-rated black cargo shorts designed to make your everyday adventures a breeze! As the stylish yet practical solution to your fashion needs, we've compiled a list of the best black cargo shorts available on the market today. 
 

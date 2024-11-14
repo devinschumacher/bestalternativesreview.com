@@ -2,8 +2,10 @@
 title: Sip in Style -  The 19 Best Canned Wines for Every Occasion
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Canned-Wine.md
+slug: /blob/main/posts/best/1/Canned-Wine.md
 ---
+
+# Sip in Style -  The 19 Best Canned Wines for Every Occasion
 
 Savor the best of both worlds with our curated selection of canned wines. Whether you're looking for a refreshingly delicious drink on a hot summer day or a convenient and eco-friendly option for your outdoor activities, we've got you covered. 
 

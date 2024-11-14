@@ -2,8 +2,10 @@
 title: Upgrade Your Home with the Best Cordless Mini Blinds -  The 18 Top Picks
 
 date: 2024-08-02
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cordless-Mini-Blinds.md
+slug: /blob/main/posts/best/1/Cordless-Mini-Blinds.md
 ---
+
+# Upgrade Your Home with the Best Cordless Mini Blinds -  The 18 Top Picks
 
 Cordless Mini Blinds: A Modern Twist on Window Treatments
 

@@ -2,8 +2,10 @@
 title: Master the Classics with the Best Tempest Arcade Game -  Our Top 19 Picks
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tempest-Arcade-Game.md
+slug: /blob/main/posts/best/3/Tempest-Arcade-Game.md
 ---
+
+# Master the Classics with the Best Tempest Arcade Game -  Our Top 19 Picks
 
 Are you ready to take a trip back in time and experience the thrill of classic arcade games? In this article, we've gathered some of the best Tempest Arcade Games available for your enjoyment. Get ready to immerse yourself in the excitement of the past, as we guide you through a roundup of top-rated Tempest Arcade Games. 
 

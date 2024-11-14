@@ -2,8 +2,10 @@
 title: Stylish and Comfortable -  10 Best Burgundy Converse High Tops for Your Wardrobe
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Burgundy-Converse-High-Tops.md
+slug: /blob/main/posts/best/1/Burgundy-Converse-High-Tops.md
 ---
+
+# Stylish and Comfortable -  10 Best Burgundy Converse High Tops for Your Wardrobe
 
 Looking for a stylish yet comfortable pair of kicks to spice up your wardrobe? Look no further than the iconic Burgundy Converse High Tops! 
 

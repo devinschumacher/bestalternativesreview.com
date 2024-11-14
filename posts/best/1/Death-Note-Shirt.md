@@ -2,8 +2,10 @@
 title: Top Death Note Shirts to Showcase Your Style and Love for the Series
 
 date: 2024-07-31
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Death-Note-Shirt.md
+slug: /blob/main/posts/best/1/Death-Note-Shirt.md
 ---
+
+# Top Death Note Shirts to Showcase Your Style and Love for the Series
 
 Get ready to make a fashion statement with Death Note Shirt! This article features a curated selection of Death Note-inspired shirts that will make any fan proud to wear their love for the series. From classic designs to creative twists, we've got you covered with our collection. Dive in and find the perfect shirt to showcase your passion for this iconic anime. 
 

@@ -2,8 +2,10 @@
 title: Illuminate Your Space -  Top 12 Candle Chandeliers to Enhance Your Home
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Candle-Chandelier.md
+slug: /blob/main/posts/best/1/Candle-Chandelier.md
 ---
+
+# Illuminate Your Space -  Top 12 Candle Chandeliers to Enhance Your Home
 
 Welcome to our roundup of the top candle chandeliers on the market! We've scoured through the latest designs and innovations to bring you a curated selection of stunning chandeliers that are sure to elevate the ambiance of your space. From classic to contemporary styles, our review covers everything you need to know to make the perfect addition to your home. 
 

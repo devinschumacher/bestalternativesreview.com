@@ -2,8 +2,10 @@
 title: Unleash Fun -  Our Top 20 Automatic Nerf Guns for Hours of Blasting Fun
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Automatic-Nerf-Gun.md
+slug: /blob/main/posts/best/1/Automatic-Nerf-Gun.md
 ---
+
+# Unleash Fun -  Our Top 20 Automatic Nerf Guns for Hours of Blasting Fun
 
 Get ready to unleash your inner child with our roundup of the top automatic Nerf guns on the market! These high-tech, fully automatic Nerf guns pack a punch and are sure to make your next Nerf battle an unforgettable experience. Read on to discover the best automatic Nerf guns and find the perfect one to add to your arsenal. 
 

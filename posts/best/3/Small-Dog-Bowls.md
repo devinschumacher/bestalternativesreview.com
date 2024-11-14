@@ -2,8 +2,10 @@
 title: Find the Perfect Fit -  Our Top 20 Small Dog Bowl Options
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Dog-Bowls.md
+slug: /blob/main/posts/best/3/Small-Dog-Bowls.md
 ---
+
+# Find the Perfect Fit -  Our Top 20 Small Dog Bowl Options
 
 Small dogs may not be able to speak, but they certainly know when their food bowl is empty. To keep your furry friend happily fed, we've compiled a selection of the best small dog bowls on the market. In this article, we explore the top options that cater to your pet's size, comfort, and style. Get ready to indulge your little companion with a delightful dining experience! 
 

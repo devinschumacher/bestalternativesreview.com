@@ -2,8 +2,10 @@
 title: Get Your Perfect Look with These Top 50 Eyeliner Pencils
 
 date: 2024-08-02
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Eyeliner-Pencil.md
+slug: /blob/main/posts/best/2/Eyeliner-Pencil.md
 ---
+
+# Get Your Perfect Look with These Top 50 Eyeliner Pencils
 
 Welcome to our latest "Eyeliner Pencil" roundup, where we bring you a curated selection of the top eyeliner pencils in the market today. These high-quality eyeliner pencils are designed to enhance your beauty routine with their rich pigmentation, smooth application, and long-lasting effects. Whether you're searching for a classic black or an array of vibrant shades, our roundup has you covered. 
 

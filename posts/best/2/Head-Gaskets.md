@@ -2,8 +2,10 @@
 title: Top 20 Head Gasket Replacements for Your Vehicle
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Head-Gaskets.md
+slug: /blob/main/posts/best/2/Head-Gaskets.md
 ---
+
+# Top 20 Head Gasket Replacements for Your Vehicle
 
 Are you looking for the perfect head gasket to keep your engine running smoothly? Look no further, as we have compiled a comprehensive list of top-rated head gaskets in the market. In this article, we will provide an overview of the features, benefits, and specifications of each head gasket, helping you make an informed decision for your engine's performance and longevity. 
 

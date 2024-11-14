@@ -2,8 +2,10 @@
 title: Illuminate Your Entrance -  Top 18 Black Foyer Chandeliers for a Stunning Look
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Foyer-Chandelier.md
+slug: /blob/main/posts/best/1/Black-Foyer-Chandelier.md
 ---
+
+# Illuminate Your Entrance -  Top 18 Black Foyer Chandeliers for a Stunning Look
 
 Welcome to our roundup of the best Black Foyer Chandeliers that will add a touch of sophistication and style to your entranceway. In this article, we'll be showcasing a range of stunning options, all designed to make an impression and enhance the overall aesthetic of your home. Get ready to transform your foyer with these captivating chandeliers. 
 

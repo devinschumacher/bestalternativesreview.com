@@ -2,8 +2,10 @@
 title: Crank Up the Tunes -  20 Best Marine Stereo Systems for Your Water Adventures
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Marine-Stereo.md
+slug: /blob/main/posts/best/2/Marine-Stereo.md
 ---
+
+# Crank Up the Tunes -  20 Best Marine Stereo Systems for Your Water Adventures
 
 Welcome to our Marine Stereo round-up, featuring the best picks for your epic nautical adventures! Get ready to dive into a world of sound as we explore top-rated marine stereos designed to pump up the volume and keep you entertained on the high seas. 
 

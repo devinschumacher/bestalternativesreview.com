@@ -2,8 +2,10 @@
 title: Illuminate Your Deck -  Top 33 Outdoor Deck Lights to Enhance Your Patio Experience
 
 date: 2024-08-02
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Deck-Lights.md
+slug: /blob/main/posts/best/1/Deck-Lights.md
 ---
+
+# Illuminate Your Deck -  Top 33 Outdoor Deck Lights to Enhance Your Patio Experience
 
 Transform your outdoor living space with our curated selection of Deck Lights, designed to illuminate your deck, path, or patio while creating a warm and inviting atmosphere. In this roundup, we'll showcase the top deck lights on the market, helping you make an informed decision as you enhance your home with the perfect balance of elegance and safety. 
 

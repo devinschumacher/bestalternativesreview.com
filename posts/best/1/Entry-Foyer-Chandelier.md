@@ -2,8 +2,10 @@
 title: The 19 Best Entry Foyer Chandeliers to Make a Grand Statement in Your Home
 
 date: 2024-08-03
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Entry-Foyer-Chandelier.md
+slug: /blob/main/posts/best/1/Entry-Foyer-Chandelier.md
 ---
+
+# The 19 Best Entry Foyer Chandeliers to Make a Grand Statement in Your Home
 
 Welcome to our Entry Foyer Chandelier roundup, where we've compiled a range of stunning and functional lighting options to enhance your home's entrance. From modern and minimalist designs to delicate crystal chandeliers, let's embark on a journey to discover the perfect addition that will transform your entry foyer. 
 

@@ -2,8 +2,10 @@
 title: Eliminate Bacterial Infections with These Top 17 Antiseptic Creams
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Antiseptic-Cream.md
+slug: /blob/main/posts/best/1/Antiseptic-Cream.md
 ---
+
+# Eliminate Bacterial Infections with These Top 17 Antiseptic Creams
 
 If you're in the market for an effective antiseptic cream that can help your minor cuts, scrapes, and wounds heal faster, you've come to the right place. In this roundup article, we've compiled some of the top-rated antiseptic creams currently available on the market. 
 

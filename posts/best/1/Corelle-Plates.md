@@ -2,8 +2,10 @@
 title: Dish It Out -  20 Best Corelle Plates for Durability and Style
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corelle-Plates.md
+slug: /blob/main/posts/best/1/Corelle-Plates.md
 ---
+
+# Dish It Out -  20 Best Corelle Plates for Durability and Style
 
 Looking for a perfect balance of durability and elegance in your tableware? Look no further than Corelle Plates! This article provides a comprehensive review of the best Corelle Plates available on the market, ensuring you find the perfect match for your dining needs. 
 

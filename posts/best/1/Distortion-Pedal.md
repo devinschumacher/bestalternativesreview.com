@@ -2,8 +2,10 @@
 title: Dial Up the Distortion -  50 Best Distortion Pedals for Guitar Lovers and Rock Musicians
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Distortion-Pedal.md
+slug: /blob/main/posts/best/1/Distortion-Pedal.md
 ---
+
+# Dial Up the Distortion -  50 Best Distortion Pedals for Guitar Lovers and Rock Musicians
 
 If you're an avid music lover or a professional musician, you're likely familiar with the concept of distortion and its impact on guitar tones. 
 

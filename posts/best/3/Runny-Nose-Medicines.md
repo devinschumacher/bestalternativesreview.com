@@ -2,8 +2,10 @@
 title: Relieve Your Runny Nose -  Top 48 Medicines for Fast and Effective Relief
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Runny-Nose-Medicines.md
+slug: /blob/main/posts/best/3/Runny-Nose-Medicines.md
 ---
+
+# Relieve Your Runny Nose -  Top 48 Medicines for Fast and Effective Relief
 
 Winter can bring with it more than just a chill in the air, often accompanied by sneezing, coughing, and a notorious friend – a runny nose. Don't let it catch you off-guard! We've compiled a list of the top Runny Nose Medicines to help you battle the symptoms and get back to enjoying the season. 
 

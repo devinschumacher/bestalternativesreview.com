@@ -2,8 +2,10 @@
 title: Breathe Easy -  Top 20 Mini Air Purifiers for a Cleaner Home
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Air-Purifier.md
+slug: /blob/main/posts/best/2/Mini-Air-Purifier.md
 ---
+
+# Breathe Easy -  Top 20 Mini Air Purifiers for a Cleaner Home
 
 Air pollutants can be detrimental to our health, but finding an effective air purifier in a small size can be a challenge. Welcome to our mini air purifier roundup! Here, we've gathered some of the best compact air purifiers on the market, so you can breathe easier without sacrificing space. Let's dive in and explore the top picks for your home or office. 
 

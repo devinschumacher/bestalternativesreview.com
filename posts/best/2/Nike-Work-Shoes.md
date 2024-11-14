@@ -2,8 +2,10 @@
 title: The Top 13 Nike Work Shoes for Comfort and Style -  Elevate Your Workout
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Nike-Work-Shoes.md
+slug: /blob/main/posts/best/2/Nike-Work-Shoes.md
 ---
+
+# The Top 13 Nike Work Shoes for Comfort and Style -  Elevate Your Workout
 
 If you're in the market for a new pair of work shoes but are finding it difficult to sort through all the options, look no further! Here we round up the best Nike work shoes currently available - designed for both style and functionality so you can tackle any task with confidence. 
 

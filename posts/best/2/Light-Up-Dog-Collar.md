@@ -2,8 +2,10 @@
 title: Ensure Your Furry Friend's Safety with the Best 16 Light Up Dog Collars
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Light-Up-Dog-Collar.md
+slug: /blob/main/posts/best/2/Light-Up-Dog-Collar.md
 ---
+
+# Ensure Your Furry Friend's Safety with the Best 16 Light Up Dog Collars
 
 Keep your furry friend safe and visible even in the dark with our roundup of the best Light Up Dog Collars available on the market. In this article, we explore the top collars that feature built-in LED lights to ensure your beloved pet is always seen, wherever you go. 
 

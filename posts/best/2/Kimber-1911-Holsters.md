@@ -2,8 +2,10 @@
 title: Stay Safe and Secure -  The Best 15 Kimber 1911 Holsters on the Market
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kimber-1911-Holsters.md
+slug: /blob/main/posts/best/2/Kimber-1911-Holsters.md
 ---
+
+# Stay Safe and Secure -  The Best 15 Kimber 1911 Holsters on the Market
 
 Kimber 1911 Holsters: Your Guide to Carrying Your Precious Firearm Securely and Comfortably. 
 

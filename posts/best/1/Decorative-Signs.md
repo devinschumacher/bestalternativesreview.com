@@ -2,8 +2,10 @@
 title: Express Your Style with the Best Decorative Signs -  Our Top 20 Picks
 
 date: 2024-07-31
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Signs.md
+slug: /blob/main/posts/best/1/Decorative-Signs.md
 ---
+
+# Express Your Style with the Best Decorative Signs -  Our Top 20 Picks
 
 Decorative Signs: Elevate Your Home or Office with These Eye- catching Wonders
 

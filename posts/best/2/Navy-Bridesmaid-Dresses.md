@@ -2,8 +2,10 @@
 title: Stunning Navy Bridesmaid Dresses -  Our Top 20 Picks for Your Wedding Party
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md
+slug: /blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md
 ---
+
+# Stunning Navy Bridesmaid Dresses -  Our Top 20 Picks for Your Wedding Party
 
 Looking for the perfect Navy bridesmaid dress to complement your wedding theme? Look no further! In this article, we've compiled a fantastic selection of Navy bridesmaid dresses that will surely catch your eye. From classic styles to modern designs, we've got you covered. Get ready to find your dream dress and make your bridesmaids shine on your special day. 
 

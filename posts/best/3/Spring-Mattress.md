@@ -2,8 +2,10 @@
 title: Upgrade Your Sleep -  The Top 17 Spring Mattresses for Comfort and Support
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Spring-Mattress.md
+slug: /blob/main/posts/best/3/Spring-Mattress.md
 ---
+
+# Upgrade Your Sleep -  The Top 17 Spring Mattresses for Comfort and Support
 
 Looking for that perfect mattress to help you spring into a restful night's sleep? Look no further! In this guide, we present you with some of the most enticing and supportive spring mattresses on the market, ensuring that you'll have no trouble catching those zzzs. 
 

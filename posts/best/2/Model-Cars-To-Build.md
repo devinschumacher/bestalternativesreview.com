@@ -2,8 +2,10 @@
 title: Build Your Dream Collection -  Top 20 Model Cars to Assemble and Showcase
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Model-Cars-To-Build.md
+slug: /blob/main/posts/best/2/Model-Cars-To-Build.md
 ---
+
+# Build Your Dream Collection -  Top 20 Model Cars to Assemble and Showcase
 
 Get ready to experience the thrill of creating intricately detailed masterpieces with our roundup of the best model cars to build! In this article, we'll showcase a variety of options suitable for both beginners and experienced modelers. 
 

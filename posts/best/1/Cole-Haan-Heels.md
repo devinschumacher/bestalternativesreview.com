@@ -2,8 +2,10 @@
 title: Strut in Style -  19 Best Cole Haan Heels for Work, Play, and Everything In-Between
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cole-Haan-Heels.md
+slug: /blob/main/posts/best/1/Cole-Haan-Heels.md
 ---
+
+# Strut in Style -  19 Best Cole Haan Heels for Work, Play, and Everything In-Between
 
 Discover the perfect blend of fashion and comfort with our Cole Haan heels roundup. From sleek stilettos to modern flats, we've curated a selection of versatile heels that will elevate your style game. Dive into the world of Cole Haan heels and find your match today. 
 

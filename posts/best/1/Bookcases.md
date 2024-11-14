@@ -2,8 +2,10 @@
 title: Bookworm's Delight -  19 Best Bookcases for Your Home Library
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bookcases.md
+slug: /blob/main/posts/best/1/Bookcases.md
 ---
+
+# Bookworm's Delight -  19 Best Bookcases for Your Home Library
 
 Welcome to our comprehensive bookcase review! 
 

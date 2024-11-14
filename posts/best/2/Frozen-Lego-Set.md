@@ -2,8 +2,10 @@
 title: Chill Out, Build On -  17 Stunning Frozen Lego Sets for Creativity and Winter Magic
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Frozen-Lego-Set.md
+slug: /blob/main/posts/best/2/Frozen-Lego-Set.md
 ---
+
+# Chill Out, Build On -  17 Stunning Frozen Lego Sets for Creativity and Winter Magic
 
 Get ready to embark on an icy adventure as we dive into the world of classic Lego sets! In this article, we'll be exploring the magical Frozen Lego Set, complete with your favorite characters from the hit Disney movie. From snowy castles to enchanting ice palaces, you won't want to miss out on the excitement. Let's jump right in and discover the beauty of this enchanting frozen kingdom. 
 

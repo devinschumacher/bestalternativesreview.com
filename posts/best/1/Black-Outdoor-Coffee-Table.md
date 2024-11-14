@@ -2,8 +2,10 @@
 title: Outdoor Elegance -  20 Best Black Outdoor Coffee Tables for Stylish Entertaining and Relaxation
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Outdoor-Coffee-Table.md
+slug: /blob/main/posts/best/1/Black-Outdoor-Coffee-Table.md
 ---
+
+# Outdoor Elegance -  20 Best Black Outdoor Coffee Tables for Stylish Entertaining and Relaxation
 
 If you're looking for a bold, black outdoor coffee table that can withstand the elements and stand out from the crowd, you're in luck! Our roundup of black outdoor coffee tables will have you covered, showcasing a variety of styles and materials to fit your unique taste and budget. 
 

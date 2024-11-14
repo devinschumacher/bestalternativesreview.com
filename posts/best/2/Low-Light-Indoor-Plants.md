@@ -2,8 +2,10 @@
 title: Transform Your Home into a Green Haven -  The 18 Best Low Light Indoor Plants
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Light-Indoor-Plants.md
+slug: /blob/main/posts/best/2/Low-Light-Indoor-Plants.md
 ---
+
+# Transform Your Home into a Green Haven -  The 18 Best Low Light Indoor Plants
 
 Bring a touch of green to your home even in the dimmest of spaces with our roundup of the best low light indoor plants. In this article, we'll guide you through selecting the perfect greenery to suit your dark corners, while also providing tips on their care and maintenance. 
 

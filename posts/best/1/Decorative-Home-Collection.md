@@ -2,8 +2,10 @@
 title: Curation Complete -  Our Top 10 Decorative Home Collection Picks for Elevated Style
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Home-Collection.md
+slug: /blob/main/posts/best/1/Decorative-Home-Collection.md
 ---
+
+# Curation Complete -  Our Top 10 Decorative Home Collection Picks for Elevated Style
 
 Welcome to our roundup of the latest and most eye-catching items from the Decorative Home Collection. These unique pieces will transform your living spaces into a true reflection of your style, turning the ordinary into extraordinary. 
 

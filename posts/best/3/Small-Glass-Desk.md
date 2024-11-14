@@ -2,8 +2,10 @@
 title: Minuscule Marvel -  20 Best Small Glass Desks for Space-Savvy Workstations
 
 date: 2024-08-01
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Glass-Desk.md
+slug: /blob/main/posts/best/3/Small-Glass-Desk.md
 ---
+
+# Minuscule Marvel -  20 Best Small Glass Desks for Space-Savvy Workstations
 
 Looking for a sleek and stylish addition to your workspace? Look no further than our roundup of the finest small glass desks! In this article, we'll explore some of the most sought-after designs on the market, featuring elegant, functional pieces that are sure to impress. So grab your favorite chair, and let's get started! 
 

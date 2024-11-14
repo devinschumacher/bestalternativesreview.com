@@ -2,8 +2,10 @@
 title: Illuminate Your Path -  19 Best Driveway Lights for Safety and Curb Appeal
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Driveway-Lights.md
+slug: /blob/main/posts/best/1/Driveway-Lights.md
 ---
+
+# Illuminate Your Path -  19 Best Driveway Lights for Safety and Curb Appeal
 
 Get ready to illuminate your driveway with the perfect combination of style and safety! In this roundup, we'll be showcasing top Driveway Lights that not only enhance the curb appeal of your home but also provide a practical solution for visibility and security. Prepare to be enlightened as we explore the best options in the market. 
 

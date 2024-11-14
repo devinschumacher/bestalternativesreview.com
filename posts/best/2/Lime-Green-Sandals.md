@@ -2,8 +2,10 @@
 title: Discover the Top 19 Lime Green Sandals for Your Fashionable Summer Look
 
 date: 2024-07-31
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lime-Green-Sandals.md
+slug: /blob/main/posts/best/2/Lime-Green-Sandals.md
 ---
+
+# Discover the Top 19 Lime Green Sandals for Your Fashionable Summer Look
 
 Step into summer with a splash of color! We've rounded up the coolest and most stylish lime green sandals for you to make a statement this season. From casual to dressy, discover our top picks for comfortable and fashionable footwear that will be your go-to choice for all your summer adventures. 
 

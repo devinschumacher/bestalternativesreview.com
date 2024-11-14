@@ -2,8 +2,10 @@
 title: Rusted Roots -  15 Best Corten Steel Planters for Eco-Friendly Gardening and Homes
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corten-Steel-Planters.md
+slug: /blob/main/posts/best/1/Corten-Steel-Planters.md
 ---
+
+# Rusted Roots -  15 Best Corten Steel Planters for Eco-Friendly Gardening and Homes
 
 Looking to add some greenery to your outdoor space, but not sure where to start? Look no further than our roundup of the best Corten steel planters. These sturdy and stylish planters are a great addition to any garden, and can hold up against the elements while adding a touch of sophistication to your yard. Keep reading to discover our top picks for the best Corten steel planters on the market today. 
 

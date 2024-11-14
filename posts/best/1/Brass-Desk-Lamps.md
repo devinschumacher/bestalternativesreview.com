@@ -2,8 +2,10 @@
 title: Illuminate Your Space -  38 Best Brass Desk Lamps for Ambience and Task Lighting
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Brass-Desk-Lamps.md
+slug: /blob/main/posts/best/1/Brass-Desk-Lamps.md
 ---
+
+# Illuminate Your Space -  38 Best Brass Desk Lamps for Ambience and Task Lighting
 
 Welcome to our roundup of the best brass desk lamps on the market! Whether you're looking to add a touch of elegance to your office or create a warm ambiance in your home, these lamps are sure to impress. With their timeless design and sturdy build, they're perfect for any space, and we've done the research to bring you the top options available today. 
 

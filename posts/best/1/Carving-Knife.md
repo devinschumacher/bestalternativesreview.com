@@ -2,8 +2,10 @@
 title: Top 45 Carving Knives -  Enjoy Perfectly Sliced Slices Every Time
 
 date: 2024-08-02
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Carving-Knife.md
+slug: /blob/main/posts/best/1/Carving-Knife.md
 ---
+
+# Top 45 Carving Knives -  Enjoy Perfectly Sliced Slices Every Time
 
 Welcome to our carving knife roundup! 
 

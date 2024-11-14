@@ -2,8 +2,10 @@
 title: Top 19 Party Hats to Complete Your Celebration Look
 
 date: 2024-07-30
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Party-Hats.md
+slug: /blob/main/posts/best/3/Party-Hats.md
 ---
+
+# Top 19 Party Hats to Complete Your Celebration Look
 
 Ready to celebrate in style? Dive into our Party Hats roundup, where we've gathered the most vibrant and eye-catching options to elevate your party game and make memories to last a lifetime! 
 

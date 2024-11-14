@@ -2,8 +2,10 @@
 title: Spoil Your Pooch -  Our Top 20 Soft Dog Treats for a Happy Canine
 
 date: 2024-08-02
-slug: https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Soft-Dog-Treats.md
+slug: /blob/main/posts/best/3/Soft-Dog-Treats.md
 ---
+
+# Spoil Your Pooch -  Our Top 20 Soft Dog Treats for a Happy Canine
 
 Are you tired of giving your furry friend hard, tough treats that seem to never end? Look no further! In this article, we present a roundup of the best soft dog treats that your beloved pooch will surely love. 
 
