@@ -1,3 +1,5 @@
+# SITEMAP
+
 <ul>
 <li><a href="https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Construction-Lights.md">Construction Lights</a></li>
 <li><a href="https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/D-Batteries.md">D Batteries</a></li>
