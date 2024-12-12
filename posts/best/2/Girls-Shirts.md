@@ -15,9 +15,9 @@ Get ready to add some style and flair to your wardrobe with our latest roundup o
 ## Reviews
 
 
-### [The Children's Place Girls' StylishLong Sleeve Shirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=the-childrens-place-girls-stylishlong-sleeve-shirt)
+### [The Children's Place Girls' StylishLong Sleeve Shirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=the-childrens-place-girls-stylishlong-sleeve-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=the-childrens-place-girls-stylishlong-sleeve-shirt"><img alt="the-childrens-place-girls-long-sleeve-poplin-button-up-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-long-sleeve-poplin-button-up-shirt-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=the-childrens-place-girls-stylishlong-sleeve-shirt"><img alt="the-childrens-place-girls-long-sleeve-poplin-button-up-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-long-sleeve-poplin-button-up-shirt-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Children's Place Girls' Long Sleeve Poplin Button Up Shirt in my daily life, and I must say, it's a delightful find. The classic button-up style can easily be dressed up or down, making it a versatile addition to any wardrobe. The fabric, made of 100% cotton oxford, is not only comfortable but also stylish, perfect for special occasions or everyday wear. 
 
@@ -26,9 +26,9 @@ One of the fantastic features that stood out to me is the closure. The front but
 However, one thing that I noticed could be improved is the fit. My daughter usually needs to size up a little to achieve a roomier fit rather than a slim fit. Despite this, the overall quality and style of the shirt are exceptional, and I highly recommend it for any special occasion or as part of a coordinated family outfit. 
 
 
-### [The Children's Place: Love Shamrock Green T-Shirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=the-childrens-place-love-shamrock-green-t-shirt)
+### [The Children's Place: Love Shamrock Green T-Shirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=the-childrens-place-love-shamrock-green-t-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=the-childrens-place-love-shamrock-green-t-shirt"><img alt="the-childrens-place-girls-love-shamrock-graphic-t-shirt-size-large-10-12-green-100-cotton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-love-shamrock-graphic-t-shirt-size-large-10-12-green-100-cotton-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=the-childrens-place-love-shamrock-green-t-shirt"><img alt="the-childrens-place-girls-love-shamrock-graphic-t-shirt-size-large-10-12-green-100-cotton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-love-shamrock-graphic-t-shirt-size-large-10-12-green-100-cotton-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the delightful "Girls Love Shamrock Graphic T-Shirt" from The Children's Place – a charming addition to your wardrobe collection. Enchanted by its enchanting design, this t-shirt is sure to bring a smile to your face. 
 
@@ -39,9 +39,9 @@ While some customers reported issues with sizing and shipping, the majority of r
 Overall, with its enchanting design and soft fabric, the "Girls Love Shamrock Graphic T-Shirt" from The Children's Place is a charming choice for those looking to spread some St. Patrick's Day cheer. 
 
 
-### [Adorable Girls' Long Sleeve Floral Shirt for Play Dates and Playground Fun](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=adorable-girls-long-sleeve-floral-shirt-for-play-dates-and-playground-fun)
+### [Adorable Girls' Long Sleeve Floral Shirt for Play Dates and Playground Fun](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=adorable-girls-long-sleeve-floral-shirt-for-play-dates-and-playground-fun)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=adorable-girls-long-sleeve-floral-shirt-for-play-dates-and-playground-fun"><img alt="the-childrens-place-girls-long-sleeve-fashion-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-long-sleeve-fashion-shirt-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=adorable-girls-long-sleeve-floral-shirt-for-play-dates-and-playground-fun"><img alt="the-childrens-place-girls-long-sleeve-fashion-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-long-sleeve-fashion-shirt-1/h=540,fit=pad,background=black"/></a></div>
 
 The Children's Place Girls' Long Sleeve Fashion Shirt is a stylish addition to any little girl's wardrobe. Crafted from a blend of 58% cotton, 41% polyester, and 1% spandex jacquard, this top offers a comfortable and breathable fit for both casual playdates and adventurous playground sessions. 
 
@@ -50,18 +50,18 @@ Featuring an elasticized V-neck and a non-functional bow, this fashion shirt is 
 Pairing this top with her favorite jeans, skirts, or leggings is a perfect way to complete any outfit. Whether she's playing with friends at the park or attending a fun playdate, this Long Sleeve Fashion Shirt is the perfect choice for an inquisitive, young fashionista. 
 
 
-### [Hanes Girls ComfortSoft Eco Smart Large Crewneck White Sweatshirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=hanes-girls-comfortsoft-eco-smart-large-crewneck-white-sweatshirt)
+### [Hanes Girls ComfortSoft Eco Smart Large Crewneck White Sweatshirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=hanes-girls-comfortsoft-eco-smart-large-crewneck-white-sweatshirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=hanes-girls-comfortsoft-eco-smart-large-crewneck-white-sweatshirt"><img alt="hanes-girls-comfortsoft-eco-smart-girls-crewneck-sweatshirt-sizes-4-16-girls-size-large-10-12-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hanes-girls-comfortsoft-eco-smart-girls-crewneck-sweatshirt-sizes-4-16-girls-size-large-10-12-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=hanes-girls-comfortsoft-eco-smart-large-crewneck-white-sweatshirt"><img alt="hanes-girls-comfortsoft-eco-smart-girls-crewneck-sweatshirt-sizes-4-16-girls-size-large-10-12-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hanes-girls-comfortsoft-eco-smart-girls-crewneck-sweatshirt-sizes-4-16-girls-size-large-10-12-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Lounge around or jog comfortably in this soft Hanes Girls ComfortSoft Eco Smart Girls Crewneck Sweatshirt. The low-pill fabric enhances its longevity, making it a perfect addition to any girl's wardrobe. The crew-neck design adds a chic look when paired with a jacket and a pair of jeans. 
 
 This warm and cozy sweatshirt is perfect for colder months, and Hanes' EcoSmart products help preserve the environment by keeping millions of plastic bottles from landfills. The comfortable fit, along with various color options, makes this a versatile piece for any girl. 
 
 
-### [DSG Girls' Dove Blue Crew Graphic T-Shirt with Peace Soccer Design](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=dsg-girls-dove-blue-crew-graphic-t-shirt-with-peace-soccer-design)
+### [DSG Girls' Dove Blue Crew Graphic T-Shirt with Peace Soccer Design](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=dsg-girls-dove-blue-crew-graphic-t-shirt-with-peace-soccer-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=dsg-girls-dove-blue-crew-graphic-t-shirt-with-peace-soccer-design"><img alt="dsg-girls-crew-graphic-t-shirt-large-dove-blue-peace-soccer-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dsg-girls-crew-graphic-t-shirt-large-dove-blue-peace-soccer-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=dsg-girls-dove-blue-crew-graphic-t-shirt-with-peace-soccer-design"><img alt="dsg-girls-crew-graphic-t-shirt-large-dove-blue-peace-soccer-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dsg-girls-crew-graphic-t-shirt-large-dove-blue-peace-soccer-1/h=540,fit=pad,background=black"/></a></div>
 
 Lately, I've been looking for a comfortable and stylish workout shirt for my daughter. The DSG Girls' Crew Graphic T-Shirt is exactly what she needed. In Dove Blue with a fun Peace Soccer graphic, she couldn't resist the cute design. The lightweight and soft fabric felt great on her skin, and the classic crew neckline accentuated her young frame. 
 
@@ -72,9 +72,9 @@ However, I must admit, the sizing of this shirt does run a little small. Make su
 Overall, the DSG Girls' Crew Graphic T-Shirt is a great addition to any young girl's wardrobe, especially if she's into sports or athletics. With its comfortable fit, moisture-wicking fabric, and stylish design, it's a winner in our book. 
 
 
-### [Girls Pink Easter Bunny Graphic T-Shirt by The Children's Place (XS-XXL)](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=girls-pink-easter-bunny-graphic-t-shirt-by-the-childrens-place-xs-xxl)
+### [Girls Pink Easter Bunny Graphic T-Shirt by The Children's Place (XS-XXL)](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=girls-pink-easter-bunny-graphic-t-shirt-by-the-childrens-place-xs-xxl)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=girls-pink-easter-bunny-graphic-t-shirt-by-the-childrens-place-xs-xxl"><img alt="the-childrens-place-girls-easter-bunny-graphic-t-shirt-size-xs-4-pink-100-cotton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-easter-bunny-graphic-t-shirt-size-xs-4-pink-100-cotton-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=girls-pink-easter-bunny-graphic-t-shirt-by-the-childrens-place-xs-xxl"><img alt="the-childrens-place-girls-easter-bunny-graphic-t-shirt-size-xs-4-pink-100-cotton-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-easter-bunny-graphic-t-shirt-size-xs-4-pink-100-cotton-1/h=540,fit=pad,background=black"/></a></div>
 
 The Children's Place Girls Easter Bunny Graphic Tee is a charming addition to any girl's wardrobe, offering a comfortable fit and adorable design. Featuring a vibrant pink color and a floral-crowned Easter bunny graphic, this short-sleeved t-shirt is perfect for Easter celebrations or any day of the year. 
 
@@ -83,9 +83,9 @@ The tagless label ensures a comfortable, irritation-free wear, and the variety o
 Overall, the combination of its attractive design, quality material, and affordable price make this Easter bunny graphic tee a great choice for girls. 
 
 
-### [Cat & Jack Burgundy Sized Girls' Long Sleeve Button-Front Blouse](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=cat-jack-burgundy-sized-girls-long-sleeve-button-front-blouse)
+### [Cat & Jack Burgundy Sized Girls' Long Sleeve Button-Front Blouse](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=cat-jack-burgundy-sized-girls-long-sleeve-button-front-blouse)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=cat-jack-burgundy-sized-girls-long-sleeve-button-front-blouse"><img alt="girls-long-sleeve-button-front-shine-blouse-cat-jack-burgundy-s-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-button-front-shine-blouse-cat-jack-burgundy-s-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=cat-jack-burgundy-sized-girls-long-sleeve-button-front-blouse"><img alt="girls-long-sleeve-button-front-shine-blouse-cat-jack-burgundy-s-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-button-front-shine-blouse-cat-jack-burgundy-s-red-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added this shiny Cat & Jack Burgundy Blouse to my wardrobe, and I must say, it's a beautiful piece of clothing! The material is a perfect blend of 93% cotton and 7% metallic fiber, making it not only comfortable but also eye-catching. I appreciated that it has a round neckline and three-quarter sleeve length, providing a versatile style option. 
 
@@ -94,9 +94,9 @@ Wearing it with my skinny jeans, I felt both comfortable and stylish. However, I
 Overall, I'm a huge fan of this blouse, and I think it's a great addition to any girl's wardrobe! 
 
 
-### [The North Face Gardenia White Graphic T-Shirt for Girls](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=the-north-face-gardenia-white-graphic-t-shirt-for-girls)
+### [The North Face Gardenia White Graphic T-Shirt for Girls](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=the-north-face-gardenia-white-graphic-t-shirt-for-girls)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=the-north-face-gardenia-white-graphic-t-shirt-for-girls"><img alt="the-north-face-girls-graphic-t-shirt-small-gardenia-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-north-face-girls-graphic-t-shirt-small-gardenia-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=the-north-face-gardenia-white-graphic-t-shirt-for-girls"><img alt="the-north-face-girls-graphic-t-shirt-small-gardenia-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-north-face-girls-graphic-t-shirt-small-gardenia-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon this amazing Girls' Graphic T-Shirt from The North Face. The fit is just perfect, providing a comfortable, cozy feel without being too tight or too loose. 
 
@@ -105,9 +105,9 @@ The crew neckline adds a classic and snug touch to the t-shirt, while its unique
 The overall experience with this t-shirt has been fantastic, and I highly recommend it to anyone looking for a stylish, comfortable, and high-quality tee. 
 
 
-### [Girls' Ribbed Long-Sleeve T-Shirt by Cat & Jack in Cinnamon](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=girls-ribbed-long-sleeve-t-shirt-by-cat-jack-in-cinnamon)
+### [Girls' Ribbed Long-Sleeve T-Shirt by Cat & Jack in Cinnamon](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=girls-ribbed-long-sleeve-t-shirt-by-cat-jack-in-cinnamon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=girls-ribbed-long-sleeve-t-shirt-by-cat-jack-in-cinnamon"><img alt="girls-long-sleeve-rib-t-shirt-cat-jack-cinnamon-s-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-rib-t-shirt-cat-jack-cinnamon-s-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=girls-ribbed-long-sleeve-t-shirt-by-cat-jack-in-cinnamon"><img alt="girls-long-sleeve-rib-t-shirt-cat-jack-cinnamon-s-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-rib-t-shirt-cat-jack-cinnamon-s-red-1/h=540,fit=pad,background=black"/></a></div>
 
 The Girls' Long Sleeve Rib T-Shirt from Cat and Jack offers an elegant blend of comfort and style. Designed with a regular fit and casual crewneck, this long-sleeve t-shirt boasts a vertical ribbed design and lettuce frills on the trim for an added touch of texture and charm. 
 
@@ -116,9 +116,9 @@ The soft cotton-blend fabric ensures a cozy wear all day long. Pair it with vari
 With its adorable cinnamon color, this shirt is perfect for the little fashionista in your life. 
 
 
-### [Licensed Girls' 3 Pack Tee Rainbow High Shirts 10/12](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=licensed-girls-3-pack-tee-rainbow-high-shirts-10-12)
+### [Licensed Girls' 3 Pack Tee Rainbow High Shirts 10/12](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=licensed-girls-3-pack-tee-rainbow-high-shirts-10-12)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=licensed-girls-3-pack-tee-rainbow-high-shirts-10-12"><img alt="licensed-girls-3-pack-tee-rainbow-high-10-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/licensed-girls-3-pack-tee-rainbow-high-10-13/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=licensed-girls-3-pack-tee-rainbow-high-shirts-10-12"><img alt="licensed-girls-3-pack-tee-rainbow-high-10-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/licensed-girls-3-pack-tee-rainbow-high-10-13/h=540,fit=pad,background=black"/></a></div>
 
 Introducing these fun and vibrant licensed girls' tees, perfect for any young fashionista! Featuring fan-favorite characters like Minnie Mouse, LOL Surprise, and Rainbow High, these shirts are sure to brighten up any outfit. 
 
@@ -127,18 +127,18 @@ With a mix of high-low and straight hems, there's something for every style. The
 Ideal for everyday wear or a special occasion, these stylish tees are a great value for the price. 
 
 
-### [The Children's Place Fashionable Girls' Short Sleeve Shirts](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=the-childrens-place-fashionable-girls-short-sleeve-shirts)
+### [The Children's Place Fashionable Girls' Short Sleeve Shirts](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=the-childrens-place-fashionable-girls-short-sleeve-shirts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=the-childrens-place-fashionable-girls-short-sleeve-shirts"><img alt="the-childrens-place-girls-short-sleeve-fashion-top-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-short-sleeve-fashion-top-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=the-childrens-place-fashionable-girls-short-sleeve-shirts"><img alt="the-childrens-place-girls-short-sleeve-fashion-top-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-childrens-place-girls-short-sleeve-fashion-top-1/h=540,fit=pad,background=black"/></a></div>
 
 The Children's Place Girls Short Sleeve Fashion Top is a cute and versatile option for your little fashionista. Made of a soft blend of 60% cotton and 40% polyester, this top is comfortable and durable. With adorable designs that will catch the eye, your child will be the center of attention on the playground. The allover print features unique styles: one top with an off-shoulder neck and ruffle trim, and another with a keyhole cutout and a permanent bow. 
 
 This fashion top offers a comfy fit and is perfect for play dates or spending time at the playground. Customers have given positive feedback on the adorable designs and quality, though they mentioned the need for a shirt underneath for some tops due to the thin fabric. As for the negatives, a few customers have experienced issues with the elastic coming out of the shirt and not receiving their purchase. Overall, the Children's Place Girls Short Sleeve Fashion Top is worth considering for its appealing designs and affordable price point. 
 
 
-### [Cat & Jack Cream Girls' Long Sleeve T-Shirt with Dancing Graphic](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=cat-jack-cream-girls-long-sleeve-t-shirt-with-dancing-graphic)
+### [Cat & Jack Cream Girls' Long Sleeve T-Shirt with Dancing Graphic](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=cat-jack-cream-girls-long-sleeve-t-shirt-with-dancing-graphic)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=cat-jack-cream-girls-long-sleeve-t-shirt-with-dancing-graphic"><img alt="girls-long-sleeve-dancing-graphic-t-shirt-cat-jack-cream-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-dancing-graphic-t-shirt-cat-jack-cream-xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=cat-jack-cream-girls-long-sleeve-t-shirt-with-dancing-graphic"><img alt="girls-long-sleeve-dancing-graphic-t-shirt-cat-jack-cream-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-dancing-graphic-t-shirt-cat-jack-cream-xl-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Long-Sleeve "Dancing" Graphic T-Shirt from Cat and Jack, and it was a delightful experience. The shirt features dancing girls with a touch of glittery accents on the front - such a cute way to show off your child's love for dancing. The crew neckline and below-hip length make it perfect for everyday wear, while the soft fabric blend offers a comfortable fit. 
 
@@ -147,9 +147,9 @@ One of the highlights of this shirt was how diverse the ballerinas' outfits and 
 Overall, the Cat and Jack Long-Sleeve "Dancing" Graphic T-Shirt was a fun addition to my daughter's wardrobe, and it definitely made a statement at dance class. 
 
 
-### [Girls' White/Black Long Sleeve T-Shirt by Cat & Jack](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=girls-white-black-long-sleeve-t-shirt-by-cat-jack)
+### [Girls' White/Black Long Sleeve T-Shirt by Cat & Jack](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=girls-white-black-long-sleeve-t-shirt-by-cat-jack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=girls-white-black-long-sleeve-t-shirt-by-cat-jack"><img alt="girls-2pk-solid-long-sleeve-t-shirt-cat-jack-white-black-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-2pk-solid-long-sleeve-t-shirt-cat-jack-white-black-xs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=girls-white-black-long-sleeve-t-shirt-by-cat-jack"><img alt="girls-2pk-solid-long-sleeve-t-shirt-cat-jack-white-black-xs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-2pk-solid-long-sleeve-t-shirt-cat-jack-white-black-xs-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I tried the Girls' 2pk Solid Long Sleeve T-Shirt from Cat & Jack in the white/black color and size XS. This basic pack of solid tees is an easy go-to for any casual look for my daughter. The longer sleeves and comfortable crew neck make it perfect for layering under jackets during colder days, or wearing on its own with leggings or jeans. The 2-piece set is great to ensure she always has an extra clean t-shirt on hand. 
 
@@ -158,18 +158,18 @@ The highlights of the product were definitely the comfortable fit and soft fabri
 Despite the downsides, my daughter still loved the shirt and the variety of colors it comes in. I also appreciated the affordability and availability of multiple packs, which allowed me to have extra options for wash days. I would recommend trying out different brands if comfort and breathability are important factors for you, like the Cat & Jack shortsleeve girls polo shirt made from a cotton/polyester blend. Overall, this long sleeve t-shirt is a functional addition to my daughter's wardrobe, but it's essential to be mindful of the material content. 
 
 
-### [Cat & Jack Girls' Short Sleeve Eyelet T-Shirt in Sage Green](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=cat-jack-girls-short-sleeve-eyelet-t-shirt-in-sage-green)
+### [Cat & Jack Girls' Short Sleeve Eyelet T-Shirt in Sage Green](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=cat-jack-girls-short-sleeve-eyelet-t-shirt-in-sage-green)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=cat-jack-girls-short-sleeve-eyelet-t-shirt-in-sage-green"><img alt="girls-short-sleeve-eyelet-t-shirt-cat-jack-sage-green-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-short-sleeve-eyelet-t-shirt-cat-jack-sage-green-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=cat-jack-girls-short-sleeve-eyelet-t-shirt-in-sage-green"><img alt="girls-short-sleeve-eyelet-t-shirt-cat-jack-sage-green-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-short-sleeve-eyelet-t-shirt-cat-jack-sage-green-s-1/h=540,fit=pad,background=black"/></a></div>
 
 This Short-Sleeve Eyelet T-Shirt from Cat and Jack is a stylish addition to any child's wardrobe. Made from a cotton-blend fabric, it's comfortable for both casual and active wear. The simple design features short dolman sleeves with eyelet detailing, and the soft pastel color goes well with various outfits. 
 
 Parents love the perfect fit and the value for money, saying it's great for school events and everyday wear. Some users do mention that the shirt can be somewhat see-through, but it's an overall favorite among parents. 
 
 
-### [Member's Mark Floral Long Sleeve Girls' Shirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=members-mark-floral-long-sleeve-girls-shirt)
+### [Member's Mark Floral Long Sleeve Girls' Shirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=members-mark-floral-long-sleeve-girls-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=members-mark-floral-long-sleeve-girls-shirt"><img alt="members-mark-girls-2-pack-my-favorite-tag-free-comfort-long-sleeve-tees-floral-6-6x-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/members-mark-girls-2-pack-my-favorite-tag-free-comfort-long-sleeve-tees-floral-6-6x-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=members-mark-floral-long-sleeve-girls-shirt"><img alt="members-mark-girls-2-pack-my-favorite-tag-free-comfort-long-sleeve-tees-floral-6-6x-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/members-mark-girls-2-pack-my-favorite-tag-free-comfort-long-sleeve-tees-floral-6-6x-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Member's Mark Girl's 2-Pack My Favorite Tag Free Comfort Long Sleeve Tees and was pleasantly surprised by the soft, breathable material. The round neck and front sequin-embellished graphic give these tees a fun and unique touch. The variety of adorable combinations, like unicorns, flowers, and hearts, made it easy for my daughter to choose a favorite. 
 
@@ -178,9 +178,9 @@ The long sleeves are perfect for layering on cooler days and can be paired with 
 My daughter loved the soft material and the cute designs, and I would definitely recommend these shirts to other parents looking for a comfortable and fun addition to their daughter's wardrobe. 
 
 
-### [Art Class Blue Tie-Dye Girls' Short Sleeve T-Shirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=art-class-blue-tie-dye-girls-short-sleeve-t-shirt)
+### [Art Class Blue Tie-Dye Girls' Short Sleeve T-Shirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=art-class-blue-tie-dye-girls-short-sleeve-t-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=art-class-blue-tie-dye-girls-short-sleeve-t-shirt"><img alt="girls-boxy-tie-dye-short-sleeve-t-shirt-art-class-blue-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-boxy-tie-dye-short-sleeve-t-shirt-art-class-blue-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=art-class-blue-tie-dye-girls-short-sleeve-t-shirt"><img alt="girls-boxy-tie-dye-short-sleeve-t-shirt-art-class-blue-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-boxy-tie-dye-short-sleeve-t-shirt-art-class-blue-l-1/h=540,fit=pad,background=black"/></a></div>
 
 Just last week, I presented my daughter with the most fabulous t-shirt - the Boxy Tie-Dye Short-Sleeve T-Shirt from Art Class. She adored it, and the vibrant tie-dye pattern enhanced her ensemble immeasurably. Remarkably made from a soft and breathable fabric, it ensured she was comfortable throughout the day. 
 
@@ -189,27 +189,27 @@ The addition of a practical chest pocket complemented her casual yet chic vibe, 
 As a parent, I also observed that the t-shirt had a distinctive cut compared to last year's model, with a slightly larger neck and shorter back. While these adjustments might take some getting used to, overall, I am thrilled with this purchase. The t-shirt's versatile styling options and excellent comfort make it a worthy addition to our stash. 
 
 
-### [Girls' Celebrate Graphic T-Shirt - Cat & Jack Heather Gray M](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=girls-celebrate-graphic-t-shirt-cat-jack-heather-gray-m)
+### [Girls' Celebrate Graphic T-Shirt - Cat & Jack Heather Gray M](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=girls-celebrate-graphic-t-shirt-cat-jack-heather-gray-m)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=girls-celebrate-graphic-t-shirt-cat-jack-heather-gray-m"><img alt="girls-celebrate-long-sleeve-graphic-t-shirt-cat-jack-heather-gray-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-celebrate-long-sleeve-graphic-t-shirt-cat-jack-heather-gray-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=girls-celebrate-graphic-t-shirt-cat-jack-heather-gray-m"><img alt="girls-celebrate-long-sleeve-graphic-t-shirt-cat-jack-heather-gray-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-celebrate-long-sleeve-graphic-t-shirt-cat-jack-heather-gray-m-1/h=540,fit=pad,background=black"/></a></div>
 
 This Cat and Jack 'Celebrate' Long Sleeve Graphic T-Shirt is a perfect option for little girls who love to have fun. Crafted in a relaxed fit and made from lightweight fabric, it keeps them cozy while they enjoy their playful moments. The whimsical design on the front features a lively party scene, with kids dressed in party hats and playing musical instruments. 
 
 It's a delightful choice for casual outings and can be easily paired with various bottoms for a chic, playful look. Overall, the Cat and Jack 'Celebrate' Long Sleeve Graphic T-Shirt is a fun, well-made addition to any girl's wardrobe. 
 
 
-### [Cat & Jack Dusty Violet Long Sleeve Woven Shirt for Girls](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=cat-jack-dusty-violet-long-sleeve-woven-shirt-for-girls)
+### [Cat & Jack Dusty Violet Long Sleeve Woven Shirt for Girls](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=cat-jack-dusty-violet-long-sleeve-woven-shirt-for-girls)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=cat-jack-dusty-violet-long-sleeve-woven-shirt-for-girls"><img alt="girls-long-sleeve-woven-shirt-cat-jack-dusty-violet-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-woven-shirt-cat-jack-dusty-violet-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=cat-jack-dusty-violet-long-sleeve-woven-shirt-for-girls"><img alt="girls-long-sleeve-woven-shirt-cat-jack-dusty-violet-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girls-long-sleeve-woven-shirt-cat-jack-dusty-violet-l-1/h=540,fit=pad,background=black"/></a></div>
 
 Revamp your child's wardrobe with a touch of playful elegance with this Long-Sleeve Woven Shirt from Cat & Jack. With its charming blend of floral and metallic accents, there's no shortage of charm to go around. Crafted from premium cotton-blend fabric, this shirt ensures both cool comfort and timeless style. Features like the pleated bodice, yoke, and ruffled neckline add alluring texture, while the keyhole back-button closure ensures easy wear. Paired with a versatile skirt, jeans, or denim shorts, this top can easily transition from day to night. 
 
 Despite a few sizing concerns, most users seem to fall in love with this Long-Sleeve Woven Shirt's blend of softness and glam. The XL size may be too generous, while the L fits a bit snugly, but overall, it's a reliable, stylish choice for kids that can effortlessly bridge the gap between casual and sophisticated. 
 
 
-### [Dick's Sporting Goods Girls' Basin Blue Henley Fleece Shirt](https://serp.ly/@outrun/amazon/Girls+Shirts?utm\_term=dicks-sporting-goods-girls-basin-blue-henley-fleece-shirt)
+### [Dick's Sporting Goods Girls' Basin Blue Henley Fleece Shirt](https://serp.ly/@bar/amazon/Girls+Shirts?utm\_term=dicks-sporting-goods-girls-basin-blue-henley-fleece-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Girls+Shirts?utm_term=dicks-sporting-goods-girls-basin-blue-henley-fleece-shirt"><img alt="dicks-sporting-goods-girls-henley-fleece-top-basin-blue-s-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dicks-sporting-goods-girls-henley-fleece-top-basin-blue-s-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Girls+Shirts?utm_term=dicks-sporting-goods-girls-basin-blue-henley-fleece-shirt"><img alt="dicks-sporting-goods-girls-henley-fleece-top-basin-blue-s-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dicks-sporting-goods-girls-henley-fleece-top-basin-blue-s-each-1/h=540,fit=pad,background=black"/></a></div>
 
 The DICK'S Sporting Goods Girls' Henley Fleece Top in Basin Blue offers a comfy fit for young girls, making it the perfect addition to their wardrobe. The soft fleece fabrication ensures that the top remains comfortable all day long, while the collared neckline adds a touch of elegance. The long sleeves provide ample coverage, and the loose fit allows for easy movement. 
 

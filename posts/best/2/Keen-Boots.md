@@ -15,9 +15,9 @@ If you're an outdoor enthusiast or someone with an active lifestyle, you're like
 ## Reviews
 
 
-### [Keen Soft Toe Work Boots - Brown/Bombay](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-soft-toe-work-boots-brown-bombay)
+### [Keen Soft Toe Work Boots - Brown/Bombay](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-soft-toe-work-boots-brown-bombay)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-soft-toe-work-boots-brown-bombay"><img alt="keen-mens-soft-toe-pittsburgh-work-boots-cascade-brown-bombay-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-soft-toe-pittsburgh-work-boots-cascade-brown-bombay-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-soft-toe-work-boots-brown-bombay"><img alt="keen-mens-soft-toe-pittsburgh-work-boots-cascade-brown-bombay-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-soft-toe-pittsburgh-work-boots-cascade-brown-bombay-1/h=540,fit=pad,background=black"/></a></div>
 
 Stoke your work boots with the Keen Men's Soft Toe Pittsburgh Work Boots. Featuring a waterproof Nubuck leather upper that adds a layer of resilience, these work boots are designed to keep your feet dry in muddy situations. The EVA and PU midsole deliver an invigorating energy return with every step, ensuring a comfortable experience on the job site. 
 
@@ -26,9 +26,9 @@ The steel-town tough construction comes with KEEN Utility innovations, including
 While some reviewers have pointed out issues with durability, the majority seem delighted with the combination of comfort and performance that the Keen Men's Soft Toe Pittsburgh Work Boots provide. Despite the occasional drawbacks, it seems these boots remain a popular choice for those looking for a work boot that seamlessly blends wearability with practical features. 
 
 
-### [Keen Men's Uneek Snk Waterproof Winter Chukka Boots](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-uneek-snk-waterproof-winter-chukka-boots)
+### [Keen Men's Uneek Snk Waterproof Winter Chukka Boots](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-uneek-snk-waterproof-winter-chukka-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-uneek-snk-waterproof-winter-chukka-boots"><img alt="keen-mens-uneek-snk-waterproof-winter-chukka-boots-size-9-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-uneek-snk-waterproof-winter-chukka-boots-size-9-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-uneek-snk-waterproof-winter-chukka-boots"><img alt="keen-mens-uneek-snk-waterproof-winter-chukka-boots-size-9-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-uneek-snk-waterproof-winter-chukka-boots-size-9-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Uneek Snk, a chic waterproof winter chukka boot from Keen. Perfect for those who love the warm touch of fleece lining, combined with the comfort of KEEN. FREEZE rubber for excellent traction. 
 
@@ -39,9 +39,9 @@ Whether you're walking around the neighborhood or braving the harsh winter outdo
 It may require a little extra effort to step into. However, with a variety of designs to choose from, you'll find these boots worth the wait. 
 
 
-### [Men's Keen Detroit XT Mid Steel Toe Waterproof Boots: Stylish Protection for Rugged Outdoors](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=mens-keen-detroit-xt-mid-steel-toe-waterproof-boots-stylish-protection-for-rugged-outdoors)
+### [Men's Keen Detroit XT Mid Steel Toe Waterproof Boots: Stylish Protection for Rugged Outdoors](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=mens-keen-detroit-xt-mid-steel-toe-waterproof-boots-stylish-protection-for-rugged-outdoors)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=mens-keen-detroit-xt-mid-steel-toe-waterproof-boots-stylish-protection-for-rugged-outdoors"><img alt="mens-keen-detroit-xt-mid-steel-toe-waterproof-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-keen-detroit-xt-mid-steel-toe-waterproof-boot-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=mens-keen-detroit-xt-mid-steel-toe-waterproof-boots-stylish-protection-for-rugged-outdoors"><img alt="mens-keen-detroit-xt-mid-steel-toe-waterproof-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-keen-detroit-xt-mid-steel-toe-waterproof-boot-1/h=540,fit=pad,background=black"/></a></div>
 
 Men's Keen, Detroit XT Mid Steel Toe Waterproof Boot is a reliable and versatile work boot for men, equipped with a range of features for optimal comfort and protection. The water-resistant leather keeps your feet dry during wet work conditions and preserves the quality of the boots with everyday use. Dual-density compression molded EVA midsole provides an added layer of cushioning for extra support. 
 
@@ -50,9 +50,9 @@ However, there are some drawbacks to these work boots. The quality of stitching 
 Overall, the Men's Keen, Detroit XT Mid Steel Toe Waterproof Boot are a great choice for men seeking a combination of comfort, durability and water resistance in their work boots, but they may require a little extra care and maintenance in certain areas to ensure their longevity. 
 
 
-### [Keen Women's Mosey Chelsea Leather Boot - Safari/Birch (size 11)](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-womens-mosey-chelsea-leather-boot-safari-birch-size-11)
+### [Keen Women's Mosey Chelsea Leather Boot - Safari/Birch (size 11)](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-womens-mosey-chelsea-leather-boot-safari-birch-size-11)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-womens-mosey-chelsea-leather-boot-safari-birch-size-11"><img alt="keen-womens-mosey-chelsea-leather-safari-birch-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-womens-mosey-chelsea-leather-safari-birch-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-womens-mosey-chelsea-leather-boot-safari-birch-size-11"><img alt="keen-womens-mosey-chelsea-leather-safari-birch-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-womens-mosey-chelsea-leather-safari-birch-12/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I decided to give the Keen Women's Mosey Chelsea Leather boots a try in my daily life. As a fan of Keen brand, I was excited to see how these slip-on shoes performed. 
 
@@ -63,9 +63,9 @@ Moving on, the leather upper was quite beautiful, making a nice addition to my w
 Overall, the Keen Women's Mosey Chelsea Leather boots offered a classic style and comfortable slip-on design, but there were a few drawbacks, such as the issue with the toe bumper and the quick stretching of the leather. While these may not be deal-breakers for everyone, they were certainly noticeable in my experience. 
 
 
-### [Keen Men's Targhee II Waterproof Mid Shitake/Brindle Wide 8.5 Boots](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-5-boots)
+### [Keen Men's Targhee II Waterproof Mid Shitake/Brindle Wide 8.5 Boots](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-5-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-5-boots"><img alt="keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-5-boots"><img alt="keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-targhee-ii-waterproof-mid-shitake-brindle-wide-8-6/h=540,fit=pad,background=black"/></a></div>
 
 For the past couple of weeks, I've been on the go a lot, covering different terrains. I was in search of a reliable, comfortable hiking boot that could handle rugged trails, and that's when I stumbled upon the Targhee II Mid by KEEN. 
 
@@ -78,9 +78,9 @@ The Targhee II Mid is truly a four-wheel-drive boot for your feet. It's a reliab
 Of course, like any product, there are pros and cons. While the Targhee II Mid provides an exceptional fit, some might find the break-in period a bit longer than expected. Nonetheless, I'd still highly recommend these boots to anyone looking for a reliable and durable pair that can handle any challenge thrown their way. 
 
 
-### [Lightweight, Waterproof Keen Men's Pyrenees Hiking Boot](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=lightweight-waterproof-keen-mens-pyrenees-hiking-boot)
+### [Lightweight, Waterproof Keen Men's Pyrenees Hiking Boot](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=lightweight-waterproof-keen-mens-pyrenees-hiking-boot)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=lightweight-waterproof-keen-mens-pyrenees-hiking-boot"><img alt="keen-mens-pyrenees-8-5-syrup-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pyrenees-8-5-syrup-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=lightweight-waterproof-keen-mens-pyrenees-hiking-boot"><img alt="keen-mens-pyrenees-8-5-syrup-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pyrenees-8-5-syrup-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on the Keen Men's Pyrenees Hiking Boots, and I must say, they were a game-changer for my outdoor adventures. The waterproof feature was a lifesaver, as I tend to tread through muddy terrains. 
 
@@ -89,36 +89,36 @@ The boots were incredibly comfortable, making my hikes more enjoyable. However, 
 But overall, the Pyrenees boots were a great addition to my outdoor gear. 
 
 
-### [Keen Women's Seattle Waterproof Work Boots](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-womens-seattle-waterproof-work-boots)
+### [Keen Women's Seattle Waterproof Work Boots](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-womens-seattle-waterproof-work-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-womens-seattle-waterproof-work-boots"><img alt="keen-utility-womens-seattle-6-waterproof-aluminum-toe-work-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-utility-womens-seattle-6-waterproof-aluminum-toe-work-boot-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-womens-seattle-waterproof-work-boots"><img alt="keen-utility-womens-seattle-6-waterproof-aluminum-toe-work-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-utility-womens-seattle-6-waterproof-aluminum-toe-work-boot-1/h=540,fit=pad,background=black"/></a></div>
 
 The KEEN Utility Seattle is a versatile work boot designed for women. The boot boasts a 6-inch height and offers a comfortable fit due to its full-grain leather upper and Keen Dry waterproof liner. It's lightweight and provides excellent cushioning for all-day wear, while its rubber outsole ensures durability and slip resistance. 
 
 The aluminum toe offers safety and protection. Although the boots have impressed some customers, others have mentioned issues with comfort and support, as well as a too-wide fit. Nonetheless, the KEEN Utility Seattle remains a popular choice for women in need of a reliable work boot. 
 
 
-### [Men's Waterproof Red Hook Work Boots - Soft Toe, Medium Duty, Slip-Resistant](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=mens-waterproof-red-hook-work-boots-soft-toe-medium-duty-slip-resistant)
+### [Men's Waterproof Red Hook Work Boots - Soft Toe, Medium Duty, Slip-Resistant](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=mens-waterproof-red-hook-work-boots-soft-toe-medium-duty-slip-resistant)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=mens-waterproof-red-hook-work-boots-soft-toe-medium-duty-slip-resistant"><img alt="keen-mens-red-hook-waterproof-mid-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-red-hook-waterproof-mid-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=mens-waterproof-red-hook-work-boots-soft-toe-medium-duty-slip-resistant"><img alt="keen-mens-red-hook-waterproof-mid-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-red-hook-waterproof-mid-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of work boot protection and sneaker-like comfort with the Keen Men's Red Hook Waterproof Mid Soft Toe Work Boots. Equipped with KEEN. Dry technology, a waterproof membrane ensures your feet remain dry, even in wet conditions. 
 
 The leather upper boasts TecTuff abrasion protection, guaranteeing long-lasting durability. Additionally, the ankle-hugging collar features a convenient pull loop for easy on and off access. Although these boots are metal-free, they still provide a substantial level of comfort and protection, making them an ideal choice for light industrial work environments. 
 
 
-### [Keen Men's NXIS Explorer Waterproof Safari Shoe - 10.5](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-nxis-explorer-waterproof-safari-shoe-10-5)
+### [Keen Men's NXIS Explorer Waterproof Safari Shoe - 10.5](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-nxis-explorer-waterproof-safari-shoe-10-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-nxis-explorer-waterproof-safari-shoe-10-5"><img alt="keen-mens-nxis-explorer-mid-waterproof-shoe-10-5-safari-birch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-nxis-explorer-mid-waterproof-shoe-10-5-safari-birch-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-nxis-explorer-waterproof-safari-shoe-10-5"><img alt="keen-mens-nxis-explorer-mid-waterproof-shoe-10-5-safari-birch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-nxis-explorer-mid-waterproof-shoe-10-5-safari-birch-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the Keen Men's NXIS Explorer Mid shoes for an enjoyable hiking experience. Featuring a top-tier waterproof nubuck leather upper and tactically placed TPU reinforcements, these footwear options are designed to safeguard your feet from moisture and potential hazards, making them an ideal choice for both wet and dry terrain. With KEEN's Dry technology, moisture is kept at bay while excess perspiration is released, maintaining a comfortable fit. 
 
 The All-Terrain rubber outsole sports a 4-millimeter multi-directional lug design, offering exceptional grip on challenging hiking paths. The Original Fit provides ample space in the forefoot area, allowing your toes to spread out naturally. Consequently, the Keen Men's NXIS Explorer Mid shoes provide a harmonious combination of comfort, resilience, and stylish flair for your outdoor excursions. 
 
 
-### [Women's Greta Chelsea Waterproof Boot by Keen - Olive/Timberwolf](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=womens-greta-chelsea-waterproof-boot-by-keen-olive-timberwolf)
+### [Women's Greta Chelsea Waterproof Boot by Keen - Olive/Timberwolf](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=womens-greta-chelsea-waterproof-boot-by-keen-olive-timberwolf)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=womens-greta-chelsea-waterproof-boot-by-keen-olive-timberwolf"><img alt="keen-womens-greta-chelsea-waterproof-boot-5-olive-timberwolf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-womens-greta-chelsea-waterproof-boot-5-olive-timberwolf-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=womens-greta-chelsea-waterproof-boot-by-keen-olive-timberwolf"><img alt="keen-womens-greta-chelsea-waterproof-boot-5-olive-timberwolf-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-womens-greta-chelsea-waterproof-boot-5-olive-timberwolf-1/h=540,fit=pad,background=black"/></a></div>
 
 Slip into comfort with the Keen Women's Greta Chelsea Waterproof Boot in Olive/Timberwolf! This stylish winter boot boasts incredible waterproofing and provides warmth to keep your feet cozy. The upper is made with premium leather that's resistant to moisture, perfect for those chilly days. 
 
@@ -127,9 +127,9 @@ The inside is cozy and warm with a Thermal Heat Shield insole that prevents heat
 Embrace the winter with this versatile all-weather boot from Keen! 
 
 
-### [Keen Men's Targhee Lace High Waterproof Winter Boot with Cozy Insulation for Winter Trails](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-targhee-lace-high-waterproof-winter-boot-with-cozy-insulation-for-winter-trails)
+### [Keen Men's Targhee Lace High Waterproof Winter Boot with Cozy Insulation for Winter Trails](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-targhee-lace-high-waterproof-winter-boot-with-cozy-insulation-for-winter-trails)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-targhee-lace-high-waterproof-winter-boot-with-cozy-insulation-for-winter-trails"><img alt="keen-mens-targhee-lace-high-waterproof-boot-11-black-raven-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-targhee-lace-high-waterproof-boot-11-black-raven-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-targhee-lace-high-waterproof-winter-boot-with-cozy-insulation-for-winter-trails"><img alt="keen-mens-targhee-lace-high-waterproof-boot-11-black-raven-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-targhee-lace-high-waterproof-boot-11-black-raven-1/h=540,fit=pad,background=black"/></a></div>
 
 I decided to give the Keen Men's Targhee Lace High Waterproof Boots a try for my daily winter adventures. I appreciated the charcoal bamboo insulation, which gave a nice warm feel to my feet throughout the colder months. The boots were comfortable and provided good support while walking on icy streets and snowy paths. The waterproof build made them suitable for damp weather and ensured my feet stayed dry even in wet conditions. 
 
@@ -138,18 +138,18 @@ However, I started noticing some issues after a few months of use. The heel brak
 Despite these drawbacks, I must say the boots were comfortable in general, with a roomy toe box, and they had a nice look to them. The leather uppers were durable, and the KEEN. DRY membrane did a good job of letting sweat escape while keeping moisture out. Overall, while the Targhee Lace High Waterproof Boots had some great features, it could use some improvement in the insulation and grip departments for a truly versatile and optimal winter boot. 
 
 
-### [Keen Men's Pittsburgh Energy Carbon Fiber Toe Boot - Cascade Brown](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-pittsburgh-energy-carbon-fiber-toe-boot-cascade-brown)
+### [Keen Men's Pittsburgh Energy Carbon Fiber Toe Boot - Cascade Brown](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-pittsburgh-energy-carbon-fiber-toe-boot-cascade-brown)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-pittsburgh-energy-carbon-fiber-toe-boot-cascade-brown"><img alt="keen-mens-pittsburgh-energy-6-carbon-fiber-toe-boot-cascade-brown-greener-pastures15ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pittsburgh-energy-6-carbon-fiber-toe-boot-cascade-brown-greener-pastures15ee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-pittsburgh-energy-carbon-fiber-toe-boot-cascade-brown"><img alt="keen-mens-pittsburgh-energy-6-carbon-fiber-toe-boot-cascade-brown-greener-pastures15ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pittsburgh-energy-6-carbon-fiber-toe-boot-cascade-brown-greener-pastures15ee-1/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, these Keen Pittsburgh Energy boots have proven to be an excellent choice for those who need comfortable, durable, and protective footwear. Not only do they feature a KEEN. ReGEN midsole that provides up to 50% energy return, but they also boast carbon-fiber toes that offer reliable protection without adding unnecessary bulk. The combination of these features, along with the overall athletic hiker fit, results in a lightweight and effortless wearing experience. 
 
 However, I should mention that the boots can be a bit on the heavier side. Additionally, I found that the plastic lace loops/guides did not hold up as well as I would have preferred. Although these minor drawbacks are worth considering, overall, the Keen Pittsburgh Energy boots have been a reliable and comfortable choice for me in my daily work and activities. 
 
 
-### [Men's Waterproof Keen Boots with Memory Foam Insole](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=mens-waterproof-keen-boots-with-memory-foam-insole)
+### [Men's Waterproof Keen Boots with Memory Foam Insole](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=mens-waterproof-keen-boots-with-memory-foam-insole)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=mens-waterproof-keen-boots-with-memory-foam-insole"><img alt="mens-keen-cincinnati-90-degree-6-waterproof-soft-toe-boots-11-5-red-sandshell-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-keen-cincinnati-90-degree-6-waterproof-soft-toe-boots-11-5-red-sandshell-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=mens-waterproof-keen-boots-with-memory-foam-insole"><img alt="mens-keen-cincinnati-90-degree-6-waterproof-soft-toe-boots-11-5-red-sandshell-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-keen-cincinnati-90-degree-6-waterproof-soft-toe-boots-11-5-red-sandshell-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the Men's Keen Cincinnati 90 Degree 6" Waterproof Soft Toe Boots in a vibrant red and sandshell combo, and I must say, they've quickly become a staple in my everyday routine. Known for their rugged durability and water-resistant properties, these boots have proven to be the perfect companion for both my work and outdoor adventures. 
 
@@ -162,9 +162,9 @@ However, there were a couple of minor drawbacks that I came across. The first, t
 Overall, my experience with these boots has been very positive, and I'd highly recommend them to anyone in need of a reliable, comfortable work boot or outdoor companion. Keen Utility has certainly knocked it out of the park with the Men's Cincinnati 90 Degree 6" Waterproof Soft Toe Boots, and I can't wait to see what new innovations they'll bring to the table in the future! 
 
 
-### [Keen Men's Comfortable Soft Toe Work Boots](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-comfortable-soft-toe-work-boots)
+### [Keen Men's Comfortable Soft Toe Work Boots](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-comfortable-soft-toe-work-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-comfortable-soft-toe-work-boots"><img alt="keen-mens-roswell-mid-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-roswell-mid-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-comfortable-soft-toe-work-boots"><img alt="keen-mens-roswell-mid-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-roswell-mid-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Keen Men's Roswell Mid Soft Toe Work Boots and honestly, they really make a difference in the way I approach work. The rubber sole adds an extra layer of protection while I'm out and about, and the fold-down collar is a game-changer in terms of adaptability. The energy-returning KEEN. ReGEN midsole provides such great cushioning, but it's the breathable canvas upper that truly caught me off-guard. I couldn't believe how comfortable these boots are in the hot summer months – a real breath of fresh air compared to the old-school, heavy-duty work boots I used to wear. 
 
@@ -173,9 +173,9 @@ That's not to say there were no downsides. For a start, the sizing seemed a bit 
 Overall, I'm really pleased with these boots. They're comfortable, stylish, and practical – the perfect combination for a hard-working individual like me. They're not without their quirks, but all things considered, I'd say they're worth trying out. 
 
 
-### [Keen Fort Wayne: Waterproof Work Boots for Men](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-fort-wayne-waterproof-work-boots-for-men)
+### [Keen Fort Wayne: Waterproof Work Boots for Men](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-fort-wayne-waterproof-work-boots-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-fort-wayne-waterproof-work-boots-for-men"><img alt="keen-mens-fort-wayne-6-waterproof-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-fort-wayne-6-waterproof-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-fort-wayne-waterproof-work-boots-for-men"><img alt="keen-mens-fort-wayne-6-waterproof-soft-toe-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-fort-wayne-6-waterproof-soft-toe-work-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 These Keen Utility Fort Wayne 6 inch Waterproof Work Boots are the perfect addition to your toolbox. The Luftcell midsole provides all-day support and comfort, while the KEEN. PROTECT soft toes safeguard against minor impacts. 
 
@@ -188,18 +188,18 @@ The premium leather from LWG-Certified Tannery is environmentally friendly, and 
 In short, the Keen Utility Fort Wayne 6 inch Waterproof Work Boots are designed to meet the demands of your job site while keeping you comfortable and protected. Give them a try and see the difference for yourself. 
 
 
-### [Waterproof All-Leather Soft-Toe Work Boot from Keen](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=waterproof-all-leather-soft-toe-work-boot-from-keen)
+### [Waterproof All-Leather Soft-Toe Work Boot from Keen](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=waterproof-all-leather-soft-toe-work-boot-from-keen)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=waterproof-all-leather-soft-toe-work-boot-from-keen"><img alt="keen-1027082-san-jose-waterproof-soft-toe-6-in-boot-brown-7-ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-1027082-san-jose-waterproof-soft-toe-6-in-boot-brown-7-ee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=waterproof-all-leather-soft-toe-work-boot-from-keen"><img alt="keen-1027082-san-jose-waterproof-soft-toe-6-in-boot-brown-7-ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-1027082-san-jose-waterproof-soft-toe-6-in-boot-brown-7-ee-1/h=540,fit=pad,background=black"/></a></div>
 
 The Keen San Jose Waterproof Soft Toe Boot is an impressive footwear option for those seeking comfort and durability. Made in the USA or imported, these boots feature a rubber sole that offers excellent traction and protection. The air-injected midsole guarantees a comfortable fit for both work and play, making this item a versatile choice. 
 
 However, some users have noted concerns with the quality control, such as uneven stitching colors and customer service. Overall, the Keen San Jose Boot is a popular choice for those seeking lightweight, waterproof footwear with a touch of style. 
 
 
-### [Keen Men's Durable Brown Pittsburgh Boots](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-mens-durable-brown-pittsburgh-boots)
+### [Keen Men's Durable Brown Pittsburgh Boots](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-mens-durable-brown-pittsburgh-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-mens-durable-brown-pittsburgh-boots"><img alt="keen-mens-pittsburgh-boots-brown-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pittsburgh-boots-brown-8-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-mens-durable-brown-pittsburgh-boots"><img alt="keen-mens-pittsburgh-boots-brown-8-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-pittsburgh-boots-brown-8-6/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out a pair of Keen Men's Pittsburgh Boots, and I have to say, they lived up to the hype. These boots are designed for those who work hard and need a reliable pair of footwear that can withstand the test of time. One of the first things I noticed about this boot is the comfort. The dual-density compression midsole provides excellent support and helps reduce impact pressure, keeping my feet feeling comfy all day long! 
 
@@ -210,9 +210,9 @@ Unfortunately, there were a couple of drawbacks to these boots as well. One issu
 Overall, I found the Keen Men's Pittsburgh Boots to be a solid choice for those looking for a reliable and comfortable work boot. They may not be perfect, but the combination of durability, comfort, and safety features makes them a worthwhile investment for anyone who needs to be on their feet all day. Just make sure to keep an eye on the sizing, and you should have a pair of boots that will stand the test of time. 
 
 
-### [Keen Cincinnati Work Boots: Durable, Waterproof, and Slip-Resistant](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-cincinnati-work-boots-durable-waterproof-and-slip-resistant)
+### [Keen Cincinnati Work Boots: Durable, Waterproof, and Slip-Resistant](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-cincinnati-work-boots-durable-waterproof-and-slip-resistant)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-cincinnati-work-boots-durable-waterproof-and-slip-resistant"><img alt="keen-utility-mens-cincinnati-6-waterproof-soft-toe-work-boot-belgian-sandshell-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-utility-mens-cincinnati-6-waterproof-soft-toe-work-boot-belgian-sandshell-9/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-cincinnati-work-boots-durable-waterproof-and-slip-resistant"><img alt="keen-utility-mens-cincinnati-6-waterproof-soft-toe-work-boot-belgian-sandshell-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-utility-mens-cincinnati-6-waterproof-soft-toe-work-boot-belgian-sandshell-9/h=540,fit=pad,background=black"/></a></div>
 
 Step into the rugged comfort of the Keen Utility Cincinnati Waterproof Work Boots. This exceptional pair boasts a smart and stylish design, combining the classic wedge look with an innovative twist in comfort and protection. Featuring a durable, waterproof leather exterior that promises to withstand even the messiest of ranch work, the boots also boast an oil- and slip-resistant rubber outsole, ensuring a sure-footed step on any slippery surface. 
 
@@ -223,9 +223,9 @@ The Keen Utility Cincinnati Waterproof Work Boots are not only designed to keep 
 However, one minor drawback of these work boots is their slightly narrow fit, which may require ordering a larger size for optimal comfort. Despite this small issue, the Keen Utility Cincinnati Waterproof Work Boots remain a solid choice for those seeking reliable, comfortable, and stylish footwear for their work environment. 
 
 
-### [Keen Seattle Romeo Work Boot for Oil and Slip Resistant Support](https://serp.ly/@outrun/amazon/Keen+Boots?utm\_term=keen-seattle-romeo-work-boot-for-oil-and-slip-resistant-support)
+### [Keen Seattle Romeo Work Boot for Oil and Slip Resistant Support](https://serp.ly/@bar/amazon/Keen+Boots?utm\_term=keen-seattle-romeo-work-boot-for-oil-and-slip-resistant-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Keen+Boots?utm_term=keen-seattle-romeo-work-boot-for-oil-and-slip-resistant-support"><img alt="keen-mens-seattle-romeo-work-boot-soft-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-seattle-romeo-work-boot-soft-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Keen+Boots?utm_term=keen-seattle-romeo-work-boot-for-oil-and-slip-resistant-support"><img alt="keen-mens-seattle-romeo-work-boot-soft-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/keen-mens-seattle-romeo-work-boot-soft-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 The Keen Men's Seattle Romeo Work Boot is a stylish and functional footwear option, designed for those seeking comfort and protection in their daily activities. Crafted from full-grain leather, the boot features a pull-on design that makes it easy to slip on and off, making it ideal for both work and play. The round soft toe ensures a snug fit, while the mesh lining and cushioned footbed provide a comfortable and breathable feel. 
 
@@ -243,7 +243,7 @@ When it comes to footwear, Keen boots are widely recognized for their versatilit
 
 1. Waterproof and breathable construction: Keen boots are designed to keep your feet dry and comfortable in wet environments. Look for models featuring waterproof membranes, such as the Keen. DRY technology, which ensures that water stays out while allowing your feet to breathe. This is particularly important if you plan to wear your boots for extended periods or engage in strenuous activities. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-2/h=540,fit=pad,background=black" alt="Keen-Boots-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-2/h=540,fit=pad,background=black" alt="Keen-Boots-2" height="540"></a></div>
 
 
 ### Considerations
@@ -255,7 +255,7 @@ When it comes to footwear, Keen boots are widely recognized for their versatilit
 
 1. Clean and maintain your boots: Proper care and maintenance will help extend the lifespan of your Keen boots. Remove dirt and debris after each use, and clean your boots regularly with a mild soap and warm water. Allow them to air dry completely before storing them, as moisture can lead to mold and mildew buildup. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-3/h=540,fit=pad,background=black" alt="Keen-Boots-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-3/h=540,fit=pad,background=black" alt="Keen-Boots-3" height="540"></a></div>
 
 
 ### Additional Tips
@@ -265,7 +265,7 @@ When it comes to footwear, Keen boots are widely recognized for their versatilit
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-4/h=540,fit=pad,background=black" alt="Keen-Boots-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-4/h=540,fit=pad,background=black" alt="Keen-Boots-4" height="540"></a></div>
 
 
 ### What type of boots are Keen Boots suitable for?
@@ -281,7 +281,7 @@ Keen Boots are renowned for their lightness, breathability, and exceptional grou
 
 Furthermore, Keen Boots are known for their eco-friendliness. Most models utilize recycled materials in their construction, promoting sustainability without compromising performance. The brand's commitment to reducing waste and conserving resources adds value to hikers and outdoor enthusiasts who prioritize environmental responsibility. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-5/h=540,fit=pad,background=black" alt="Keen-Boots-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-5/h=540,fit=pad,background=black" alt="Keen-Boots-5" height="540"></a></div>
 
 
 ### Are Keen Boots waterproof?
@@ -297,7 +297,7 @@ Keen Boots come with a variety of features and technologies that provide excelle
 
 Additionally, Keen Boots often come with adjustable lacing systems that allow for a snug, customized fit. This ensures that the boots stay in place and provide optimal support, reducing the risk of blisters and discomfort. Furthermore, some models feature gaiters or straps to further enhance ankle support and protect the boots from water and debris. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-6/h=540,fit=pad,background=black" alt="Keen-Boots-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Keen+Boots"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Keen-Boots-6/h=540,fit=pad,background=black" alt="Keen-Boots-6" height="540"></a></div>
 
 
 ### Is it easy to clean Keen Boots after a muddy or wet hike?

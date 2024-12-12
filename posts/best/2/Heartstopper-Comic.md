@@ -15,34 +15,34 @@ Get ready to dive into the world of Heartstopper Comic, a captivating collection
 ## Reviews
 
 
-### [Heartstopper: Choses sérieuses (Book)](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-choses-sérieuses-book)
+### [Heartstopper: Choses sérieuses (Book)](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-choses-sérieuses-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-choses-sérieuses-book"><img alt="heartstopper-choses-s-rieuses-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-choses-s-rieuses-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-choses-sérieuses-book"><img alt="heartstopper-choses-s-rieuses-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-choses-s-rieuses-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Heartstopper is a heartwarming series written by Alice Oseman, available in ebook format with a lifetime rental period. The book follows the romantic and emotional journey of two main characters, Charlie and Nick, as they navigate love, self-discovery, and the challenges that come with it. 
 
 The series has received outstanding reviews, averaging a 4.8 rating out of 5 based on 14.0 customer reviews. Users praise the captivating story, relatable characters, and the meaningful message conveyed. They highly recommend the book to others, highlighting its emotional depth and the strong bond between the characters. Heartstopper truly showcases the significance of human connections and the beauty of love in its many forms. 
 
 
-### [Nick & Charlie: A Heartstopper Comic Companion](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=nick-charlie-a-heartstopper-comic-companion)
+### [Nick & Charlie: A Heartstopper Comic Companion](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=nick-charlie-a-heartstopper-comic-companion)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=nick-charlie-a-heartstopper-comic-companion"><img alt="nick-and-charlie-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nick-and-charlie-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=nick-charlie-a-heartstopper-comic-companion"><img alt="nick-and-charlie-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nick-and-charlie-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Nick and Charlie is a heartwarming novella by the talented author of Heartstopper, Alice Oseman. The story revolves around Nick and Charlie, the beloved Heartstopper characters who are about to face one of their biggest challenges yet. As Nick prepares for university, Charlie is left behind, leading the pair to question if their love is strong enough to withstand being apart. 
 
 This novella explores the emotions, doubts, and struggles that both characters experience during this time. It is an engaging and emotional read that captures the essence of young love and the challenges it faces. 
 
 
-### [Heartstopper Coloring Book for Fans [Book]](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-coloring-book-for-fans-book)
+### [Heartstopper Coloring Book for Fans [Book]](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-coloring-book-for-fans-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-coloring-book-for-fans-book"><img alt="heartstopper-libro-para-colorear-oficial-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-libro-para-colorear-oficial-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-coloring-book-for-fans-book"><img alt="heartstopper-libro-para-colorear-oficial-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-libro-para-colorear-oficial-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Este libro para colorear oficial de Heartstopper te ofrece una ocasión para inmersión y creatividad exclusiva en la popular serie de Nick y Charlie. Su calibre artístico impresionante, junto con las ilustraciones sorprendentes de sus personajes y escenas favoritas, te brindará horas de distracción y entretenimiento en compañía de sus amigos y amigas de Heartstopper. Además, la inclusión de escenas sin texto proporciona una oportunidad única para expresar tus propios pensamientos a través de la pintura. 
 
 
-### [Heartstopper Japanese Comic Book](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-japanese-comic-book)
+### [Heartstopper Japanese Comic Book](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-japanese-comic-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-japanese-comic-book"><img alt="---------1-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/---------1-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-japanese-comic-book"><img alt="---------1-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/---------1-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Heartstopper Comic took me on a rollercoaster of emotions as I was drawn into the poignant story of Charlie, a gay student at an all-boys school with a dark past, and Nick, the rugby-loving, kind-hearted boy who soon becomes his very best friend. The graphic novel doesn't shy away from tackling real-life issues such as acceptance, sexiness, coming out, and prejudice. 
 
@@ -51,18 +51,18 @@ What stood out to me was the strong focus on friendship and the power of accepta
 However, if you're a fan of manga with a right-to-left reading direction, you might find it a bit jarring to switch to left-to-right format as the author, Alice Oseman, is British. Despite this small inconvenience, Heartstopper Comic is a captivating and heartwarming story that I couldn't put down. 
 
 
-### [Heartstopper: My Favorite Person's Inspiration for Netflix Series [Book]](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-my-favorite-persons-inspiration-for-netflix-series-book)
+### [Heartstopper: My Favorite Person's Inspiration for Netflix Series [Book]](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-my-favorite-persons-inspiration-for-netflix-series-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-my-favorite-persons-inspiration-for-netflix-series-book"><img alt="heartstopper-minha-pessoa-favorita-vol-2-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-minha-pessoa-favorita-vol-2-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-my-favorite-persons-inspiration-for-netflix-series-book"><img alt="heartstopper-minha-pessoa-favorita-vol-2-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-minha-pessoa-favorita-vol-2-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover the heartwarming story that inspired the popular Netflix series in Heartstopper: My Favorite Character (Vol. 2). In this volume, Charlie and Nick navigate the complexities of their friendship and feelings towards each other. 
 
 The two-tone illustrations beautifully capture the characters' emotions, while the character profiles provide insight into their personalities. A unique storyline featuring Tara and Darcy adds depth to this already engaging series. If you're a fan of the Netflix show, this graphic novel is an essential part of any collection. 
 
 
-### [Heartstopper #4: A Graphic Novel - Adventure and Drama](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-4-a-graphic-novel-adventure-and-drama)
+### [Heartstopper #4: A Graphic Novel - Adventure and Drama](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-4-a-graphic-novel-adventure-and-drama)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-4-a-graphic-novel-adventure-and-drama"><img alt="heartstopper-4-a-graphic-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-4-a-graphic-novel-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-4-a-graphic-novel-adventure-and-drama"><img alt="heartstopper-4-a-graphic-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-4-a-graphic-novel-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I was excited to dive into the world of Charlie and Nick once again in Heartstopper #4. The two-color artwork was absolutely delightful and added an extra layer of charm to the story. 
 
@@ -71,18 +71,18 @@ This volume beautifully explores the complexities of love and relationships, wit
 Fans of the Heartstopper series will not be disappointed! 
 
 
-### [Heartstopper Series Book Collection by Alice Oseman](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-series-book-collection-by-alice-oseman)
+### [Heartstopper Series Book Collection by Alice Oseman](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-series-book-collection-by-alice-oseman)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-series-book-collection-by-alice-oseman"><img alt="heartstopper-series-volume-1-4-books-set-by-alice-oseman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-series-volume-1-4-books-set-by-alice-oseman-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-series-book-collection-by-alice-oseman"><img alt="heartstopper-series-volume-1-4-books-set-by-alice-oseman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-series-volume-1-4-books-set-by-alice-oseman-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to dive into the world of Heartstopper with this fantastic 4-book set by Alice Oseman. This collection, published by Hodder Children's Books, is perfect for fans of heartwarming, coming-of-age stories. 
 
 The books are in Used-VeryGood condition, meaning they are gently used but still in great shape. You'll find all pages and the cover nicely preserved, with just a touch of shelf wear and some very light notes and highlighting. If you're a huge Heartstopper fan, this set is an absolute must-have – a delightful addition to any book lover's collection. 
 
 
-### [Heartstopper Comic Collection: Volume 1-4 by Alice Oseman](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-comic-collection-volume-1-4-by-alice-oseman)
+### [Heartstopper Comic Collection: Volume 1-4 by Alice Oseman](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-comic-collection-volume-1-4-by-alice-oseman)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-comic-collection-volume-1-4-by-alice-oseman"><img alt="heartstopper-series-volume-1-4-books-collection-set-by-alice-oseman-netflix-series-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-series-volume-1-4-books-collection-set-by-alice-oseman-netflix-series-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-comic-collection-volume-1-4-by-alice-oseman"><img alt="heartstopper-series-volume-1-4-books-collection-set-by-alice-oseman-netflix-series-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-series-volume-1-4-books-collection-set-by-alice-oseman-netflix-series-1/h=540,fit=pad,background=black"/></a></div>
 
 When I heard about the Heartstopper Series Volume 1-4 books collection by Alice Oseman, I was intrigued by the concept and the beautifully designed cover art. I was eager to see how the story unfolded and if the characters would truly capture my heart. 
 
@@ -97,18 +97,18 @@ However, as much as I enjoyed reading these books, I couldn't help but be disapp
 Overall, the Heartstopper Series Volume 1-4 books collection is a beautifully crafted exploration of love, friendship, and the challenges we face in our early years. I recommend it to anyone who enjoys a heartfelt and thought-provoking read. 
 
 
-### [A Heartstopper Winter Novella: A Tale of Love and Challenges](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=a-heartstopper-winter-novella-a-tale-of-love-and-challenges)
+### [A Heartstopper Winter Novella: A Tale of Love and Challenges](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=a-heartstopper-winter-novella-a-tale-of-love-and-challenges)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=a-heartstopper-winter-novella-a-tale-of-love-and-challenges"><img alt="this-winter-a-heartstopper-novella-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/this-winter-a-heartstopper-novella-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=a-heartstopper-winter-novella-a-tale-of-love-and-challenges"><img alt="this-winter-a-heartstopper-novella-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/this-winter-a-heartstopper-novella-book-1/h=540,fit=pad,background=black"/></a></div>
 
 This winter novella, based on the beloved characters from the Heartstopper graphic novel series, delves into the complexities of the festive season for Tori and her brother Charlie, as they navigate the challenges that have plagued their past. Set against the backdrop of a story filled with warmth, love, and happiness, the novella invites readers to join Tori and Charlie on their journey to find hope and joy in the midst of adversity. 
 
 The novella is a heartwarming addition to the Heartstopper series, providing fans with a glimpse into the lives of their favorite characters during a different time of the year. With its engaging storytelling and captivating illustrations, the novella stands as a testament to the enduring appeal of the Heartstopper universe, both on and off the screen. 
 
 
-### [Heartstopper Volume 1: LGBTQ+ Graphic Novel](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-1-lgbtq-graphic-novel)
+### [Heartstopper Volume 1: LGBTQ+ Graphic Novel](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-1-lgbtq-graphic-novel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-1-lgbtq-graphic-novel"><img alt="heartstopper-volume-1-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-1-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-1-lgbtq-graphic-novel"><img alt="heartstopper-volume-1-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-1-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started reading Heartstopper, Volume 1 by Alice Oseman, and I must say, it's been an emotional roller coaster. The story is about two teenage boys, Charlie and Nick, who find friendship, love, and acceptance in a world that isn't always so welcoming. It's beautiful to see a story about love and acceptance, especially in the LGBTQ+ community. 
 
@@ -117,9 +117,9 @@ One of the things that stood out to me while reading is how the author, Alice Os
 However, one drawback I faced while reading was the pacing of the story. At times, it felt a bit slow, making it hard for me to keep up with the progression of the plot. But overall, Heartstopper, Volume 1, is a touching and inspiring read that has captured my heart. I would highly recommend it to anyone looking for a heartfelt story of love and acceptance. 
 
 
-### [Discover Heartstopper: The Official Coloring Book by The Official Heartstopper Team](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=discover-heartstopper-the-official-coloring-book-by-the-official-heartstopper-team)
+### [Discover Heartstopper: The Official Coloring Book by The Official Heartstopper Team](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=discover-heartstopper-the-official-coloring-book-by-the-official-heartstopper-team)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=discover-heartstopper-the-official-coloring-book-by-the-official-heartstopper-team"><img alt="the-official-heartstopper-coloring-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-official-heartstopper-coloring-book-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=discover-heartstopper-the-official-coloring-book-by-the-official-heartstopper-team"><img alt="the-official-heartstopper-coloring-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-official-heartstopper-coloring-book-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon this beautiful and unique Heartstopper coloring book. It's jam-packed with stunning artwork from the beloved Heartstopper series, featuring fan-favorite characters like Nick, Charlie, and Tara. The book is designed with thick, white pages perfect for coloring with either traditional pencils or even watercolors! 
 
@@ -128,27 +128,27 @@ What really stands out is the inclusion of empty word balloons that allow you to
 However, one problem I encountered was the book arriving folded. But the amazing graphics and thoughtful features of this coloring book definitely outweigh that minor inconvenience. So, if you're a Heartstopper superfan or simply a lover of captivating artwork, this coloring book is a must-have. 
 
 
-### [Heartstopper Yearbook: Exclusive Insights into Alice Oseman's World](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-yearbook-exclusive-insights-into-alice-osemans-world)
+### [Heartstopper Yearbook: Exclusive Insights into Alice Oseman's World](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-yearbook-exclusive-insights-into-alice-osemans-world)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-yearbook-exclusive-insights-into-alice-osemans-world"><img alt="the-heartstopper-yearbook-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-heartstopper-yearbook-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-yearbook-exclusive-insights-into-alice-osemans-world"><img alt="the-heartstopper-yearbook-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-heartstopper-yearbook-book-1/h=540,fit=pad,background=black"/></a></div>
 
 The Heartstopper Yearbook is a must-have for fans of Alice Oseman's beloved Heartstopper series. With its vibrant full-color pages, it unveils never-before-seen illustrations and a captivating minicomic, offering a unique glimpse into the Heartstopper universe. 
 
 Ideal for gift-giving, this comprehensive guide provides character profiles, trivia, and an intimate look into the author's creative process. As a bonus, readers can enjoy a cartoon version of Alice herself narrating her own work. With a 4.9-star rating, it is clear that Heartstopper fans will treasure this beautiful and engaging addition to their collection. 
 
 
-### [Heartstopper Volume 4: A Graphic Novel](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-4-a-graphic-novel)
+### [Heartstopper Volume 4: A Graphic Novel](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-4-a-graphic-novel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-4-a-graphic-novel"><img alt="heartstopper-volume-4-a-graphic-novel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-4-a-graphic-novel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-4-a-graphic-novel"><img alt="heartstopper-volume-4-a-graphic-novel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-4-a-graphic-novel-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the heartwarming and deeply touching fourth volume in the Heartstopper series, presented in a visually stunning two-color artwork style. Follow the romantic journey of Charlie and Nick as they navigate the challenges of love and growing up. Alongside their evolving relationship, the graphic novel also explores meaningful topics such as mental health, eating disorders, and the importance of communication and support in overcoming obstacles. 
 
 Immerse yourself in this delightful graphic novel series that captures the essence of love, acceptance, and personal growth, available in both softcover and hardcover editions. 
 
 
-### [Heartstopper Volume 5: A Graphic Novel](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-5-a-graphic-novel)
+### [Heartstopper Volume 5: A Graphic Novel](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-5-a-graphic-novel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-5-a-graphic-novel"><img alt="heartstopper-5-a-graphic-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-5-a-graphic-novel-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-5-a-graphic-novel"><img alt="heartstopper-5-a-graphic-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-5-a-graphic-novel-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into the heartwarming world of Nick and Charlie in the fifth installment of the Heartstopper graphic novel series. With stunning two-color artwork, author Alice Oseman masterfully weaves the story of love, friendship, and growing up. This book is not only perfect for fans of the series but also an excellent introduction to the LGBTQ+ characters and themes that make this series so special. 
 
@@ -159,9 +159,9 @@ Fans and newcomers alike will appreciate the acclaimed live-action Netflix serie
 The Heartstopper series is a must-read for anyone who loves a good coming-of-age story, with a focus on LGBTQ+ representation and the importance of acceptance and understanding. So, grab your copy of Heartstopper #5 and get ready to fall in love with this heartwarming graphic novel! 
 
 
-### [Heartstopper: Inspirador Quadrinho da Netflix](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-inspirador-quadrinho-da-netflix)
+### [Heartstopper: Inspirador Quadrinho da Netflix](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-inspirador-quadrinho-da-netflix)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-inspirador-quadrinho-da-netflix"><img alt="heartstopper-dois-garotos-um-encontro-vol-1-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-dois-garotos-um-encontro-vol-1-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-inspirador-quadrinho-da-netflix"><img alt="heartstopper-dois-garotos-um-encontro-vol-1-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-dois-garotos-um-encontro-vol-1-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the heartwarming tale that inspired the hit Netflix series, now in Brazilian hands. Heartstopper: Dois garotos, um encontro (vol. 1) introduces us to Charlie and Nick, two boys with seemingly nothing in common. 
 
@@ -170,9 +170,9 @@ Charlie, the reserved and bullied gay student, and Nick, the popular rugby playe
 Heartstopper not only captures the essence of the Netflix show, but also explores the surprising ways love can blossom. 
 
 
-### [Heartstopper Volume 3: Bestselling Graphic Novel Now on Netflix](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-3-bestselling-graphic-novel-now-on-netflix)
+### [Heartstopper Volume 3: Bestselling Graphic Novel Now on Netflix](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-3-bestselling-graphic-novel-now-on-netflix)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-3-bestselling-graphic-novel-now-on-netflix"><img alt="heartstopper-volume-3-the-bestselling-graphic-novel-now-on-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-3-the-bestselling-graphic-novel-now-on-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-3-bestselling-graphic-novel-now-on-netflix"><img alt="heartstopper-volume-3-the-bestselling-graphic-novel-now-on-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-3-the-bestselling-graphic-novel-now-on-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
 
 The enchanting Heartstopper Volume 3 graphic novel has landed in a charming special-edition hardback, featuring an exclusive mini-comic, stunning foiled cover, and eye-catching endpapers. The novel continues its bestselling journey in the LGBTQ+ graphic novel series, narrating the intricate relationship between Charlie and Nick, along with the challenges they face while navigating life and love. 
 
@@ -181,9 +181,9 @@ The story delves deep into various emotions, beautifully capturing the essence o
 With a collection of all four special-edition hardbacks planned for release in 2023, you won't want to miss diving into the captivating world of Heartstopper. 
 
 
-### [Heartstopper Volume 2 Graphic Novel](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-2-graphic-novel)
+### [Heartstopper Volume 2 Graphic Novel](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-volume-2-graphic-novel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-2-graphic-novel"><img alt="heartstopper-volume-2-the-bestselling-graphic-novel-now-on-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-2-the-bestselling-graphic-novel-now-on-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-volume-2-graphic-novel"><img alt="heartstopper-volume-2-the-bestselling-graphic-novel-now-on-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-volume-2-the-bestselling-graphic-novel-now-on-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Heartstopper Volume 2 invites readers into the warm, heartwarming world of Nick and Charlie, two boys navigating young love and personal growth. As the tale unfolds, readers will laugh, cry, and connect with the characters as they navigate the ups and downs of life, love, and everything in between. This volume offers readers a delightful mix of wit and emotion, making it a must-read for anyone looking for a compelling graphic novel that tackles real-world issues in a heartwarming and honest way. 
 
@@ -196,9 +196,9 @@ For fans of the series, there's even more to love as each volume includes bonus 
 In conclusion, Heartstopper Volume 2 offers readers a captivating story that resonates with the ups and downs of life, love, and everything in between. With its stunning artwork, heartfelt storytelling, and bonus content, there's never been a better time to explore the world of Heartstopper. Whether you're a newcomer or a dedicated fan, this collection is sure to provide countless hours of enjoyment and leave readers eagerly awaiting the next installment. 
 
 
-### [Heartstopper Comic: Nick and Charlie Meet For the First Time](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-comic-nick-and-charlie-meet-for-the-first-time)
+### [Heartstopper Comic: Nick and Charlie Meet For the First Time](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-comic-nick-and-charlie-meet-for-the-first-time)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-comic-nick-and-charlie-meet-for-the-first-time"><img alt="heartstopper-1-nick-en-charlie-ontmoeten-elkaar-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-1-nick-en-charlie-ontmoeten-elkaar-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-comic-nick-and-charlie-meet-for-the-first-time"><img alt="heartstopper-1-nick-en-charlie-ontmoeten-elkaar-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-1-nick-en-charlie-ontmoeten-elkaar-book-1/h=540,fit=pad,background=black"/></a></div>
 
 In my search for a lighthearted read, I stumbled upon Heartstopper 1: Nick en Charlie ontmoeten elkaar. This book, with its charming title, promised a delightful story about two boys meeting each other - something I could relate to as a teenager. 
 
@@ -211,9 +211,9 @@ However, there were moments where the pacing felt slightly off, and I found myse
 Despite these minor issues, Heartstopper 1: Nick en Charlie ontmoeten elkaar proved to be a refreshing and heartwarming read. The book's excellent condition, despite being read, added an extra layer of enjoyment. I highly recommend it to anyone seeking a lighthearted story that delves into the complexities of adolescent love. 
 
 
-### [Heartstopper: De Mãos Dadas Volume 4 - Inspiração para a Série da Netflix](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-de-mãos-dadas-volume-4-inspiração-para-a-série-da-netflix)
+### [Heartstopper: De Mãos Dadas Volume 4 - Inspiração para a Série da Netflix](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-de-mãos-dadas-volume-4-inspiração-para-a-série-da-netflix)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-de-mãos-dadas-volume-4-inspiração-para-a-série-da-netflix"><img alt="heartstopper-de-m-os-dadas-vol-4-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-de-m-os-dadas-vol-4-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-de-mãos-dadas-volume-4-inspiração-para-a-série-da-netflix"><img alt="heartstopper-de-m-os-dadas-vol-4-inspira--o-para-a-s-rie-da-netflix-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-de-m-os-dadas-vol-4-inspira--o-para-a-s-rie-da-netflix-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I dived into the captivating world of Heartstopper, volume 4. I found myself drawn into the complex relationship between Charlie and Nick as they navigate their way through love and adolescence. The comic's portrayal of this heartwarming story is not only engaging but also genuinely inspirational for the Netflix series. 
 
@@ -224,9 +224,9 @@ The artwork was simple yet captivating, adding an extra layer of delight to the 
 My only gripe would be the occasional pacing, but overall, this comic volume provided a beautifully balanced reading experience. Despite its brief interludes, the powerful and heartfelt narrative made every moment worthwhile. With Heartstopper, I not only discovered a captivating companion to my lazy Sundays but also a touching tribute to the art of the comic book. 
 
 
-### [Heartstopper #1-4 Box Set](https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm\_term=heartstopper-1-4-box-set)
+### [Heartstopper #1-4 Box Set](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-1-4-box-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic?utm_term=heartstopper-1-4-box-set"><img alt="heartstopper-1-4-box-set-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-1-4-box-set-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic?utm_term=heartstopper-1-4-box-set"><img alt="heartstopper-1-4-box-set-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/heartstopper-1-4-box-set-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Heartstopper series by Alice Oseman, and I absolutely fell in love with the first volume. The story follows two teenage boys, Charlie and Nick, as they navigate their feelings for each other while dealing with the challenges of high school. One of the things that stood out to me was the beautiful artwork that adorns each volume, capturing the emotions of the characters perfectly. 
 
@@ -246,7 +246,7 @@ Welcome to the Heartstopper Comic buyer's guide! This comprehensive guide will h
 
 Heartstopper Comics are engaging graphic novels that tell the story of Charlie and Nick, two teenage boys who fall in love. Created by Alice Oseman, these comics have quickly become popular for their honest portrayal of love, friendship, and adolescence. With multiple volumes available, you can follow the characters' journey through various stages of their relationship. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-2/h=540,fit=pad,background=black" alt="Heartstopper-Comic-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-2/h=540,fit=pad,background=black" alt="Heartstopper-Comic-2" height="540"></a></div>
 
 
 ### Considering Age Appropriateness
@@ -258,7 +258,7 @@ Before diving into the Heartstopper Comic series, consider the age appropriatene
 
 There are different formats in which Heartstopper Comics are available. The most common one is the traditional printed comic book format. However, you can also find these comics in digital form on platforms like Amazon Kindle, Apple Books, or webcomic sites. Consider the reader's preference, access to the desired format, and storage requirements before making your choice. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-3/h=540,fit=pad,background=black" alt="Heartstopper-Comic-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-3/h=540,fit=pad,background=black" alt="Heartstopper-Comic-3" height="540"></a></div>
 
 
 ### Supporting Author Alice Oseman
@@ -268,7 +268,7 @@ By purchasing Heartstopper Comics, you are not only getting an entertaining and 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-4/h=540,fit=pad,background=black" alt="Heartstopper-Comic-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-4/h=540,fit=pad,background=black" alt="Heartstopper-Comic-4" height="540"></a></div>
 
 
 ### What is the Heartstopper Comic about?
@@ -284,7 +284,7 @@ The Heartstopper Comic series is recommended for a mature audience due to its ex
 
 The series also handles sensitive topics such as sex, identity, and mental health. While it offers valuable insight into these subjects, it may not be suitable for all readers. As with any graphic novel or comic, it is recommended that potential readers or parents consult the authors and reviewers who know the content best before making any judgments. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-5/h=540,fit=pad,background=black" alt="Heartstopper-Comic-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-5/h=540,fit=pad,background=black" alt="Heartstopper-Comic-5" height="540"></a></div>
 
 
 ### Is the Heartstopper Comic available in print or digital format?
@@ -300,7 +300,7 @@ Yes, there are several spin-offs and related products available for fans of the 
 
 These additional resources allow fans to explore the Heartstopper universe further and experience the compelling narratives of the original graphic novel series. They may also give readers a better understanding of the characters and themes depicted in the comics, enhancing their overall appreciation for the Heartstopper series. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-6/h=540,fit=pad,background=black" alt="Heartstopper-Comic-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Heartstopper+Comic"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Heartstopper-Comic-6/h=540,fit=pad,background=black" alt="Heartstopper-Comic-6" height="540"></a></div>
 
 
 ### Who is the creator of the Heartstopper Comic series?

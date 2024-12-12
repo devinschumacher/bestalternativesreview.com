@@ -15,9 +15,9 @@ Are you tired of constantly having to remind your kids to close the cabinet door
 ## Reviews
 
 
-### [Stamped Brass Antique Cabinet Latch and Catch](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=stamped-brass-antique-cabinet-latch-and-catch)
+### [Stamped Brass Antique Cabinet Latch and Catch](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=stamped-brass-antique-cabinet-latch-and-catch)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=stamped-brass-antique-cabinet-latch-and-catch"><img alt="plain-hoosier-brass-latch-and-catch-antique-cabinet-vintage-cupboard-old-des-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plain-hoosier-brass-latch-and-catch-antique-cabinet-vintage-cupboard-old-des-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=stamped-brass-antique-cabinet-latch-and-catch"><img alt="plain-hoosier-brass-latch-and-catch-antique-cabinet-vintage-cupboard-old-des-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plain-hoosier-brass-latch-and-catch-antique-cabinet-vintage-cupboard-old-des-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon this Plain Hoosier Brass Latch and Catch, which is a charming reproduction of an antique Hoosier cabinet door latch. Made from stamped brass, it measures 1.12 inches in height, 2.25 inches in depth, and has a width of 1.8 inches. It comes in two options, flush or offset mounting, allowing for flexibility during installation. The hardware features include the latch, a flush, and an offset catch with screws. 
 
@@ -26,18 +26,18 @@ During my search for cabinet latches, this vintage-inspired piece caught my eye.
 Although the latch fits snugly to the door, it may prove challenging to operate the doors with the screws on the catch. Regardless, the overall quality and design of this Plain Hoosier Brass Latch and Catch make it a worthwhile addition to any cabinet, vintage or modern. 
 
 
-### [Polished Brass Ball Catch for Closet/Cabinet Doors](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=polished-brass-ball-catch-for-closet-cabinet-doors)
+### [Polished Brass Ball Catch for Closet/Cabinet Doors](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=polished-brass-ball-catch-for-closet-cabinet-doors)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=polished-brass-ball-catch-for-closet-cabinet-doors"><img alt="national-hardware-ball-catch-drive-in-polished-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-hardware-ball-catch-drive-in-polished-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=polished-brass-ball-catch-for-closet-cabinet-doors"><img alt="national-hardware-ball-catch-drive-in-polished-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/national-hardware-ball-catch-drive-in-polished-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 The National Hardware Ball Catch Drive-In in polished brass was a lifesaver in my hectic daily life. I use it on my wooden closet door and it's been providing the perfect tension to keep my items securely stored. The brass finish adds a touch of elegance, and the steel material ensures durability. 
 
 It's easy to install, thanks to the included fasteners, making it the best purchase I've made for my closet organization. 
 
 
-### [Stylish Brass Draw Catch for Cabinets](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=stylish-brass-draw-catch-for-cabinets)
+### [Stylish Brass Draw Catch for Cabinets](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=stylish-brass-draw-catch-for-cabinets)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=stylish-brass-draw-catch-for-cabinets"><img alt="hillman-brass-ornamental-draw-catch-852966" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hillman-brass-ornamental-draw-catch-852966/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=stylish-brass-draw-catch-for-cabinets"><img alt="hillman-brass-ornamental-draw-catch-852966" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hillman-brass-ornamental-draw-catch-852966/h=540,fit=pad,background=black"/></a></div>
 
 I've recently had the chance to add a touch of elegance to my cabinets using the Hillman Brass Ornamental Draw Catch. The latch, which flips upward onto a lip, has made it a breeze to secure my doors and drawers, not to mention how it complements the overall aesthetic of the furniture. 
 
@@ -46,18 +46,18 @@ Despite being a small addition, the brass finish of the catch adds an attractive
 Overall, I'm quite satisfied with my Hillman Brass Ornamental Draw Catch, as it offers both practicality and an eye-catching finish, ensuring that my furniture looks great and stays secure. 
 
 
-### [Gatehouse Brass Touch Cabinet Catches](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=gatehouse-brass-touch-cabinet-catches)
+### [Gatehouse Brass Touch Cabinet Catches](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=gatehouse-brass-touch-cabinet-catches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=gatehouse-brass-touch-cabinet-catches"><img alt="gatehouse-polished-brass-touch-cabinet-catch-2-pack-s890-211" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gatehouse-polished-brass-touch-cabinet-catch-2-pack-s890-211/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=gatehouse-brass-touch-cabinet-catches"><img alt="gatehouse-polished-brass-touch-cabinet-catch-2-pack-s890-211" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gatehouse-polished-brass-touch-cabinet-catch-2-pack-s890-211/h=540,fit=pad,background=black"/></a></div>
 
 These Gatehouse Brass Cabinet Catches are a versatile option for securing a variety of cabinets and boxes. With a sturdy steel construction, they offer a tight and secure closure, perfect for keeping valuables and precious items safe. The surface mount makes installation a breeze, while the lockable feature allows for added security with a padlock. 
 
 The sleek brass finish adds a touch of elegance, making these latches suitable for both vertical and horizontal applications. Overall, these locks offer a reliable and stylish solution for all your cabinet security needs. 
 
 
-### [Easy-Install Adhesive Cabinet Latch for Child Safety](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=easy-install-adhesive-cabinet-latch-for-child-safety)
+### [Easy-Install Adhesive Cabinet Latch for Child Safety](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=easy-install-adhesive-cabinet-latch-for-child-safety)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=easy-install-adhesive-cabinet-latch-for-child-safety"><img alt="safety-1st-adhesive-cabinet-latch-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-1st-adhesive-cabinet-latch-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=easy-install-adhesive-cabinet-latch-for-child-safety"><img alt="safety-1st-adhesive-cabinet-latch-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/safety-1st-adhesive-cabinet-latch-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Safety First Adhesive Cabinet and Drawer Latches are a handy solution for parents looking to keep their little ones safe from accidentally opening cabinets and drawers. With an easy installation process that requires no tools and an adhesive-backed design, these latches can be applied to most cabinets in seconds. Designed to help deter children from exploring areas they shouldn't be, these latches even come with a disengage feature when not in use. 
 
@@ -66,18 +66,18 @@ This product is perfect for renters or anyone who doesn't want to damage their c
 Although these latches are a useful tool for parents, there are a few minor issues with installation and potential gaps left in closed cabinets. Additionally, some customers have reported that the latches can be easily broken by a determined child. Overall, the Safety First Adhesive Cabinet and Drawer Latches are a good deterrent for curious kids, but parents should use common sense and supervision when using these latches. 
 
 
-### [20-Pack 8mm Brass Ball Cabinet Door Catches](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=20-pack-8mm-brass-ball-cabinet-door-catches)
+### [20-Pack 8mm Brass Ball Cabinet Door Catches](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=20-pack-8mm-brass-ball-cabinet-door-catches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=20-pack-8mm-brass-ball-cabinet-door-catches"><img alt="household-cabinet-door-brass-ball-catches-latch-catcher-8mm-dia-20pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/household-cabinet-door-brass-ball-catches-latch-catcher-8mm-dia-20pcs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=20-pack-8mm-brass-ball-cabinet-door-catches"><img alt="household-cabinet-door-brass-ball-catches-latch-catcher-8mm-dia-20pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/household-cabinet-door-brass-ball-catches-latch-catcher-8mm-dia-20pcs-1/h=540,fit=pad,background=black"/></a></div>
 
 These brass toned, 8mm diameter ball catches add a touch of elegance to your household cabinetry, making them an excellent replacement for any worn or damaged ones you may have. The package includes 20 pieces, each with a ball diameter of 6mm, ensuring you have plenty to go around for all your cabinet doors. Simply mount the ball catch on the upper level of the door and attach it to the hole provided on the door's surface, providing a functional and stylish upgrade to your furniture. 
 
 With their brass material, these catches are not only practical but also a beautiful addition to any room. 
 
 
-### [Amerock Magnetic Cabinet Catch - Tan](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=amerock-magnetic-cabinet-catch-tan)
+### [Amerock Magnetic Cabinet Catch - Tan](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=amerock-magnetic-cabinet-catch-tan)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=amerock-magnetic-cabinet-catch-tan"><img alt="amerock-bp9765pt-magnetic-catch-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amerock-bp9765pt-magnetic-catch-tan-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=amerock-magnetic-cabinet-catch-tan"><img alt="amerock-bp9765pt-magnetic-catch-tan-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amerock-bp9765pt-magnetic-catch-tan-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently needed a replacement magnetic catch for my kitchen cabinets, and I was thrilled to find the Amerock BP9765PT Magnetic Catch in Tan that perfectly matched the ones on all the other cabinets. Not only did the catch fit perfectly, but it also didn't require any adjustments like the previous one. I love that it's made of plastic, which makes it lightweight and easy to install. 
 
@@ -86,9 +86,9 @@ One of the most impressive aspects of this product is its durability. The magnet
 However, there's one downside: while the catches are sold together with the plates, it would've been nice if they were sold separately. This would have made it even easier to replace just the broken parts without having to purchase an entire new catch. Nevertheless, the product is a great fit for my kitchen cabinets and has made a lasting impression on me. 
 
 
-### [High-Quality Brass Cabinet Catches Set for Vintage Furniture](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=high-quality-brass-cabinet-catches-set-for-vintage-furniture)
+### [High-Quality Brass Cabinet Catches Set for Vintage Furniture](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=high-quality-brass-cabinet-catches-set-for-vintage-furniture)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=high-quality-brass-cabinet-catches-set-for-vintage-furniture"><img alt="uniqantiq-hardware-supply-surplus-catches-for-brass-cabinet-latches-antique-cabinet-vintage-cupboard-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uniqantiq-hardware-supply-surplus-catches-for-brass-cabinet-latches-antique-cabinet-vintage-cupboard-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=high-quality-brass-cabinet-catches-set-for-vintage-furniture"><img alt="uniqantiq-hardware-supply-surplus-catches-for-brass-cabinet-latches-antique-cabinet-vintage-cupboard-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uniqantiq-hardware-supply-surplus-catches-for-brass-cabinet-latches-antique-cabinet-vintage-cupboard-1/h=540,fit=pad,background=black"/></a></div>
 
 These UNIQANTIQ Hardware catches are a great addition to both old and new furniture pieces. Made from sturdy brass, these latches are both attractive and durable, providing a long-lasting solution. 
 
@@ -97,9 +97,9 @@ They come in two styles: 3/8" Offset and Flush Catches, making them versatile to
 Considering the overall functionality and quality of these catches, they're a worthy investment for a vintage or antique furniture piece. 
 
 
-### [Ives Aluminum Cabinet Catch](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=ives-aluminum-cabinet-catch)
+### [Ives Aluminum Cabinet Catch](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=ives-aluminum-cabinet-catch)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=ives-aluminum-cabinet-catch"><img alt="ives-1-38-in-h-x-1-25-in-w-x-1-5-in-d-natural-aluminum-cabinet-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ives-1-38-in-h-x-1-25-in-w-x-1-5-in-d-natural-aluminum-cabinet-catch-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=ives-aluminum-cabinet-catch"><img alt="ives-1-38-in-h-x-1-25-in-w-x-1-5-in-d-natural-aluminum-cabinet-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ives-1-38-in-h-x-1-25-in-w-x-1-5-in-d-natural-aluminum-cabinet-catch-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking for a stylish and functional cabinet catch? Look no further than the Ives 1.38 in. H x 1.25 in. W x 1.5 in. D Natural Aluminum Cabinet Catch. This sleek design is perfect for adding a touch of elegance to your cabinet doors. 
 
@@ -110,9 +110,9 @@ Installation is a breeze with its surface-applied design, making it easy to appl
 Users have loved the sturdy build and ease of installation. This catch is perfect for antique cabinets and even puzzle boxes, making it a versatile choice for a wide range of applications. With a 5-star rating and glowing reviews, the Ives 1.38 in. H x 1.25 in. W x 1.5 in. D Natural Aluminum Cabinet Catch is sure to be a standout in your collection. So why wait? Give it a try today! 
 
 
-### [Luomorgo 24 Pack Latches for Cupboard Doors](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=luomorgo-24-pack-latches-for-cupboard-doors)
+### [Luomorgo 24 Pack Latches for Cupboard Doors](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=luomorgo-24-pack-latches-for-cupboard-doors)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=luomorgo-24-pack-latches-for-cupboard-doors"><img alt="luomorgo-24-pack-double-roller-catch-cabinet-latches-with-spear-strike-for-cupboard-closet-door-silv-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luomorgo-24-pack-double-roller-catch-cabinet-latches-with-spear-strike-for-cupboard-closet-door-silv-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=luomorgo-24-pack-latches-for-cupboard-doors"><img alt="luomorgo-24-pack-double-roller-catch-cabinet-latches-with-spear-strike-for-cupboard-closet-door-silv-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luomorgo-24-pack-double-roller-catch-cabinet-latches-with-spear-strike-for-cupboard-closet-door-silv-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're looking for a reliable and long-lasting cabinet latch, the Luomorgo 24 Pack Double Roller Catch Cabinet Latches with Spear Strike is an excellent choice. These latches come with 24 pieces and include mounting screws for easy installation. The latch is made of high-quality materials, including cold-rolled steel and nylon for durability and strength. 
 
@@ -121,9 +121,9 @@ With a maximum weight capacity of 2.2 pounds, it ensures a safe and secure closi
 Overall, the Luomorgo latch offers a sturdy and reliable solution for your cabinet closure needs. 
 
 
-### [Rok Hardware Brushed Nickel Adjustable Ball Catch Latches for Cabinets with Radius Corners](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=rok-hardware-brushed-nickel-adjustable-ball-catch-latches-for-cabinets-with-radius-corners)
+### [Rok Hardware Brushed Nickel Adjustable Ball Catch Latches for Cabinets with Radius Corners](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=rok-hardware-brushed-nickel-adjustable-ball-catch-latches-for-cabinets-with-radius-corners)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=rok-hardware-brushed-nickel-adjustable-ball-catch-latches-for-cabinets-with-radius-corners"><img alt="2-pack-rok-hardware-brushed-nickel-adjustable-ball-catch-latch-cabinet-door-with-radius-corners-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-pack-rok-hardware-brushed-nickel-adjustable-ball-catch-latch-cabinet-door-with-radius-corners-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=rok-hardware-brushed-nickel-adjustable-ball-catch-latches-for-cabinets-with-radius-corners"><img alt="2-pack-rok-hardware-brushed-nickel-adjustable-ball-catch-latch-cabinet-door-with-radius-corners-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-pack-rok-hardware-brushed-nickel-adjustable-ball-catch-latch-cabinet-door-with-radius-corners-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Rok Hardware Brushed Nickel Adjustable Ball Catch Latch Cabinet Door with Radius Corners for my closet doors, and I'm thoroughly impressed. This latch is not only stylish, with its modern brushed nickel finish, but also incredibly practical for my everyday needs. 
 
@@ -132,27 +132,27 @@ The latch itself is adjustable, making it a versatile solution for my closet doo
 Installation couldn't have been easier, thanks to the included mounting screws. I was able to have it securely in place in no time. This latch truly adds a touch of sophistication to my living space, and I highly recommend it for anyone looking to enhance their cabinet or closet doors! 
 
 
-### [Jr Products Concealed Catch Positive Cabinet Catches](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=jr-products-concealed-catch-positive-cabinet-catches)
+### [Jr Products Concealed Catch Positive Cabinet Catches](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=jr-products-concealed-catch-positive-cabinet-catches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=jr-products-concealed-catch-positive-cabinet-catches"><img alt="jr-products-70325-concealed-catch-positive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jr-products-70325-concealed-catch-positive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=jr-products-concealed-catch-positive-cabinet-catches"><img alt="jr-products-70325-concealed-catch-positive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jr-products-70325-concealed-catch-positive-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Hidden Held Firm, manufactured by Jr Products 70325 - a dependable and efficient solution for keeping your RV's cabinet doors locked securely in place. The hidden positive design provides an uninterrupted visual appeal, while ensuring a highly secure grip for your doors. Crafted using durable, long-lasting plastic, this catch boasts the capability to withstand repeated usage and prolonged contact with harsh environmental conditions.
 
 Moreover, this catch is adaptable to a multitude of RV cabinet doors and comes equipped with easy-to-install mounting screws. Although a few users have reported minor fit concerns for specific camper door models, on the whole, the Concealed Catch Positive offers a reasonably priced and top-quality alternative for those within the RV sector.
 
 
-### [Premium Chrome Finish Cabinet Door Catch](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=premium-chrome-finish-cabinet-door-catch)
+### [Premium Chrome Finish Cabinet Door Catch](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=premium-chrome-finish-cabinet-door-catch)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=premium-chrome-finish-cabinet-door-catch"><img alt="prime-line-cabinet-door-catch-mp7081-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prime-line-cabinet-door-catch-mp7081-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=premium-chrome-finish-cabinet-door-catch"><img alt="prime-line-cabinet-door-catch-mp7081-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prime-line-cabinet-door-catch-mp7081-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave Prime-Line's Cabinet Door Catch MP7081 a try on one of my RV doors. The plated steel housing and spring steel clip were a nice touch, providing that extra holding power I've been looking for. Although it's marketed as a friction catch, it worked just as well on cabinet, closet, and compartment doors. The chrome finish was a bonus, adding a touch of elegance to the space. 
 
 However, the dual nylon rollers sometimes scratched the surface of the door, which left me a bit disappointed. It wasn't a deal-breaker, but it's something I wish they've considered addressing. All in all, I believe the catch is worth a try if you're looking for a reliable and sturdy door catch. 
 
 
-### [Uxcell Cabinet Catch Press Open Door Latch Set](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=uxcell-cabinet-catch-press-open-door-latch-set)
+### [Uxcell Cabinet Catch Press Open Door Latch Set](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=uxcell-cabinet-catch-press-open-door-latch-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=uxcell-cabinet-catch-press-open-door-latch-set"><img alt="uxcell-cabinet-cupboard-press-open-door-catch-tip-touch-push-latch-10-piece-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uxcell-cabinet-cupboard-press-open-door-catch-tip-touch-push-latch-10-piece-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=uxcell-cabinet-catch-press-open-door-latch-set"><img alt="uxcell-cabinet-cupboard-press-open-door-catch-tip-touch-push-latch-10-piece-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uxcell-cabinet-cupboard-press-open-door-catch-tip-touch-push-latch-10-piece-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried these Uxcell cabinet catches, and they made a noticeable difference in my daily life. Each piece is made of a combination of plastic and metal, giving them an elegant silver-tone and a solid, trustworthy feel. The overall size of 1.9" x 1.1" x 0.4" is both compact and perfect for securing various doors and cabinets around the house. 
 
@@ -161,18 +161,18 @@ One of the most convenient features is that these catches can be closed just by 
 Overall, these 10-piece Uxcell cabinet catches are a reliable and stylish addition to any home. They make opening and closing doors and cabinets a breeze while enhancing the visual appeal of your space. 
 
 
-### [Hickory Hardware Magnetic Cabinet Catch](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=hickory-hardware-magnetic-cabinet-catch)
+### [Hickory Hardware Magnetic Cabinet Catch](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=hickory-hardware-magnetic-cabinet-catch)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=hickory-hardware-magnetic-cabinet-catch"><img alt="hickory-hardware-p109-2c-magnetic-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hickory-hardware-p109-2c-magnetic-catch-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=hickory-hardware-magnetic-cabinet-catch"><img alt="hickory-hardware-p109-2c-magnetic-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hickory-hardware-p109-2c-magnetic-catch-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hickory Hardware P109-2C Magnetic Catch offers an efficient solution for closing cabinet doors. Its high-grade construction with a cadmium finish ensures durability while its magnetic force adds extra security. 
 
 The mounting hardware included makes installation a breeze, eliminating the hassle of a complicated setup. 
 
 
-### [Amerock Catch Roller Zinc for Cabinet Doors](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=amerock-catch-roller-zinc-for-cabinet-doors)
+### [Amerock Catch Roller Zinc for Cabinet Doors](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=amerock-catch-roller-zinc-for-cabinet-doors)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=amerock-catch-roller-zinc-for-cabinet-doors"><img alt="amerock-catch-roller-zinc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amerock-catch-roller-zinc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=amerock-catch-roller-zinc-for-cabinet-doors"><img alt="amerock-catch-roller-zinc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amerock-catch-roller-zinc-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Amerock Catch Roller Zinc, an effortless solution for securing your cabinet and furniture doors. With its sleek design and easy-to-install Permabrite roller friction catch, you can rest assured that your doors will stay in place. The catch is versatile, fitting a range of door sizes with dimensions of 1 ¼" x ½" x 1 ¾" and 1 inch screw spacing. 
 
@@ -181,27 +181,27 @@ The permabrite zinc finish is durable and perfect for both residential and comme
 Overall, this product is a solid choice for reliable, stylish cabinet door catches. 
 
 
-### [Richelieu White Magnetic Cabinet Catches - 10-Pack](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=richelieu-white-magnetic-cabinet-catches-10-pack)
+### [Richelieu White Magnetic Cabinet Catches - 10-Pack](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=richelieu-white-magnetic-cabinet-catches-10-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=richelieu-white-magnetic-cabinet-catches-10-pack"><img alt="richelieu-hardware-magnetic-white-catch-10-pack-ap52030-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/richelieu-hardware-magnetic-white-catch-10-pack-ap52030-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=richelieu-white-magnetic-cabinet-catches-10-pack"><img alt="richelieu-hardware-magnetic-white-catch-10-pack-ap52030-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/richelieu-hardware-magnetic-white-catch-10-pack-ap52030-1/h=540,fit=pad,background=black"/></a></div>
 
 These magnetic catches are a great addition to any cabinet or drawer in need of a secure closing mechanism. I've used them on my kitchen drawers and found that they're super easy to install, thanks to the included screws. The white finish matches well with most furniture, and the catch is magnetic enough to keep doors closed tightly. However, I've noticed that the strength of the magnet isn't as strong as I'd like, causing the door to bounce open when closed with too much force. 
 
 The biggest advantage of these catches is how simple they are to install. Within minutes, I had them securely mounted on my cabinets, providing a more reliable closing method for my kitchen drawers. But even with their ease of use, I do wish the magnets were stronger, providing a more secure connection. Despite this issue, I'm still really happy with my purchase and would recommend these catches for anyone looking to improve the functionality of their cabinets or drawers. 
 
 
-### [Hickory Hardware Roller Cabinet Catch](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=hickory-hardware-roller-cabinet-catch)
+### [Hickory Hardware Roller Cabinet Catch](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=hickory-hardware-roller-cabinet-catch)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=hickory-hardware-roller-cabinet-catch"><img alt="hickory-hardware-roller-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hickory-hardware-roller-catch-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=hickory-hardware-roller-cabinet-catch"><img alt="hickory-hardware-roller-catch-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hickory-hardware-roller-catch-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave Hickory Hardware's Roller Catch a try, and I must say, it exceeded my expectations. The matte silver finish complements any surface color, making it a versatile choice for any room. What really stood out to me was how quiet the rollers were, eliminating any abrupt banging noises. 
 
 Installation was a breeze, thanks to the elongated mounting holes and matching hardware. However, I did notice that the roller catch could be a bit stiff to open at times, which might require some extra force. Overall, though, I'm happy with my purchase and would recommend this product to others looking for a functional and stylish door catch. 
 
 
-### [Rok Hardware Extra Heavy Duty Elbow Latch for Cabinets and Windows](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=rok-hardware-extra-heavy-duty-elbow-latch-for-cabinets-and-windows)
+### [Rok Hardware Extra Heavy Duty Elbow Latch for Cabinets and Windows](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=rok-hardware-extra-heavy-duty-elbow-latch-for-cabinets-and-windows)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=rok-hardware-extra-heavy-duty-elbow-latch-for-cabinets-and-windows"><img alt="rok-hardware-extra-heavy-duty-elbow-latch-for-cabinet-door-window-catch-nickel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rok-hardware-extra-heavy-duty-elbow-latch-for-cabinet-door-window-catch-nickel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=rok-hardware-extra-heavy-duty-elbow-latch-for-cabinets-and-windows"><img alt="rok-hardware-extra-heavy-duty-elbow-latch-for-cabinet-door-window-catch-nickel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rok-hardware-extra-heavy-duty-elbow-latch-for-cabinet-door-window-catch-nickel-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Rok Hardware Extra Heavy Duty Elbow Latch for Cabinet Door/Window Catch, and boy, was it a game-changer! This polished nickel beauty adds an air of sophistication to any cabinet or window, all the while providing a secure and reliable latch. 
 
@@ -210,9 +210,9 @@ The fit and finish are excellent, and I especially appreciated its heavy-duty so
 However, the one downside I encountered was its reversible installation, which took a bit longer to figure out than I'd have liked. But overall, this Cabinet Catch exceeded my expectations and proved to be a reliable and stylish addition to my space. 
 
 
-### [UNIQANTIQ Brass Latch and Catch for Antique Cabinets and Vintage Cupboards](https://serp.ly/@outrun/amazon/Cabinet+Catches?utm\_term=uniqantiq-brass-latch-and-catch-for-antique-cabinets-and-vintage-cupboards)
+### [UNIQANTIQ Brass Latch and Catch for Antique Cabinets and Vintage Cupboards](https://serp.ly/@bar/amazon/Cabinet+Catches?utm\_term=uniqantiq-brass-latch-and-catch-for-antique-cabinets-and-vintage-cupboards)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches?utm_term=uniqantiq-brass-latch-and-catch-for-antique-cabinets-and-vintage-cupboards"><img alt="uniqantiq-hardware-supply-left-offset-cabinet-or-cupboard-lever-brass-latch-and-catch-antique-cabine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uniqantiq-hardware-supply-left-offset-cabinet-or-cupboard-lever-brass-latch-and-catch-antique-cabine-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Catches?utm_term=uniqantiq-brass-latch-and-catch-for-antique-cabinets-and-vintage-cupboards"><img alt="uniqantiq-hardware-supply-left-offset-cabinet-or-cupboard-lever-brass-latch-and-catch-antique-cabine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uniqantiq-hardware-supply-left-offset-cabinet-or-cupboard-lever-brass-latch-and-catch-antique-cabine-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine you've been looking for that perfect hardware to add an authentic touch to your vintage-style cabinet or desk. Well, your search might just come to an end with the UNIQANTIQ Hardware Supply Left Offset Cabinet or Cupboard Lever Brass Latch and Catch. 
 
@@ -234,7 +234,7 @@ Cabinet catches, commonly referred to as cabinet latches, play an integral role 
 
 Several types of cabinet catches are available on the market, each with its pros and cons. It is essential to comprehend the different classifications before purchasing. Some of the most popular types include side release, flush mount, overhead, and spring load catches. Each offers unique benefits when it comes to functionality, ease of operation, and aesthetics. Take into account factors like door design, mounting surface, and your personal preferences to identify the ideal match for your project.
 
-<div><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-2/h=540,fit=pad,background=black" alt="Cabinet-Catches-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-2/h=540,fit=pad,background=black" alt="Cabinet-Catches-2" height="540"></a></div>
 
 
 ### Materials and Finishes
@@ -246,7 +246,7 @@ Cabinet catches are predominantly made of metal, including brass, stainless stee
 
 When buying cabinet catches, ease of use and safety features are non-negotiables. High-quality catches should automatically close and be easy to operate with one hand. Some cabinets may require child-safe or magnetic locking mechanisms to prevent accidents. Read product specifications and reviews to determine if the chosen catches cater to your safety requirements.
 
-<div><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-3/h=540,fit=pad,background=black" alt="Cabinet-Catches-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-3/h=540,fit=pad,background=black" alt="Cabinet-Catches-3" height="540"></a></div>
 
 
 ### Installation and Maintenance
@@ -256,7 +256,7 @@ Ease of installation and maintenance are key factors to consider when purchasing
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-4/h=540,fit=pad,background=black" alt="Cabinet-Catches-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-4/h=540,fit=pad,background=black" alt="Cabinet-Catches-4" height="540"></a></div>
 
 
 ### What are Cabinet Catchers?
@@ -280,7 +280,7 @@ Numerous types of Cabinet Catchers are available on the market, each with its un
 
 Each type of Cabinet Catcher serves specific purposes and has its pros and cons, so it is essential to consider factors such as door size, material, installation location, and personal preference when selecting the appropriate catcher for your cabinetry. Always consult the manufacturer's guidelines or seek professional advice to ensure proper installation and function.
 
-<div><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-5/h=540,fit=pad,background=black" alt="Cabinet-Catches-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-5/h=540,fit=pad,background=black" alt="Cabinet-Catches-5" height="540"></a></div>
 
 
 ### How do I install Cabinet Catchers?
@@ -298,7 +298,7 @@ When purchasing Cabinet Catchers, consider the following factors to ensure you s
 
 Additionally, it is essential to consider factors such as ease of installation, compatibility with existing hardware, and the ability to accommodate future changes or repairs. Always consult the manufacturer's guidelines or seek professional advice if you have any doubts or concerns about selecting the appropriate Cabinet Catchers for your needs.
 
-<div><a href="https://serp.ly/@outrun/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-6/h=540,fit=pad,background=black" alt="Cabinet-Catches-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cabinet+Catches"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cabinet-Catches-6/h=540,fit=pad,background=black" alt="Cabinet-Catches-6" height="540"></a></div>
 
 
 ### How much do Cabinet Catchers typically cost?

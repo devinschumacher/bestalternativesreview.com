@@ -17,9 +17,9 @@ Discover the perfect pair of purple pumps to elevate your look and express your 
 ## Reviews
 
 
-### [Lavender Purple Karl Lagerfeld Signature Logo Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=lavender-purple-karl-lagerfeld-signature-logo-pumps)
+### [Lavender Purple Karl Lagerfeld Signature Logo Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=lavender-purple-karl-lagerfeld-signature-logo-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=lavender-purple-karl-lagerfeld-signature-logo-pumps"><img alt="karl-lagerfeld-sarabande-signature-logo-court-pumps-purple-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/karl-lagerfeld-sarabande-signature-logo-court-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=lavender-purple-karl-lagerfeld-signature-logo-pumps"><img alt="karl-lagerfeld-sarabande-signature-logo-court-pumps-purple-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/karl-lagerfeld-sarabande-signature-logo-court-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who loves fashion, I recently had the opportunity to try on the Karl Lagerfeld Sarabande Signature Logo Court Pumps in a lovely shade of purple. First things first, the pumps are made of soft calf leather, which adds to the overall luxurious feel. The lavender purple color is a unique and refreshing take on the traditional pump, making them stand out in any outfit without being too bold or overpowering. 
 
@@ -28,9 +28,9 @@ One detail I particularly enjoyed was the rhinestone embellishment, which adds a
 Overall, the Karl Lagerfeld Sarabande Signature Logo Court Pumps are a fabulous addition to anyone's shoe collection. They're stylish, fashion-forward, and ooze a touch of luxury that's perfect for dressing up your everyday look or making a statement at a special event. 
 
 
-### [NEOUS Purple Pointed-Toe Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=neous-purple-pointed-toe-pumps)
+### [NEOUS Purple Pointed-Toe Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=neous-purple-pointed-toe-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=neous-purple-pointed-toe-pumps"><img alt="neous-60mm-pointed-toe-pumps-purple-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/neous-60mm-pointed-toe-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=neous-purple-pointed-toe-pumps"><img alt="neous-60mm-pointed-toe-pumps-purple-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/neous-60mm-pointed-toe-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 The NEOUS pointed-toe pumps in a striking electric purple hue are an elegant addition to any wardrobe. With tonal stitching and a slim, pointed toe, these shoes exude style and sophistication. 
 
@@ -39,18 +39,18 @@ The slingback strap ensures comfort and ease, while the kitten heel and leather 
 Overall, these electric purple pumps are a stylish choice for those seeking a pop of color in their shoe collection. 
 
 
-### [Vintage Purple Pump for Fashionable Women](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=vintage-purple-pump-for-fashionable-women)
+### [Vintage Purple Pump for Fashionable Women](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=vintage-purple-pump-for-fashionable-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=vintage-purple-pump-for-fashionable-women"><img alt="charles-david-pump-vibe-size-10-medium-light-lilac-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/charles-david-pump-vibe-size-10-medium-light-lilac-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=vintage-purple-pump-for-fashionable-women"><img alt="charles-david-pump-vibe-size-10-medium-light-lilac-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/charles-david-pump-vibe-size-10-medium-light-lilac-1/h=540,fit=pad,background=black"/></a></div>
 
 These stylish Vibe pumps from Charles David offer a perfect blend of comfort and chic style. The feminine light lilac color makes a great statement piece, and it comes with a leather sole for durability. The shaft measures approximately not applicable from the arch, giving you the perfect heel height you've been looking for. 
 
 Although some users have mentioned minor sizing issues, most have found these pumps to be a great addition to their wardrobe. 
 
 
-### [Cadet Light Purple Pump Shoes](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=cadet-light-purple-pump-shoes)
+### [Cadet Light Purple Pump Shoes](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=cadet-light-purple-pump-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=cadet-light-purple-pump-shoes"><img alt="cadet-pumps-8-5-w-light-purple-patent-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/cadet-pumps-8-5-w-light-purple-patent-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=cadet-light-purple-pump-shoes"><img alt="cadet-pumps-8-5-w-light-purple-patent-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/cadet-pumps-8-5-w-light-purple-patent-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Cadet Pumps in light purple and let me tell you, they made quite an impression. The first thing I noticed was their fashion-forward appearance. The pop of color and sleek design put an instant smile on my face. 
 
@@ -63,9 +63,9 @@ Despite their many positives, these pumps might not be the best choice for those
 Overall, the Cadet Pumps in light purple were a fantastic blend of style and comfort. They're definitely worth a try if you're looking for a fashionable and supportive pump to add to your wardrobe. 
 
 
-### [Inc Women's Lavender Pointed Toe Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=inc-womens-lavender-pointed-toe-pumps)
+### [Inc Women's Lavender Pointed Toe Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=inc-womens-lavender-pointed-toe-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=inc-womens-lavender-pointed-toe-pumps"><img alt="inc-womens-zitah-pointed-toe-pumps-created-for-macys-lavender-vinyl-size-12m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/inc-womens-zitah-pointed-toe-pumps-created-for-macys-lavender-vinyl-size-12m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=inc-womens-lavender-pointed-toe-pumps"><img alt="inc-womens-zitah-pointed-toe-pumps-created-for-macys-lavender-vinyl-size-12m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/inc-womens-zitah-pointed-toe-pumps-created-for-macys-lavender-vinyl-size-12m-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine, on a day when you need to look sharp and elegant, you slip on a pair of shoes that makes you feel like royalty. That's the experience you get with the Inc Women's Zitah Pointed Toe Pumps. These shoes exude an air of sophistication and class that could easily elevate your everyday look to a red carpet moment. 
 
@@ -78,9 +78,9 @@ In terms of comfort, these pumps are a mixed bag. Some users have found them to 
 Despite these minor issues, the Inc Women's Zitah Pointed Toe Pumps are a solid choice for anyone looking to add a touch of glamour to their footwear collection. They may not be the most comfortable shoes you've ever worn, but when it comes to style and elegance, they certainly deliver. 
 
 
-### [Torgeis Women's Stylish Purple Kitten Heel Pump Shoes](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=torgeis-womens-stylish-purple-kitten-heel-pump-shoes)
+### [Torgeis Women's Stylish Purple Kitten Heel Pump Shoes](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=torgeis-womens-stylish-purple-kitten-heel-pump-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=torgeis-womens-stylish-purple-kitten-heel-pump-shoes"><img alt="torgeis-womens-kaycee-kitten-heel-pump-purple-9-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/torgeis-womens-kaycee-kitten-heel-pump-purple-9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=torgeis-womens-stylish-purple-kitten-heel-pump-shoes"><img alt="torgeis-womens-kaycee-kitten-heel-pump-purple-9-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/torgeis-womens-kaycee-kitten-heel-pump-purple-9-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out a pair of Torgeis Women's Kaycee Kitten Heel Pumps in a stunning shade of purple. These pumps truly exude elegance, with their classic pointy toe design and a kitten heel that adds a touch of playfulness. The metal oval detailing on the front adds a sophisticated touch to the overall look. 
 
@@ -89,9 +89,9 @@ What really stood out for me was the comfortable fit and the high-quality, 100% 
 Overall, I'd say these pumps are a great choice for anyone looking to add a touch of class and charm to their wardrobe. They're perfect for both casual outings and more formal events! 
 
 
-### [Jessica Simpson Women's Prizma Pumps in D'Orsay Style - Elegant Purple Footwear](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=jessica-simpson-womens-prizma-pumps-in-dorsay-style-elegant-purple-footwear)
+### [Jessica Simpson Women's Prizma Pumps in D'Orsay Style - Elegant Purple Footwear](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=jessica-simpson-womens-prizma-pumps-in-dorsay-style-elegant-purple-footwear)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=jessica-simpson-womens-prizma-pumps-in-dorsay-style-elegant-purple-footwear"><img alt="jessica-simpson-womens-prizma-dorsay-pump-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jessica-simpson-womens-prizma-dorsay-pump-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=jessica-simpson-womens-prizma-pumps-in-dorsay-style-elegant-purple-footwear"><img alt="jessica-simpson-womens-prizma-dorsay-pump-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jessica-simpson-womens-prizma-dorsay-pump-1/h=540,fit=pad,background=black"/></a></div>
 
 Slipping into a pair of Jessica Simpson Prizma D'Orsay Pumps makes you feel like royalty, with a dash of sparkle. The dazzling crystals illuminating the shoes catch everyone's attention, making them perfect for a special occasion or just a night on the town. 
 
@@ -100,9 +100,9 @@ Their partial d'Orsay cut adds a touch of elegance, while the covered heel keeps
 With proper fitting and a pair of comfy inserts, these shoes could be my go-to for all those glitzy events. 
 
 
-### [Yunip Purple Pump: Slip-On Heels for Stylish Fits](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=yunip-purple-pump-slip-on-heels-for-stylish-fits)
+### [Yunip Purple Pump: Slip-On Heels for Stylish Fits](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=yunip-purple-pump-slip-on-heels-for-stylish-fits)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=yunip-purple-pump-slip-on-heels-for-stylish-fits"><img alt="nine-west-yunip-pump-womens-purple-size-9-pumps-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nine-west-yunip-pump-womens-purple-size-9-pumps-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=yunip-purple-pump-slip-on-heels-for-stylish-fits"><img alt="nine-west-yunip-pump-womens-purple-size-9-pumps-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nine-west-yunip-pump-womens-purple-size-9-pumps-1/h=540,fit=pad,background=black"/></a></div>
 
 I was recently on the lookout for a pair of comfy and stylish shoes for work and play, and the Yunip pumps from Nine West caught my eye. I picked up a pair in purple, a color that's both versatile and chic. 
 
@@ -115,9 +115,9 @@ Overall, I'm pleased with my purchase. These shoes are both comfortable and styl
 So, if you're in the market for a versatile and comfortable pair of pumps, give the Yunip shoes from Nine West a try. I think you'll be just as impressed as I was. 
 
 
-### [Lavender Purple Pointed Toe Pump for Women](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=lavender-purple-pointed-toe-pump-for-women)
+### [Lavender Purple Pointed Toe Pump for Women](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=lavender-purple-pointed-toe-pump-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=lavender-purple-pointed-toe-pump-for-women"><img alt="bandolino-womens-grenow-pump-lavender-510-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bandolino-womens-grenow-pump-lavender-510-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=lavender-purple-pointed-toe-pump-for-women"><img alt="bandolino-womens-grenow-pump-lavender-510-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bandolino-womens-grenow-pump-lavender-510-11-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover the luxury of comfort with Bandolino's Grenow pumps in lavender. These stunning shoes feature a sleek pointed toe silhouette that effortlessly elevates any outfit. What sets these pumps apart is their slip-on closure, providing a hassle-free wear while maintaining style. 
 
@@ -126,9 +126,9 @@ The fit is true to size, offering a snug and comfortable strut on any occasion. 
 These pumps may demand a slight break-in time, but once you conquer their charm, you'll appreciate them for their style and comfort. 
 
 
-### [Purple Stiletto Pump: Nine West Flings High Heel Fashion](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=purple-stiletto-pump-nine-west-flings-high-heel-fashion)
+### [Purple Stiletto Pump: Nine West Flings High Heel Fashion](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=purple-stiletto-pump-nine-west-flings-high-heel-fashion)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=purple-stiletto-pump-nine-west-flings-high-heel-fashion"><img alt="nine-west-flings-pump-womens-purple-size-5-pumps-stiletto-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nine-west-flings-pump-womens-purple-size-5-pumps-stiletto-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=purple-stiletto-pump-nine-west-flings-high-heel-fashion"><img alt="nine-west-flings-pump-womens-purple-size-5-pumps-stiletto-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nine-west-flings-pump-womens-purple-size-5-pumps-stiletto-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nine West Flings Pump is a stylish and eye-catching addition to any wardrobe. With its unique geometric-patterned mesh vamp and transparent upper portion at the toes, it captures the attention of any onlooker. This elegant pointed toe pump boasts a tapered stiletto heel that adds just the right amount of height and grace. The pumps come with a slip-on closure, making them easy to put on and take off. 
 
@@ -137,27 +137,27 @@ Made in the USA or imported, these shoes feature a synthetic rubber sole for dur
 In a sea of black and neutral-colored shoes, the purple shade of these Flings Pumps adds a welcome pop of color that will elevate any outfit. The price was a steal, thanks to a Macy's promotion I stumbled upon. If you're looking for a trendy and comfortable pump that turns heads, look no further than the Nine West Flings Pump. 
 
 
-### [Nine West Purple Pumps for Women: Size 8](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=nine-west-purple-pumps-for-women-size-8)
+### [Nine West Purple Pumps for Women: Size 8](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=nine-west-purple-pumps-for-women-size-8)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=nine-west-purple-pumps-for-women-size-8"><img alt="nine-west-trendz-pump-womens-purple-size-8-pumps-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-trendz-pump-womens-purple-size-8-pumps-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=nine-west-purple-pumps-for-women-size-8"><img alt="nine-west-trendz-pump-womens-purple-size-8-pumps-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-trendz-pump-womens-purple-size-8-pumps-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nine West Trendz Pointed Toe Pump is a stylish women's shoe that comes in a gorgeous purple hue. This well-loved pump features a sculpted heel that adds a touch of elegance, making it perfect for both office days and nighttime events. 
 
 Don't miss the opportunity to incorporate this eye-catching heel into your wardrobe! 
 
 
-### [Lilac Nine West Taran Pump: Stiletto Heel, Suede Upper, Ankle Strap Design](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=lilac-nine-west-taran-pump-stiletto-heel-suede-upper-ankle-strap-design)
+### [Lilac Nine West Taran Pump: Stiletto Heel, Suede Upper, Ankle Strap Design](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=lilac-nine-west-taran-pump-stiletto-heel-suede-upper-ankle-strap-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=lilac-nine-west-taran-pump-stiletto-heel-suede-upper-ankle-strap-design"><img alt="nine-west-taran-pump-womens-lilac-size-6-5-pumps-stiletto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-taran-pump-womens-lilac-size-6-5-pumps-stiletto-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=lilac-nine-west-taran-pump-stiletto-heel-suede-upper-ankle-strap-design"><img alt="nine-west-taran-pump-womens-lilac-size-6-5-pumps-stiletto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-taran-pump-womens-lilac-size-6-5-pumps-stiletto-1/h=540,fit=pad,background=black"/></a></div>
 
 Slip into sophistication with the Taran pump from Nine West. Crafted with a luxurious suede upper, the pointed toe exudes an effortless elegance, while the ankle strap keeps everything in place. The sky-high stiletto heel adds a bold, edgy touch to your style. 
 
 Perfect for dressy occasions or a day out, this stylish shoe is a must-have in any woman's wardrobe. Enjoy the comfortable fit and the confident stride that comes with owning the Taran pump. 
 
 
-### [Sam Edelman Orchid Blossom Purple Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=sam-edelman-orchid-blossom-purple-pumps)
+### [Sam Edelman Orchid Blossom Purple Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=sam-edelman-orchid-blossom-purple-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=sam-edelman-orchid-blossom-purple-pumps"><img alt="sam-edelman-womens-bianka-pointed-toe-slingback-pumps-purple-size-6-orchid-blossom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sam-edelman-womens-bianka-pointed-toe-slingback-pumps-purple-size-6-orchid-blossom-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=sam-edelman-orchid-blossom-purple-pumps"><img alt="sam-edelman-womens-bianka-pointed-toe-slingback-pumps-purple-size-6-orchid-blossom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sam-edelman-womens-bianka-pointed-toe-slingback-pumps-purple-size-6-orchid-blossom-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sam Edelman Women's Bianka Pointed Toe Slingback Pumps are an elegant and stylish choice for any occasion. Featuring a sleek design, the pumps showcase a pointed square toe with a slanted heel, adding a touch of sophistication to your wardrobe. Crafted from sateen upper and featuring a synthetic sole, these pumps are comfortable and durable. 
 
@@ -166,36 +166,36 @@ Size-wise, the Bianka Pumps are available in several options, making it easy to 
 Some reviewers rave about the comfort and style of these pumps, praising their durability and sleek look. On the other hand, other users have experienced issues with the shoes' quality, reporting detachment from their heels and difficulty with the sizing. Despite these challenges, the pumps' classic, trendy, and uniquely designed heel make them a popular choice for many customers. 
 
 
-### [Roberto Festa Lilly Purple Pointed-Toe Suede Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=roberto-festa-lilly-purple-pointed-toe-suede-pumps)
+### [Roberto Festa Lilly Purple Pointed-Toe Suede Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=roberto-festa-lilly-purple-pointed-toe-suede-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=roberto-festa-lilly-purple-pointed-toe-suede-pumps"><img alt="roberto-festa-lilly-80mm-pointed-toe-suede-pumps-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roberto-festa-lilly-80mm-pointed-toe-suede-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=roberto-festa-lilly-purple-pointed-toe-suede-pumps"><img alt="roberto-festa-lilly-80mm-pointed-toe-suede-pumps-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/roberto-festa-lilly-80mm-pointed-toe-suede-pumps-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 As my daily footwear, these ROBERTO FESTA Lilly 80mm Pointed-Toe Pumps have been a true staple in my wardrobe. The rich purple hue adds a pop of color to any outfit, and the comfortable yet sturdy suede construction makes these shoes a go-to choice for events and night outings. 
 
 Additionally, the crystal buckle detail adds a hint of elegance without being overly flashy. However, the pointed toe design and high heel can be a little challenging to walk in for extended periods of time, but overall, they're perfect for a night out. 
 
 
-### [Liv Bow Platform Pumps: Stylish Purple Footwear by New York & Company](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=liv-bow-platform-pumps-stylish-purple-footwear-by-new-york-company)
+### [Liv Bow Platform Pumps: Stylish Purple Footwear by New York & Company](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=liv-bow-platform-pumps-stylish-purple-footwear-by-new-york-company)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=liv-bow-platform-pumps-stylish-purple-footwear-by-new-york-company"><img alt="womens-new-york-and-company-liv-bow-pumps-in-purple-size-7-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-liv-bow-pumps-in-purple-size-7-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=liv-bow-platform-pumps-stylish-purple-footwear-by-new-york-company"><img alt="womens-new-york-and-company-liv-bow-pumps-in-purple-size-7-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-liv-bow-pumps-in-purple-size-7-1/h=540,fit=pad,background=black"/></a></div>
 
 Liv Bow Pumps, a classic in purple sparkles - these shoes are perfect for a party! The Liv pump features a sleek silhouette with a pointed toe and embellished bow, making them a statement piece in your wardrobe. The upper and lining are both crafted from 100% faux suede, while the outsole boasts a blend of rubber and textile for added durability and comfort. 
 
 At 3.5 inches, this heel adds just the right amount of height to elevate your look, but be aware, they run slightly bigger than other New York & Company shoes. So, consider sizing down half a size for a better fit. Enjoy your sparkly night out in these stylish Liv pumps! 
 
 
-### [Inc Shelya Purple Stiletto Pump - 7.5 Medium (B,M)](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=inc-shelya-purple-stiletto-pump-7-5-medium-bm)
+### [Inc Shelya Purple Stiletto Pump - 7.5 Medium (B,M)](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=inc-shelya-purple-stiletto-pump-7-5-medium-bm)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=inc-shelya-purple-stiletto-pump-7-5-medium-bm"><img alt="inc-womens-shelya-stiletto-pointed-toe-pumps-purple-7-5-medium-bm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/inc-womens-shelya-stiletto-pointed-toe-pumps-purple-7-5-medium-bm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=inc-shelya-purple-stiletto-pump-7-5-medium-bm"><img alt="inc-womens-shelya-stiletto-pointed-toe-pumps-purple-7-5-medium-bm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/inc-womens-shelya-stiletto-pointed-toe-pumps-purple-7-5-medium-bm-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready to make a statement with these eye-catching Shelya pumps from Inc International Concepts. The versatile pointed toe and sleek stiletto heel give a touch of sophistication, while the stunning purple color adds a pop of style to any outfit. 
 
 With a slip-on closure, these pumps are easy to slip on and off, making them perfect for various occasions. Although some users have reported discomfort and sizing issues, many others praise the comfortable fit and stylish design of these pumps. So, if you're in search of a statement-making heel, these Shelya pumps might just be the perfect addition to your shoe collection. 
 
 
-### [Nine West Lilac Purple Slingback Stiletto Pumps Size 6.5](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=nine-west-lilac-purple-slingback-stiletto-pumps-size-6-5)
+### [Nine West Lilac Purple Slingback Stiletto Pumps Size 6.5](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=nine-west-lilac-purple-slingback-stiletto-pumps-size-6-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=nine-west-lilac-purple-slingback-stiletto-pumps-size-6-5"><img alt="womens-nine-west-feather-slingback-stiletto-pumps-in-lilac-size-6-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-nine-west-feather-slingback-stiletto-pumps-in-lilac-size-6-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=nine-west-lilac-purple-slingback-stiletto-pumps-size-6-5"><img alt="womens-nine-west-feather-slingback-stiletto-pumps-in-lilac-size-6-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-nine-west-feather-slingback-stiletto-pumps-in-lilac-size-6-5-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I find myself frequently needing a versatile pair of shoes that can transition from casual errands to formal events. The Nine West Feather pump has been my go-to for this purpose, with its trendy pointed toe and slingback closure providing a comfortable and precise fit. The stiletto heel adds an elegant touch to any outfit, making them perfect for both work and play. 
 
@@ -204,9 +204,9 @@ However, one feature that stood out to me, both positively and negatively, was t
 Despite these slight drawbacks, I've been largely satisfied with the Nine West Feather pump. They've become a reliable addition to my wardrobe, allowing me to make a stylish statement at any occasion. 
 
 
-### [Jessica Simpson's Satin Buckle Cone Heel Pump in Prince Purple](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=jessica-simpsons-satin-buckle-cone-heel-pump-in-prince-purple)
+### [Jessica Simpson's Satin Buckle Cone Heel Pump in Prince Purple](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=jessica-simpsons-satin-buckle-cone-heel-pump-in-prince-purple)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=jessica-simpsons-satin-buckle-cone-heel-pump-in-prince-purple"><img alt="jessica-simpson-maggie-ankle-strap-pointed-toe-pump-in-prince-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-maggie-ankle-strap-pointed-toe-pump-in-prince-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=jessica-simpsons-satin-buckle-cone-heel-pump-in-prince-purple"><img alt="jessica-simpson-maggie-ankle-strap-pointed-toe-pump-in-prince-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-maggie-ankle-strap-pointed-toe-pump-in-prince-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 Add a touch of regal elegance to your wardrobe with the Prince Purple Maggie ankle strap pump. These divine pumps are crafted with a satin upper that glimmers just right, perfect for making a statement at any occasion. The pointed toe adds a refined touch, while the cone heel ensures you're always standing tall. 
 
@@ -215,9 +215,9 @@ What stood out in my experience were the comfort sock feature, which added an ex
 Overall, the Maggie ankle strap pump by Jessica Simpson is a sophisticated and eye-catching addition to your shoe collection. With its satin material and stylish design, it's sure to elevate your fashion game. 
 
 
-### [Marc Fisher Hadya Purple Pump Leather Sole Heels Pointed Toe Slip-on Style](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=marc-fisher-hadya-purple-pump-leather-sole-heels-pointed-toe-slip-on-style)
+### [Marc Fisher Hadya Purple Pump Leather Sole Heels Pointed Toe Slip-on Style](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=marc-fisher-hadya-purple-pump-leather-sole-heels-pointed-toe-slip-on-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=marc-fisher-hadya-purple-pump-leather-sole-heels-pointed-toe-slip-on-style"><img alt="marc-fisher-hadya-pump-womens-purple-size-5-heels-pumps-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marc-fisher-hadya-pump-womens-purple-size-5-heels-pumps-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=marc-fisher-hadya-purple-pump-leather-sole-heels-pointed-toe-slip-on-style"><img alt="marc-fisher-hadya-pump-womens-purple-size-5-heels-pumps-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marc-fisher-hadya-pump-womens-purple-size-5-heels-pumps-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hadya pump from Marc Fisher adds an extra touch of elegance to any outfit. With its pointed toe design and glossy finish, this pump is sure to make a statement. The sculpted heel creates a sophisticated look, while the slip-on closure ensures a comfortable fit. Made from luxurious leather and featuring a synthetic rubber sole, these pumps are both stylish and practical. 
 
@@ -226,9 +226,9 @@ Key features of these purple pumps include a pointed toe silhouette, glossy fini
 The Hadya pump from Marc Fisher is a great choice for those looking for a stylish yet practical women's pump. With its classy design and comfortable materials, these pumps are well worth the investment for any fashion enthusiast. 
 
 
-### [Circus NY Violet Rosemary Purple Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=circus-ny-violet-rosemary-purple-pumps)
+### [Circus NY Violet Rosemary Purple Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=circus-ny-violet-rosemary-purple-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=circus-ny-violet-rosemary-purple-pumps"><img alt="circus-ny-rosemary-pump-in-violet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/circus-ny-rosemary-pump-in-violet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=circus-ny-violet-rosemary-purple-pumps"><img alt="circus-ny-rosemary-pump-in-violet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/circus-ny-rosemary-pump-in-violet-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the eye-catching charm of the Circus NY Rosemary Pump in Violet. This show-stopping heel beautifully combines architectural appeal with comfort and durability. Its unique, futuristic design ensures that it adds a touch of sophistication and style to your wardrobe, and the pull-on closure makes it easy to slip on and off. The shoe features a synthetic sole, providing both stability and flexibility, while the 100% leather construction promises long-lasting quality. 
 
@@ -239,9 +239,9 @@ However, the Circus NY Rosemary Pump is not without its limitations. The toe spa
 Overall, the Circus NY Rosemary Pump in Violet offers a unique blend of style, comfort, and functionality. Its striking design and comfortable fit make it a standout choice for those looking to make a statement with their footwear. 
 
 
-### [Franco Sarto Comfortable Kitten Heel Pumps in Purple](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=franco-sarto-comfortable-kitten-heel-pumps-in-purple)
+### [Franco Sarto Comfortable Kitten Heel Pumps in Purple](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=franco-sarto-comfortable-kitten-heel-pumps-in-purple)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=franco-sarto-comfortable-kitten-heel-pumps-in-purple"><img alt="sarto-by-franco-sarto-devin-pointed-toe-slingback-pump-in-purple-multi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sarto-by-franco-sarto-devin-pointed-toe-slingback-pump-in-purple-multi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=franco-sarto-comfortable-kitten-heel-pumps-in-purple"><img alt="sarto-by-franco-sarto-devin-pointed-toe-slingback-pump-in-purple-multi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sarto-by-franco-sarto-devin-pointed-toe-slingback-pump-in-purple-multi-1/h=540,fit=pad,background=black"/></a></div>
 
 I was thrilled to try out the Sarto by Franco Sarto Devin Pointed Toe Slingback Pump in Purple Multi. As a fashion enthusiast, I appreciate stylish footwear, and this pair didn't disappoint. The pointed toe and slingback strap with stretch made it easy to slip on and off, while the InFORMA comfort technology provided much-needed cushioning and support. 
 
@@ -252,9 +252,9 @@ What really stood out to me was the InFORMA comfort technology. These little-kno
 Overall, I would highly recommend these pumps for anyone looking for a combination of comfort and style. Just remember to size up if you have narrow feet, and you'll be good to go! 
 
 
-### [Jessica Simpson Paris Purple Platform Pumps - Women's Size 7.5M](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=jessica-simpson-paris-purple-platform-pumps-womens-size-7-5m)
+### [Jessica Simpson Paris Purple Platform Pumps - Women's Size 7.5M](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=jessica-simpson-paris-purple-platform-pumps-womens-size-7-5m)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=jessica-simpson-paris-purple-platform-pumps-womens-size-7-5m"><img alt="jessica-simpson-womens-skilla-block-heel-platform-pumps-paris-purple-size-7-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-womens-skilla-block-heel-platform-pumps-paris-purple-size-7-5m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=jessica-simpson-paris-purple-platform-pumps-womens-size-7-5m"><img alt="jessica-simpson-womens-skilla-block-heel-platform-pumps-paris-purple-size-7-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jessica-simpson-womens-skilla-block-heel-platform-pumps-paris-purple-size-7-5m-1/h=540,fit=pad,background=black"/></a></div>
 
 Treat yourself to a touch of elegance with the Skilla platform pump from Jessica Simpson. Perfect for cocktail parties or date nights, its block-heel platform provides the perfect balance of height and comfort. 
 
@@ -263,18 +263,18 @@ Dressed in a luxurious satin upper, it's an eye-catching piece you'll love to sh
 The shoes come in an array of colors, but the Paris Purple variety stands out like a true fashion statement. Give your closet a boost with these versatile and stylish heels. 
 
 
-### [Franco Sarto Jesslyn Pump in Raspberry - Wide Width for Size 7.5](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=franco-sarto-jesslyn-pump-in-raspberry-wide-width-for-size-7-5)
+### [Franco Sarto Jesslyn Pump in Raspberry - Wide Width for Size 7.5](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=franco-sarto-jesslyn-pump-in-raspberry-wide-width-for-size-7-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=franco-sarto-jesslyn-pump-in-raspberry-wide-width-for-size-7-5"><img alt="franco-sarto-jesslyn-pump-wide-width-available-in-raspberry-at-nordstrom-rack-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/franco-sarto-jesslyn-pump-wide-width-available-in-raspberry-at-nordstrom-rack-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=franco-sarto-jesslyn-pump-in-raspberry-wide-width-for-size-7-5"><img alt="franco-sarto-jesslyn-pump-wide-width-available-in-raspberry-at-nordstrom-rack-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/franco-sarto-jesslyn-pump-wide-width-available-in-raspberry-at-nordstrom-rack-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of style and comfort with the Franco Sarto Jesslyn Pump in Raspberry. This elegant shoe, available in wide width, is designed with your busy lifestyle in mind. Slip-on fit makes getting ready a breeze, while the partially recycled linings offer eco-conscious comfort. 
 
 Perfectly suited for the office or a night out, the Jesslyn Pump will have you walking with confidence and ease. 
 
 
-### [Dee Ocleppo Purple Women's Bow Pump Shoes](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=dee-ocleppo-purple-womens-bow-pump-shoes)
+### [Dee Ocleppo Purple Women's Bow Pump Shoes](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=dee-ocleppo-purple-womens-bow-pump-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=dee-ocleppo-purple-womens-bow-pump-shoes"><img alt="dee-ocleppo-womens-bow-pumps-purple-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dee-ocleppo-womens-bow-pumps-purple-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=dee-ocleppo-purple-womens-bow-pump-shoes"><img alt="dee-ocleppo-womens-bow-pumps-purple-size-7-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dee-ocleppo-womens-bow-pumps-purple-size-7-5-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into style with the Dee Ocleppo Women's Bow Pumps in a stunning purple hue, perfect for adding a touch of flair to your wardrobe. Measuring in at a comfortable 105mm height, these high-heeled pumps offer both style and satisfaction. The satin or velvet finish adds a luxurious touch, while the ankle strap ensures a snug fit. 
 
@@ -285,9 +285,9 @@ These pumps are sure to make a statement, and with sizes ranging from 6 to 7.5, 
 Overall, a worthy addition to your fall fashion collection. 
 
 
-### [WILD PAIR Women's Purple Pointed Toe Stiletto Slip-On Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=wild-pair-womens-purple-pointed-toe-stiletto-slip-on-pumps)
+### [WILD PAIR Women's Purple Pointed Toe Stiletto Slip-On Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=wild-pair-womens-purple-pointed-toe-stiletto-slip-on-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=wild-pair-womens-purple-pointed-toe-stiletto-slip-on-pumps"><img alt="wild-pair-womens-purple-side-elastic-cushioned-darcie-pointed-toe-stiletto-slip-on-dress-slingback-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wild-pair-womens-purple-side-elastic-cushioned-darcie-pointed-toe-stiletto-slip-on-dress-slingback-9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=wild-pair-womens-purple-pointed-toe-stiletto-slip-on-pumps"><img alt="wild-pair-womens-purple-side-elastic-cushioned-darcie-pointed-toe-stiletto-slip-on-dress-slingback-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wild-pair-womens-purple-side-elastic-cushioned-darcie-pointed-toe-stiletto-slip-on-dress-slingback-9-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on a pair of Wild Pair Women's lime-colored stiletto slip-on dress shoes, and I have to say, I was quite impressed with the fit and the style. These shoes definitely stand out with their pointed toe and the 4.5-inch stiletto heel. The closure is a simple slip-on, which is easy to use and makes it quick to put these shoes on. 
 
@@ -298,9 +298,9 @@ That being said, there are a couple of downsides to these shoes. Firstly, they r
 Overall, I've had a great experience wearing the Wild Pair Women's lime-colored stiletto slip-on dress shoes, and I would definitely recommend them to anyone looking for a stylish and comfortable pair of heels for their wardrobe. 
 
 
-### [Kately Purple Pumps with Patent Finish - Comfortable Slingback Design](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=kately-purple-pumps-with-patent-finish-comfortable-slingback-design)
+### [Kately Purple Pumps with Patent Finish - Comfortable Slingback Design](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=kately-purple-pumps-with-patent-finish-comfortable-slingback-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=kately-purple-pumps-with-patent-finish-comfortable-slingback-design"><img alt="nine-west-kately-9x9-slingback-pumps-patent-purple-size-12-medium-width-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-kately-9x9-slingback-pumps-patent-purple-size-12-medium-width-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=kately-purple-pumps-with-patent-finish-comfortable-slingback-design"><img alt="nine-west-kately-9x9-slingback-pumps-patent-purple-size-12-medium-width-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nine-west-kately-9x9-slingback-pumps-patent-purple-size-12-medium-width-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been wearing these Kately pumps every day for a few weeks now, and I'm thrilled with the results. With a mid-height stiletto heel and 9x9 technology, these shoes are super comfortable right out of the box. The 9 point-cushioning and breathability make these shoes feel like I'm walking on a cloud, and they've been great for all-day wear. 
 
@@ -309,9 +309,9 @@ The patent purple color is lovely, and it goes with almost anything in my wardro
 Overall, I'm a big fan of these Nine West Kately pumps and can't wait to see how they look after a few wears. 
 
 
-### [Stylish Women's Purple Wendy Pumps from New York and Company](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=stylish-womens-purple-wendy-pumps-from-new-york-and-company)
+### [Stylish Women's Purple Wendy Pumps from New York and Company](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=stylish-womens-purple-wendy-pumps-from-new-york-and-company)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=stylish-womens-purple-wendy-pumps-from-new-york-and-company"><img alt="womens-new-york-and-company-wendy-pumps-in-purple-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-wendy-pumps-in-purple-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=stylish-womens-purple-wendy-pumps-from-new-york-and-company"><img alt="womens-new-york-and-company-wendy-pumps-in-purple-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-new-york-and-company-wendy-pumps-in-purple-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the captivating world of fashion with the Wendy Pumps in Purple Size 11. Designed by New York and Company, these pumps are a perfect blend of style and comfort, making them a must-have addition to your wardrobe. Crafted with a pointed toe and a delicate metallic decor accent, these shoes exude elegance and sophistication. 
 
@@ -322,9 +322,9 @@ Pairing beautifully with any outfit, the Wendy Pumps are a versatile and timeles
 While these pumps are a great pick for those seeking a pop of purple in their wardrobe, some users have reported minor issues, such as a less-than-perfect bow design on one shoe. Nonetheless, overall, the Wendy Pumps in Purple Size 11 are a reliable and fashionable choice for any woman in search of a stylish and comfortable pump. 
 
 
-### [Stylish Purple Journee Marcie Women's Pumps](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=stylish-purple-journee-marcie-womens-pumps)
+### [Stylish Purple Journee Marcie Women's Pumps](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=stylish-purple-journee-marcie-womens-pumps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=stylish-purple-journee-marcie-womens-pumps"><img alt="journee-collection-womens-marcie-pumps-purple-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/journee-collection-womens-marcie-pumps-purple-5-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=stylish-purple-journee-marcie-womens-pumps"><img alt="journee-collection-womens-marcie-pumps-purple-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/journee-collection-womens-marcie-pumps-purple-5-5-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on the Journee Collection's Marcie pumps in a vibrant purple hue, and let me tell you, they were quite the statement piece! From the get-go, I was impressed by both the comfort and style that this heel provided, thanks to its 4 mm Tru Comfort Foam insole. Walking around in them felt like walking on clouds! 
 
@@ -335,9 +335,9 @@ The pumps' supple vegan leather made them look and feel luxurious, while the rhi
 Overall, the Journee Collection's Marcie pumps offered a perfect combination of style and comfort, but make sure to keep in mind the heel height and sizing when shopping for yours. 
 
 
-### [Stylish Purple Block Heel Pump](https://serp.ly/@outrun/amazon/Purple+Pumps?utm\_term=stylish-purple-block-heel-pump)
+### [Stylish Purple Block Heel Pump](https://serp.ly/@bar/amazon/Purple+Pumps?utm\_term=stylish-purple-block-heel-pump)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Pumps?utm_term=stylish-purple-block-heel-pump"><img alt="marc-fisher-ltd-zala-block-heel-pump-in-dark-purple-500-at-nordstrom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marc-fisher-ltd-zala-block-heel-pump-in-dark-purple-500-at-nordstrom-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Pumps?utm_term=stylish-purple-block-heel-pump"><img alt="marc-fisher-ltd-zala-block-heel-pump-in-dark-purple-500-at-nordstrom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marc-fisher-ltd-zala-block-heel-pump-in-dark-purple-500-at-nordstrom-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on the Marc Fisher LTD Zala Block Heel Pump in Dark Purple and found it to be a beautiful, comfortable, and stylish shoe. The pointy-toe flared heel dress pump has a leather sole, making it a perfect addition to any outfit. However, I did notice that the sizing seemed to be off for me, causing my foot to slide out of the shoe. 
 
@@ -353,7 +353,7 @@ Choosing the perfect pair of purple pumps can be a challenge, but with our compr
 
 When purchasing purple pumps, there are several important features to consider. First and foremost is the level of comfort. Look for pumps with cushioned insoles and supportive heels to ensure a comfortable walking experience. Additionally, consider the shoe's level of breathability, as this will play a role in its overall comfort. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-2/h=540,fit=pad,background=black" alt="Purple-Pumps-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-2/h=540,fit=pad,background=black" alt="Purple-Pumps-2" height="540"></a></div>
 
 
 ### Sizing and Fit
@@ -365,7 +365,7 @@ A proper fit is crucial for any pair of shoes, but particularly for high heels l
 
 The materials used in the construction of purple pumps are important to consider, as they will impact the shoe's durability and performance. Look for shoes made from high-quality materials like genuine leather, which are both comfortable and long-lasting. Additionally, consider the shoe's stitching and other construction details to ensure that it will hold up well over time. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-3/h=540,fit=pad,background=black" alt="Purple-Pumps-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-3/h=540,fit=pad,background=black" alt="Purple-Pumps-3" height="540"></a></div>
 
 
 ### Style and Versatility
@@ -375,7 +375,7 @@ Purple pumps are a versatile fashion statement that can be dressed up or down de
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-4/h=540,fit=pad,background=black" alt="Purple-Pumps-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-4/h=540,fit=pad,background=black" alt="Purple-Pumps-4" height="540"></a></div>
 
 
 ### What are the key features of the Purple Pumps products?
@@ -391,7 +391,7 @@ The Purple Pumps collection caters to a wide array of occasions, ensuring that c
 
 For more casual get-togethers, there are also styles available that feature sporty elements, like breathable uppers and supportive soles, making them suitable for daytime wear or even outdoor events. The versatility of the Purple Pumps collection ensures that there's a suitable option for any occasion. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-5/h=540,fit=pad,background=black" alt="Purple-Pumps-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-5/h=540,fit=pad,background=black" alt="Purple-Pumps-5" height="540"></a></div>
 
 
 ### Are the Purple Pumps comfortable to wear?
@@ -407,7 +407,7 @@ The sizing options for the Purple Pumps collection vary depending on the specifi
 
 It's crucial to select the right size and width when purchasing Purple Pumps to ensure optimal comfort and support. Customers can refer to the brand's size chart or reach out to a customer service representative for assistance in determining their ideal size. Many retailers also offer sizing guides to help customers determine their correct size and width. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-6/h=540,fit=pad,background=black" alt="Purple-Pumps-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Pumps"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Pumps-6/h=540,fit=pad,background=black" alt="Purple-Pumps-6" height="540"></a></div>
 
 
 ### How much do Purple Pumps typically cost?

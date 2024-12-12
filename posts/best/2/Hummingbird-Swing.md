@@ -15,9 +15,9 @@ Take a moment to relax and unwind with the Hummingbird Swing, a unique and capti
 ## Reviews
 
 
-### [3 Pack Hummingbird Swing for Outdoor Perches](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=3-pack-hummingbird-swing-for-outdoor-perches)
+### [3 Pack Hummingbird Swing for Outdoor Perches](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=3-pack-hummingbird-swing-for-outdoor-perches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=3-pack-hummingbird-swing-for-outdoor-perches"><img alt="3-pack-hummingbird-swing-hummingbird-perch-bird-swing-metal-frame-metal-frame-hummingbird-swing-with-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3-pack-hummingbird-swing-hummingbird-perch-bird-swing-metal-frame-metal-frame-hummingbird-swing-with-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=3-pack-hummingbird-swing-for-outdoor-perches"><img alt="3-pack-hummingbird-swing-hummingbird-perch-bird-swing-metal-frame-metal-frame-hummingbird-swing-with-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/3-pack-hummingbird-swing-hummingbird-perch-bird-swing-metal-frame-metal-frame-hummingbird-swing-with-1/h=540,fit=pad,background=black"/></a></div>
 
 As a bird lover, I was excited to try this Hummingbird Swing Perch set. I loved the idea of attracting hummingbirds and other small birds to my courtyard, providing them with a safe and comfortable spot to rest and perch. The set of three wooden bird swings was easy to assemble, and the sturdy metal frames ensured that they would withstand the elements. 
 
@@ -26,9 +26,9 @@ During the first few weeks, I noticed an increase in the number of hummingbirds 
 Despite this minor drawback, the Hummingbird Swing Perch set was still a delight to use. I appreciated the thoughtful design and the opportunity to enjoy nature right in my backyard. I wholeheartedly recommend this set to anyone looking to attract hummingbirds and other small birds to their courtyard. 
 
 
-### [Pop's Birding Charm Series - Hummingbird Swing](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=pops-birding-charm-series-hummingbird-swing)
+### [Pop's Birding Charm Series - Hummingbird Swing](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=pops-birding-charm-series-hummingbird-swing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=pops-birding-charm-series-hummingbird-swing"><img alt="pops-birding-charm-series-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-birding-charm-series-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=pops-birding-charm-series-hummingbird-swing"><img alt="pops-birding-charm-series-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-birding-charm-series-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Pop's Charm Series Hummingbird Swing and it was a delightful experience. As someone who enjoys birdwatching, I was drawn to the intricate hummingbird charms available in a variety of colors. The charming aspect of the swing, which makes it perfect for framing hummingbirds in my camera, was a true delight. 
 
@@ -37,9 +37,9 @@ One thing that stood out to me was its 100% Made in the USA quality. I appreciat
 However, there were a couple of drawbacks in my experience. Firstly, the swing was a bit heavier than I expected, making it a bit difficult to move around. Secondly, the color options were not as diverse as I would have liked, with only a few options available. But overall, I had a great experience with this Pop's Charm Series Hummingbird Swing. 
 
 
-### [Vintage Copper Hummingbird Swing with Patented POLYPERCH Rest](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=vintage-copper-hummingbird-swing-with-patented-polyperch-rest)
+### [Vintage Copper Hummingbird Swing with Patented POLYPERCH Rest](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=vintage-copper-hummingbird-swing-with-patented-polyperch-rest)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=vintage-copper-hummingbird-swing-with-patented-polyperch-rest"><img alt="charm-hummingbird-swing-single-vintage-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/charm-hummingbird-swing-single-vintage-copper-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=vintage-copper-hummingbird-swing-with-patented-polyperch-rest"><img alt="charm-hummingbird-swing-single-vintage-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/charm-hummingbird-swing-single-vintage-copper-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Charm Hummingbird Swing, and I must say, I was impressed with the experience it provided. The hummingbirds seemed to really enjoy swinging on it, creating the perfect spot for them to rest and keep watch over their food source. 
 
@@ -48,18 +48,18 @@ The included hook made it easy to place near a feeder, and the POLYPERCH design 
 All in all, a great addition to any hummingbird-loving household! 
 
 
-### [Tweet Heart Birdie Swing: Copper Hummingbird Swing](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=tweet-heart-birdie-swing-copper-hummingbird-swing)
+### [Tweet Heart Birdie Swing: Copper Hummingbird Swing](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=tweet-heart-birdie-swing-copper-hummingbird-swing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=tweet-heart-birdie-swing-copper-hummingbird-swing"><img alt="tweet-heart-birdie-swing-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tweet-heart-birdie-swing-copper-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=tweet-heart-birdie-swing-copper-hummingbird-swing"><img alt="tweet-heart-birdie-swing-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tweet-heart-birdie-swing-copper-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Tweet Heart Birdie Swing Copper, a charming addition to any backyard or garden space. The perfect perch for hummingbirds and other birds to keep watch over their food source, this swing features a cute, heart-shaped bead that attracts them from all around. 
 
 With its high-quality, rust-resistant construction, this swing is both attractive and durable, making it a must-have for bird enthusiasts. 
 
 
-### [Heart-Shaped Hummingbird Sling Swing for Birds](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=heart-shaped-hummingbird-sling-swing-for-birds)
+### [Heart-Shaped Hummingbird Sling Swing for Birds](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=heart-shaped-hummingbird-sling-swing-for-birds)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=heart-shaped-hummingbird-sling-swing-for-birds"><img alt="songbird-essentials-se801-tweet-heart-birdie-swing-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/songbird-essentials-se801-tweet-heart-birdie-swing-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=heart-shaped-hummingbird-sling-swing-for-birds"><img alt="songbird-essentials-se801-tweet-heart-birdie-swing-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/songbird-essentials-se801-tweet-heart-birdie-swing-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Songbird Essentials SE801 Tweet Heart Birdie Swing in my garden and I'm thoroughly impressed with it. The black color and heart-shaped design make it a whimsical addition to any outdoor space. Placing it near my hummingbird feeders has become a bit of a tradition. After a day of feeding, I can see the hummingbirds perched on the swing, taking a moment to rest and keep an eye on their food. 
 
@@ -70,9 +70,9 @@ The Songbird Essentials SE801 Tweet Heart Birdie Swing is not just aesthetically
 Overall, I highly recommend the Songbird Essentials SE801 Tweet Heart Birdie Swing for anyone with a passion for hummingbirds or an appreciation for these delicate creatures. 
 
 
-### [Pop's Hummingbird Swing: The Ideal Territorial Spot for Hummingbirds](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=pops-hummingbird-swing-the-ideal-territorial-spot-for-hummingbirds)
+### [Pop's Hummingbird Swing: The Ideal Territorial Spot for Hummingbirds](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=pops-hummingbird-swing-the-ideal-territorial-spot-for-hummingbirds)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=pops-hummingbird-swing-the-ideal-territorial-spot-for-hummingbirds"><img alt="pops-hummingbird-swing-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-hummingbird-swing-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=pops-hummingbird-swing-the-ideal-territorial-spot-for-hummingbirds"><img alt="pops-hummingbird-swing-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-hummingbird-swing-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Hummingbird Swing, a delightful addition to any hummingbird enthusiast's collection. The swing, available in both Black and Brown, features a powder-coated metal frame with a hand-stained wooden dowel - creating the perfect perching spot for hummingbirds to rest and stay close to their feeder. 
 
@@ -83,18 +83,18 @@ For those looking to create a more territorial area for their hummingbirds, addi
 The hummingbird swing is a sturdy, well-crafted piece that will bring smile to the face of any hummingbird lover. Its unique design and excellent functionality make it a must-have addition for any bird-watching setup. 
 
 
-### [Perky-pet Hummingbird Swing for Elegant Backyard Décor](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=perky-pet-hummingbird-swing-for-elegant-backyard-décor)
+### [Perky-pet Hummingbird Swing for Elegant Backyard Décor](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=perky-pet-hummingbird-swing-for-elegant-backyard-décor)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=perky-pet-hummingbird-swing-for-elegant-backyard-décor"><img alt="perky-pet-hummingbird-swing-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/perky-pet-hummingbird-swing-copper-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=perky-pet-hummingbird-swing-for-elegant-backyard-décor"><img alt="perky-pet-hummingbird-swing-copper-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/perky-pet-hummingbird-swing-copper-1/h=540,fit=pad,background=black"/></a></div>
 
 This adorable Perky-Pet hummingbird swing is a charming addition to your bird-watching setup. Constructed with a sturdy copper frame, it boasts an elegant, rose-tinted bead accent that adds a touch of sophistication. The plastic-coated perch provides an easy grip, making it a breeze to hang from the matching Perky-Pet Copper Decorative Beaded Hanging Hook. Not only is this perch perfect for hummingbirds to perch before and after using feeders, but it also doubles as a resting spot for any curious bird. 
 
 Photographers will appreciate the perch's unobstructed view in all directions, allowing for breathtaking close-ups of the birds. Hummingbirds are known to rest on the perch for a minute or two, ensuring a stunning pose for your camera. With outstanding reviews from customers, this enchanting hummingbird swing is a must-have for any avid bird lover. 
 
 
-### [Home-X Hummingbird Swing - Metal Frame Design with Wooden Dowel](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=home-x-hummingbird-swing-metal-frame-design-with-wooden-dowel)
+### [Home-X Hummingbird Swing - Metal Frame Design with Wooden Dowel](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=home-x-hummingbird-swing-metal-frame-design-with-wooden-dowel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=home-x-hummingbird-swing-metal-frame-design-with-wooden-dowel"><img alt="home-x-hummingbird-swing-metal-frame-hummingbird-swing-with-wooden-dowel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/home-x-hummingbird-swing-metal-frame-hummingbird-swing-with-wooden-dowel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=home-x-hummingbird-swing-metal-frame-design-with-wooden-dowel"><img alt="home-x-hummingbird-swing-metal-frame-hummingbird-swing-with-wooden-dowel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/home-x-hummingbird-swing-metal-frame-hummingbird-swing-with-wooden-dowel-1/h=540,fit=pad,background=black"/></a></div>
 
 The Home-X Hummingbird Swing has been a delightful addition to my backyard. Its sturdy black powder-coated frame, complemented by the hand-stained dowel, adds a touch of elegance to any garden. The swing measures around 5.5 by 7 inches, which is the perfect size to accommodate a variety of hummingbirds. 
 
@@ -103,18 +103,18 @@ What I appreciate the most about this swing is its ability to bring me closer to
 However, there are a couple of things I would like to mention. Firstly, the swing is heavier than I initially expected, making it a bit challenging to move around. But its sturdiness more than makes up for it. Overall, the Home-X Hummingbird Swing has been a wonderful investment, providing me with hours of entertainment and a unique connection with nature. 
 
 
-### [Pop's Copper Hummingbird Perch Swing](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=pops-copper-hummingbird-perch-swing)
+### [Pop's Copper Hummingbird Perch Swing](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=pops-copper-hummingbird-perch-swing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=pops-copper-hummingbird-perch-swing"><img alt="bark-perch-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bark-perch-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=pops-copper-hummingbird-perch-swing"><img alt="bark-perch-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bark-perch-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bark Perch Hummingbird Swing offers a unique way to invite hummingbirds into your outdoor space. With a stunning copper swing and hummingbird heart charm, it adds a touch of whimsy to any setup. The copper hook included in each swing allows for easy hanging, providing hummingbirds a convenient resting spot after all their hard work pollinating flowers. 
 
 Designed and assembled in Redlands, California, this perch swing is sure to become a favorite among nature lovers. 
 
 
-### [Liberty Bell Hummingbird Swing: Bringing Nature's Beauty Home](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=liberty-bell-hummingbird-swing-bringing-natures-beauty-home)
+### [Liberty Bell Hummingbird Swing: Bringing Nature's Beauty Home](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=liberty-bell-hummingbird-swing-bringing-natures-beauty-home)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=liberty-bell-hummingbird-swing-bringing-natures-beauty-home"><img alt="liberty-bell-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/liberty-bell-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=liberty-bell-hummingbird-swing-bringing-natures-beauty-home"><img alt="liberty-bell-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/liberty-bell-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Liberty Bell Hummingbird Swing and was blown away by its uniqueness and quality. The design, featuring the Liberty Bell, USA Hummingbird Flag Charm, and a comfortable perch, is a true labor of love. The swing encourages hummingbirds to use it as a territorial perching spot, making it a great addition to any feeder. 
 
@@ -125,9 +125,9 @@ While setting up the swing, I placed it near my red flowering salvia brush, a po
 My experience with the Liberty Bell Hummingbird Swing has been nothing short of amazing. The product's attention to detail and American-made craftsmanship make it a standout addition to any bird lover's collection. I'm excited to see how it continues to attract and entertain these fascinating creatures in my backyard. 
 
 
-### [Pop's Charmed Hummingbird Swing: Teal Design Swings](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=pops-charmed-hummingbird-swing-teal-design-swings)
+### [Pop's Charmed Hummingbird Swing: Teal Design Swings](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=pops-charmed-hummingbird-swing-teal-design-swings)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=pops-charmed-hummingbird-swing-teal-design-swings"><img alt="pops-charmed-hummingbird-swing-teal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-charmed-hummingbird-swing-teal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=pops-charmed-hummingbird-swing-teal-design-swings"><img alt="pops-charmed-hummingbird-swing-teal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-charmed-hummingbird-swing-teal-1/h=540,fit=pad,background=black"/></a></div>
 
 I was recently introduced to the Pop's Charmed Hummingbird Swing in a vibrant teal color. It's a charming addition to any garden, and the hummingbirds seem to love it just as much as I do. The swing is made of durable wire with a sturdy dowel that can withstand the elements, making it suitable for all-weather use. 
 
@@ -140,9 +140,9 @@ While I adore this Hummingbird Swing, I do wish it came with a chain for added h
 In conclusion, the Pop's Charmed Hummingbird Swing is a charming and practical addition to any hummingbird enthusiast's garden. Its ease of installation, sturdy construction, and versatile appeal make it a worthwhile investment for anyone looking to provide a cozy resting spot for their feathered friends. 
 
 
-### [Attractive Copper Hummingbird Swing for Perching](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=attractive-copper-hummingbird-swing-for-perching)
+### [Attractive Copper Hummingbird Swing for Perching](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=attractive-copper-hummingbird-swing-for-perching)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=attractive-copper-hummingbird-swing-for-perching"><img alt="songbird-essentials-copper-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/songbird-essentials-copper-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=attractive-copper-hummingbird-swing-for-perching"><img alt="songbird-essentials-copper-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/songbird-essentials-copper-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who loves spending time in the garden and admiring the beauty of hummingbirds, I was thrilled to try this Copper Hummingbird Swing from Songbird Essentials. The highlight of this product is its 100% handcrafted quality and the fact that it's made in the USA. This attention to detail can be seen in everything from the copper hanger to the wooden perch, which is the perfect size for these small creatures. 
 
@@ -155,9 +155,9 @@ Secondly, the swing itself was rather small, which might not appeal to some user
 Overall, I found the Copper Hummingbird Swing from Songbird Essentials to be a lovely addition to my garden, providing a much-needed resting spot for these hardworking and fascinating creatures. Despite a couple of small flaws, the high-quality craftsmanship and unique design make this swing a worthwhile investment for any bird lover. 
 
 
-### [Hummingbird Territory Swing Set](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hummingbird-territory-swing-set)
+### [Hummingbird Territory Swing Set](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hummingbird-territory-swing-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hummingbird-territory-swing-set"><img alt="pops-hummingbird-swing-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-hummingbird-swing-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hummingbird-territory-swing-set"><img alt="pops-hummingbird-swing-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-hummingbird-swing-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Pop's Hummingbird Swing in black - a delightful addition to any garden or backyard that's perfect for attracting hummingbirds. Its powder-coated metal frame is both sturdy and weather-resistant, ensuring its longevity and charm in outdoor settings. The wooden dowel serves as a comfortable perching spot for hummingbirds to rest and observe their food source. 
 
@@ -168,18 +168,18 @@ The Pop's Original Hummingbird Swing in black is versatile and can be used in pa
 Overall, the Pop's Hummingbird Swing in black is an outstanding product that brings joy and beauty to any outdoor space, while also providing a useful purpose for attracting and observing hummingbirds. Its high-quality craftsmanship and eye-catching design make it a worthy addition to any garden or backyard, inviting these fascinating birds to make your outdoor haven their home. 
 
 
-### [HANZE Wooden Mirror Bird Swing: Safe and Engaging Playtime for Parrots and Small Birds](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hanze-wooden-mirror-bird-swing-safe-and-engaging-playtime-for-parrots-and-small-birds)
+### [HANZE Wooden Mirror Bird Swing: Safe and Engaging Playtime for Parrots and Small Birds](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hanze-wooden-mirror-bird-swing-safe-and-engaging-playtime-for-parrots-and-small-birds)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hanze-wooden-mirror-bird-swing-safe-and-engaging-playtime-for-parrots-and-small-birds"><img alt="hanze-bird-mirror-with-swing-hummingbird-swing-bird-perches-for-parrots-stand-wooden-swing-toy-for-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hanze-bird-mirror-with-swing-hummingbird-swing-bird-perches-for-parrots-stand-wooden-swing-toy-for-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hanze-wooden-mirror-bird-swing-safe-and-engaging-playtime-for-parrots-and-small-birds"><img alt="hanze-bird-mirror-with-swing-hummingbird-swing-bird-perches-for-parrots-stand-wooden-swing-toy-for-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hanze-bird-mirror-with-swing-hummingbird-swing-bird-perches-for-parrots-stand-wooden-swing-toy-for-m-1/h=540,fit=pad,background=black"/></a></div>
 
 The HANZE Bird Mirror with Swing Hummingbird Swing Bird Perches for Parrots Stand is a delightful wooden toy that caters to your pet bird's curiosity and love for beauty. Made from high-quality solid wood and safe metal hooks, this swing is both visually appealing and functional. Its mirror design meets the bird's natural curiosity while the smooth and wear-resistant surface ensures durability. 
 
 The wooden swing stand can easily accommodate a variety of medium-sized and small birds, including parakeets, budgies, and macaws. The effortless assembly process and compact size make it ideal for any bird lover looking to enhance their pet's indoor entertainment. 
 
 
-### [Classic Hummingbird Swing for Perfect Photos](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=classic-hummingbird-swing-for-perfect-photos)
+### [Classic Hummingbird Swing for Perfect Photos](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=classic-hummingbird-swing-for-perfect-photos)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=classic-hummingbird-swing-for-perfect-photos"><img alt="original-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/original-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=classic-hummingbird-swing-for-perfect-photos"><img alt="original-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/original-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 The Original Hummingbird Swing from Pop's original series is a real treat for bird-lovers and photographers. I've been using this stunning piece in my backyard lately and it has quickly become a favorite. The classic scroll design is available in a variety of color finishes, making it perfect for framing that shot of a hummingbird. 
 
@@ -190,9 +190,9 @@ The mimicking wood poly perch is a thoughtful addition, providing a resting spot
 I highly recommend this beautiful swing for anyone looking to add a touch of nature to their home, it truly is a conversation starter! 
 
 
-### [Hummingbird Swing and Bird Perch for Restful Fun](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-and-bird-perch-for-restful-fun)
+### [Hummingbird Swing and Bird Perch for Restful Fun](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-and-bird-perch-for-restful-fun)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-and-bird-perch-for-restful-fun"><img alt="sungrow-parakeet-budgie-hummingbird-swing-perch-wooden-dowel-makes-for-resting-spot-1-piece-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sungrow-parakeet-budgie-hummingbird-swing-perch-wooden-dowel-makes-for-resting-spot-1-piece-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-and-bird-perch-for-restful-fun"><img alt="sungrow-parakeet-budgie-hummingbird-swing-perch-wooden-dowel-makes-for-resting-spot-1-piece-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sungrow-parakeet-budgie-hummingbird-swing-perch-wooden-dowel-makes-for-resting-spot-1-piece-1/h=540,fit=pad,background=black"/></a></div>
 
 As a seasoned bird enthusiast, I recently tried the SunGrow Parakeet, Budgie & Hummingbird Swing Perch – and let me tell you, it's been a game-changer for my little feathered friends. I was impressed by the wooden dowel's raw texture, which provided a comfortable resting spot for my birds. The vibrant colorful beads added a charming accent to the piece, blending seamlessly with the vibrancy of their feathers. 
 
@@ -203,9 +203,9 @@ However, I did notice a slightly concerning issue with the bells on the swing be
 Overall, this SunGrow Parakeet, Budgie & Hummingbird Swing Perch has been a wonderful addition to my aviary, offering my winged companions a much-needed perching spot and providing a delightful birdwatching experience for me and my family. 
 
 
-### [Hummingbird Swing for Territorial Birds: Charming and Durable Design](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-for-territorial-birds-charming-and-durable-design)
+### [Hummingbird Swing for Territorial Birds: Charming and Durable Design](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-for-territorial-birds-charming-and-durable-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-for-territorial-birds-charming-and-durable-design"><img alt="pops-charmed-hummingbird-swing-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-charmed-hummingbird-swing-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-for-territorial-birds-charming-and-durable-design"><img alt="pops-charmed-hummingbird-swing-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pops-charmed-hummingbird-swing-red-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who loves hummingbirds, I was thrilled to discover the Pop's Charmed Hummingbird Swing. It's designed to be an elegant and stylish addition to any bird-watching experience, and I must say, it lives up to its promise. This vibrant swing comes with its own adorable charm, making it the perfect perch for these fascinating creatures. 
 
@@ -218,9 +218,9 @@ However, there is one area where the swing falls slightly short, and that's its 
 On the whole, though, I would say that the Pop's Charmed Hummingbird Swing is a delightful addition to any bird-watching or hummingbird-loving experience. If you can look past its somewhat flimsy build, you'll find a charming and delightful perch for these intriguing creatures. 
 
 
-### [TopWoot Hummingbird Swing: Attractive Perch for Finches](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=topwoot-hummingbird-swing-attractive-perch-for-finches)
+### [TopWoot Hummingbird Swing: Attractive Perch for Finches](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=topwoot-hummingbird-swing-attractive-perch-for-finches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=topwoot-hummingbird-swing-attractive-perch-for-finches"><img alt="topwoot-hummingbird-swing-2-pack-attractive-hummingbird-perch-with-rust-resistant-metal-frame-wooden-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/topwoot-hummingbird-swing-2-pack-attractive-hummingbird-perch-with-rust-resistant-metal-frame-wooden-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=topwoot-hummingbird-swing-attractive-perch-for-finches"><img alt="topwoot-hummingbird-swing-2-pack-attractive-hummingbird-perch-with-rust-resistant-metal-frame-wooden-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/topwoot-hummingbird-swing-2-pack-attractive-hummingbird-perch-with-rust-resistant-metal-frame-wooden-1/h=540,fit=pad,background=black"/></a></div>
 
 I was recently introduced to the TopWoot hummingbird swing and I must say, it's a charming addition to my backyard bird station. The unique butterfly design on top is not only visually appealing but also provides an extra perching spot for those little creatures. Made of premium rust-resistant metal, the perch is sturdy and durable, perfect for hummingbirds to rest after a day of feasting on nectar. 
 
@@ -229,9 +229,9 @@ To use, simply place the hummingbird swing near your feeder or a natural food so
 This wild bird perch makes for a fantastic gift idea for any hummingbird enthusiast or as a charming housewarming present. The elegant packaging will surely impress and delight your loved ones. Overall, the TopWoot hummingbird swing is a delightful, functional, and aesthetically pleasing addition to any backyard bird station. 
 
 
-### [Hummingbird Swing with Butterflies](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-with-butterflies)
+### [Hummingbird Swing with Butterflies](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-with-butterflies)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-with-butterflies"><img alt="hummingbird-swing-with-butterflies-size-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hummingbird-swing-with-butterflies-size-7/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-with-butterflies"><img alt="hummingbird-swing-with-butterflies-size-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hummingbird-swing-with-butterflies-size-7/h=540,fit=pad,background=black"/></a></div>
 
 Imagine having a small, colorful bird resting right outside your window, thanks to the Hummingbird Swing with Butterflies. This elegant addition to your garden will not only attract these stunning creatures, but it also serves as a charming ornament. 
 
@@ -240,9 +240,9 @@ The Hummingbird Swing with Butterflies stands at a modest 6 inches, providing a 
 However, some users might find the sizing too small for their liking, and others could be looking for more color options. Nevertheless, this Hummingbird Swing with Butterflies captures nature's beauty in a way that's both functional and aesthetic. Whether you're a bird enthusiast or simply looking to bring a touch of the outdoors into your home, this product is a must-have. 
 
 
-### [Hummingbird Swing with Hummingbird Heart Charm](https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-with-hummingbird-heart-charm)
+### [Hummingbird Swing with Hummingbird Heart Charm](https://serp.ly/@bar/amazon/Hummingbird+Swing?utm\_term=hummingbird-swing-with-hummingbird-heart-charm)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-with-hummingbird-heart-charm"><img alt="rustic-perch-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rustic-perch-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hummingbird+Swing?utm_term=hummingbird-swing-with-hummingbird-heart-charm"><img alt="rustic-perch-hummingbird-swing-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rustic-perch-hummingbird-swing-1/h=540,fit=pad,background=black"/></a></div>
 
 This Rustic Perch Hummingbird Swing captivates nature lovers with its charming, copper design that resembles a hummingbirds' heart. The creator, Pop's, was inspired by his own hummingbirds' habit of perching on nearby trees after feeding, which led him to envision an intimate way to connect with these delightful birds. 
 

@@ -15,18 +15,18 @@ Welcome to our Arts and Crafts Paper roundup! In this article, we've handpicked 
 ## Reviews
 
 
-### [Crate Paper Gingham Garden Artistic Paper Pad](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=crate-paper-gingham-garden-artistic-paper-pad)
+### [Crate Paper Gingham Garden Artistic Paper Pad](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=crate-paper-gingham-garden-artistic-paper-pad)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=crate-paper-gingham-garden-artistic-paper-pad"><img alt="crate-paper-gingham-garden-6-x-8-paper-pad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crate-paper-gingham-garden-6-x-8-paper-pad-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=crate-paper-gingham-garden-artistic-paper-pad"><img alt="crate-paper-gingham-garden-6-x-8-paper-pad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crate-paper-gingham-garden-6-x-8-paper-pad-1/h=540,fit=pad,background=black"/></a></div>
 
 With the Gingham Garden Paper Pad, Crafting has never been so delightful. The paper pad, measuring 6 inches by 8 inches, is filled with an impressive 36 sheets, 6 of which are embellished with exquisite gold foil accents. Perfect for enlivening cards, scrapbook pages, and tags, the medium weight and acid-free papers offer a luxurious touch to your projects without compromising on the quality. 
 
 A favorite amongst crafters and enthusiasts alike, the Gingham Garden Paper Pad is a splendid addition to any toolkit and has earned itself a well-deserved 5-star rating. 
 
 
-### [Rembrandt Toned Mixed Media Paper for Artists](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=rembrandt-toned-mixed-media-paper-for-artists)
+### [Rembrandt Toned Mixed Media Paper for Artists](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=rembrandt-toned-mixed-media-paper-for-artists)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=rembrandt-toned-mixed-media-paper-for-artists"><img alt="rembrandt-toned-mixed-media-pad-desert-brown-16-5-x-11-8" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rembrandt-toned-mixed-media-pad-desert-brown-16-5-x-11-8/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=rembrandt-toned-mixed-media-paper-for-artists"><img alt="rembrandt-toned-mixed-media-pad-desert-brown-16-5-x-11-8" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rembrandt-toned-mixed-media-pad-desert-brown-16-5-x-11-8/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Rembrandt Toned Mixed Media Pad in Desert Brown, and let me tell you, it's a game-changer! As an artist who loves playing around with different mediums, this paper has been a fantastic addition to my toolkit. 
 
@@ -39,9 +39,9 @@ While I really like this product, it's not without its minor downsides. One con 
 Overall, the Rembrandt Toned Mixed Media Pad in Desert Brown has been a fantastic addition to my art supplies. Its versatility and high-quality paper make it a must-have for any artist looking to experiment with different mediums. 
 
 
-### [Crafter's Square Art Paper Pack for Dollar Tree](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=crafters-square-art-paper-pack-for-dollar-tree)
+### [Crafter's Square Art Paper Pack for Dollar Tree](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=crafters-square-art-paper-pack-for-dollar-tree)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=crafters-square-art-paper-pack-for-dollar-tree"><img alt="crafters-square-paper-packs-200-gms-at-dollar-tree-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crafters-square-paper-packs-200-gms-at-dollar-tree-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=crafters-square-art-paper-pack-for-dollar-tree"><img alt="crafters-square-paper-packs-200-gms-at-dollar-tree-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/crafters-square-paper-packs-200-gms-at-dollar-tree-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon Crafter's Square Paper Packs at Dollar Tree, and let me tell you, they've quickly become my go-to for all sorts of crafting and DIY projects. Not only do they come conveniently pre-packaged at just 200 grams, but the assorted paper in various sizes and colors is incredibly versatile. Whether you're working on scrapbook pages or creating ornaments, these paper packs offer plenty of options to express your creativity. 
 
@@ -52,9 +52,9 @@ Although I haven't personally experienced any drawbacks with these paper packs, 
 Overall, if you're looking for an affordable solution to your paper needs for crafting and DIY projects, look no further than Crafter's Square Paper Packs at Dollar Tree. 
 
 
-### [400 Grade UART Pastel Paper for Professional Layering and Consistency](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=400-grade-uart-pastel-paper-for-professional-layering-and-consistency)
+### [400 Grade UART Pastel Paper for Professional Layering and Consistency](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=400-grade-uart-pastel-paper-for-professional-layering-and-consistency)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=400-grade-uart-pastel-paper-for-professional-layering-and-consistency"><img alt="uart-sanded-pastel-paper-sheet-pack-400-grade-9-x-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uart-sanded-pastel-paper-sheet-pack-400-grade-9-x-13/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=400-grade-uart-pastel-paper-for-professional-layering-and-consistency"><img alt="uart-sanded-pastel-paper-sheet-pack-400-grade-9-x-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/uart-sanded-pastel-paper-sheet-pack-400-grade-9-x-13/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the UART Sanded Pastel Paper Sheet Pack 400 Grade, and I must say, it was quite the experience. As an artist who adores working with pastels, I was eager to see how this particular paper would hold up against my usual go-to brands. 
 
@@ -69,18 +69,18 @@ However, one minor drawback I found was that the paper is only available in two 
 Overall, my experience with the UART Sanded Pastel Paper Sheet Pack 400 Grade has been overwhelmingly positive. The smooth, consistent sanded paper offers a versatile surface for pastel artists, and the wide range of grades available ensures that you can find the perfect fit for your creative endeavors. Despite the limited color options, I believe that this product is well worth the investment for anyone who loves working with pastels. 
 
 
-### [Bee Paper White Sketch and Trace Roll for Creative Expression](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=bee-paper-white-sketch-and-trace-roll-for-creative-expression)
+### [Bee Paper White Sketch and Trace Roll for Creative Expression](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=bee-paper-white-sketch-and-trace-roll-for-creative-expression)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=bee-paper-white-sketch-and-trace-roll-for-creative-expression"><img alt="bee-paper-white-sketch-and-trace-roll-18-inch-by-20-yards-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bee-paper-white-sketch-and-trace-roll-18-inch-by-20-yards-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=bee-paper-white-sketch-and-trace-roll-for-creative-expression"><img alt="bee-paper-white-sketch-and-trace-roll-18-inch-by-20-yards-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bee-paper-white-sketch-and-trace-roll-18-inch-by-20-yards-1/h=540,fit=pad,background=black"/></a></div>
 
 This sketch and trace paper from Bee is highly transparent and features an 8lb weight, perfect for intricate detail work or rough sketches. Its white hue complements a wide array of dry media without any bleed, making it ideal for various arts and crafts projects, including tailoring. Available in rolls only, this 18-inch wide by 20-yard long paper hails from the USA and can be used for everything from pencil to ink and felt tip pens. 
 
 While some users have noted that the paper is slightly thinner than traditional sheets, most agree that it offers a sturdy alternative for preserving original patterns. In addition to its versatility, this Bee paper boasts a remarkable transparency that brings your work to life, allowing light lines to show right through. 
 
 
-### [High-Quality Newsprint Drawing Paper for Doodles and Sketching (8.5 x 11 in, 500 Sheets)](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=high-quality-newsprint-drawing-paper-for-doodles-and-sketching-8-5-x-11-in-500-sheets)
+### [High-Quality Newsprint Drawing Paper for Doodles and Sketching (8.5 x 11 in, 500 Sheets)](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=high-quality-newsprint-drawing-paper-for-doodles-and-sketching-8-5-x-11-in-500-sheets)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=high-quality-newsprint-drawing-paper-for-doodles-and-sketching-8-5-x-11-in-500-sheets"><img alt="bright-creations-newsprint-drawing-paper-for-doodles-sketching-packing-moving-8-5-x-11-in-500-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bright-creations-newsprint-drawing-paper-for-doodles-sketching-packing-moving-8-5-x-11-in-500-sheets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=high-quality-newsprint-drawing-paper-for-doodles-and-sketching-8-5-x-11-in-500-sheets"><img alt="bright-creations-newsprint-drawing-paper-for-doodles-sketching-packing-moving-8-5-x-11-in-500-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bright-creations-newsprint-drawing-paper-for-doodles-sketching-packing-moving-8-5-x-11-in-500-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
 Bright Creations offers you an array of newsprint drawing paper, designed to unleash your creativity. These sheets are perfect for doodles and sketches, measuring approximately 11 inches by 8.5 inches - letter size for your convenience. Each pack contains a generous 500 sheets, making it a cost-effective choice for both personal and classroom use. 
 
@@ -89,9 +89,9 @@ The paper is not just for artistic pursuits, its thickness allows you to draw wi
 While users praise the thick and durable nature of the paper, some mention that it can be a little too thin and should be more affordable. Nonetheless, for a newsprint paper that can withstand the pressure of various drawing tools, it's worth considering. 
 
 
-### [Bright and Colorful Embossed Paper Set for Arts and Crafts](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=bright-and-colorful-embossed-paper-set-for-arts-and-crafts)
+### [Bright and Colorful Embossed Paper Set for Arts and Crafts](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=bright-and-colorful-embossed-paper-set-for-arts-and-crafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=bright-and-colorful-embossed-paper-set-for-arts-and-crafts"><img alt="shizen-decorative-handmade-papers-moss-green-and-pista-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shizen-decorative-handmade-papers-moss-green-and-pista-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=bright-and-colorful-embossed-paper-set-for-arts-and-crafts"><img alt="shizen-decorative-handmade-papers-moss-green-and-pista-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shizen-decorative-handmade-papers-moss-green-and-pista-green-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently fell in love with these Shizen Decorative Handmade Papers. The vibrant moss green and pista green designs are perfect for adding a pop of color to any paper project. With six different embossed, screen print, dew print, and glitter print patterns, there's something for everyone. However, be prepared for a bit of a price tag. 
 
@@ -100,18 +100,18 @@ These papers are not only beautiful but also versatile. They're great for origam
 One downside to these papers is the slightly gluey scent, but it's not overpowering. Overall, I would highly recommend these Shizen papers to anyone looking to make their paper projects stand out with a touch of nature. They're worth the investment, and I'm already planning on making more purchases in the future. 
 
 
-### [Kanban Crafts A Touch of Blush Premium Paper Pack](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=kanban-crafts-a-touch-of-blush-premium-paper-pack)
+### [Kanban Crafts A Touch of Blush Premium Paper Pack](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=kanban-crafts-a-touch-of-blush-premium-paper-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=kanban-crafts-a-touch-of-blush-premium-paper-pack"><img alt="kanban-crafts-a-touch-of-blush-8x8-designer-premium-paper-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kanban-crafts-a-touch-of-blush-8x8-designer-premium-paper-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=kanban-crafts-a-touch-of-blush-premium-paper-pack"><img alt="kanban-crafts-a-touch-of-blush-8x8-designer-premium-paper-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kanban-crafts-a-touch-of-blush-8x8-designer-premium-paper-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 Using these Kanban Crafts A Touch of Blush 8x8 Designer Premium Papers has been a delightful experience. The quality of the paper is simply outstanding, smooth and sturdy. Printed on 190gsm paper, these sheets have the perfect texture for all your card-making and scrapbooking needs. The six double-sided designs offer a wide range to choose from and the bonus sheet of cut elements is an added thoughtful touch. 
 
 What really stands out is the beautiful collection of floral and butterfly designs available. These are not just prints but they truly have a life of their own, making every card or project come alive with vibrancy. It's easy to lose track of time when you're creating with these papers. However, one aspect to consider could be the size of the sheets, they are quite small if you're planning large-scale projects. It might need some extra planning to ensure they are suitable for your intended craft. 
 
 
-### [Ikea Mala Drawing Paper Roll for Arts and Crafts](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=ikea-mala-drawing-paper-roll-for-arts-and-crafts)
+### [Ikea Mala Drawing Paper Roll for Arts and Crafts](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=ikea-mala-drawing-paper-roll-for-arts-and-crafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=ikea-mala-drawing-paper-roll-for-arts-and-crafts"><img alt="ikea-mala-drawing-paper-roll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ikea-mala-drawing-paper-roll-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=ikea-mala-drawing-paper-roll-for-arts-and-crafts"><img alt="ikea-mala-drawing-paper-roll-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ikea-mala-drawing-paper-roll-1/h=540,fit=pad,background=black"/></a></div>
 
 The Ikea Mala drawing paper rolls are a dream come true for young artists. With 30 meters of drawing paper, you can let your creativity run wild. 
 
@@ -122,9 +122,9 @@ The material is of great quality and at an affordable price. It's lightweight, m
 The Ikea Mala drawing paper rolls are a must-have for any aspiring artist. 
 
 
-### [Endless Arts & Crafts Paper Roll - 18" x 100' (1,200 inches) - White](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=endless-arts-crafts-paper-roll-18-x-100-1200-inches-white)
+### [Endless Arts & Crafts Paper Roll - 18" x 100' (1,200 inches) - White](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=endless-arts-crafts-paper-roll-18-x-100-1200-inches-white)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=endless-arts-crafts-paper-roll-18-x-100-1200-inches-white"><img alt="white-kraft-arts-and-crafts-paper-roll-18-inches-by-100-feet-1200-inch-ideal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-kraft-arts-and-crafts-paper-roll-18-inches-by-100-feet-1200-inch-ideal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=endless-arts-crafts-paper-roll-18-x-100-1200-inches-white"><img alt="white-kraft-arts-and-crafts-paper-roll-18-inches-by-100-feet-1200-inch-ideal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-kraft-arts-and-crafts-paper-roll-18-inches-by-100-feet-1200-inch-ideal-1/h=540,fit=pad,background=black"/></a></div>
 
 Unleash your creativity with this 1,200-inch roll of white, ultra-thick kraft paper perfect for any art or craft project. With its fade-resistant, acid-free design, your masterpiece will shine for years to come without losing its vibrant colors. Whether you're drawing, painting, or doing some creative cutting, this versatile paper roll is the perfect canvas for your imagination. 
 
@@ -133,9 +133,9 @@ Its heavy-duty construction ensures that it can withstand a variety of materials
 Experience endless hours of artistic enjoyment with the Bryco Goods White Kraft Arts and Crafts Paper Roll - a must-have for all creatives. 
 
 
-### [Ultimate Art Paper Roll for Unlimited Creativity](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=ultimate-art-paper-roll-for-unlimited-creativity)
+### [Ultimate Art Paper Roll for Unlimited Creativity](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=ultimate-art-paper-roll-for-unlimited-creativity)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=ultimate-art-paper-roll-for-unlimited-creativity"><img alt="bryco-goods-arts-and-crafts-paper-roll-pack-of-2-for-paints-wall-art-white-easel-paper-drawing-art-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bryco-goods-arts-and-crafts-paper-roll-pack-of-2-for-paints-wall-art-white-easel-paper-drawing-art-p-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=ultimate-art-paper-roll-for-unlimited-creativity"><img alt="bryco-goods-arts-and-crafts-paper-roll-pack-of-2-for-paints-wall-art-white-easel-paper-drawing-art-p-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bryco-goods-arts-and-crafts-paper-roll-pack-of-2-for-paints-wall-art-white-easel-paper-drawing-art-p-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently discovered the magic of Bryco Goods Arts and Crafts Paper Roll, a staple in my homemade creations and my kiddos' artistic endeavors. With a total of 1,800 inches, each unroll reveals a fresh, crisp, and colorful canvas for the artists in our lives. The sturdiness and durability impressed me; a tear or rip are no longer worries, which means the roll lasts for a long time. 
 
@@ -150,9 +150,9 @@ And let's not forget the fun times! It has served nicely as placemat during our 
 In conclusion, this Bryco Goods Arts and Crafts Paper Roll is a must-have for anyone with a creative side. It offers a wide range of benefits, from durability, versatility to preservation of colors. It's like having an endless canvas at home, which is perfect whether you're doing a group project, a solitary project, or a project with your children. Get it, unroll it, and let your imagination run wild. 
 
 
-### [Vintage Artistry Sunburst Collection Pack - Arts And Crafts Patterned Paper Set](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=vintage-artistry-sunburst-collection-pack-arts-and-crafts-patterned-paper-set)
+### [Vintage Artistry Sunburst Collection Pack - Arts And Crafts Patterned Paper Set](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=vintage-artistry-sunburst-collection-pack-arts-and-crafts-patterned-paper-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=vintage-artistry-sunburst-collection-pack-arts-and-crafts-patterned-paper-set"><img alt="49-and-market-vintage-artistry-sunburst-12x12-collection-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/49-and-market-vintage-artistry-sunburst-12x12-collection-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=vintage-artistry-sunburst-collection-pack-arts-and-crafts-patterned-paper-set"><img alt="49-and-market-vintage-artistry-sunburst-12x12-collection-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/49-and-market-vintage-artistry-sunburst-12x12-collection-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 The Vintage Artistry Sunburst Collection Pack is a delightful assortment of patterned papers that will infuse any project with a burst of color and charm. Each pack contains 8 patterned papers in double-sided design, perfect for adding a touch of brightness to any card or scrapbook page. 
 
@@ -161,9 +161,9 @@ The sunburst design, created by Katie Periet, exudes warmth and energy, making i
 The satisfaction of customers is evident, as they praise the gorgeous design, heavyweight construction, and the variety of colors. Proudly made in the USA, the Vintage Artistry Sunburst Collection Pack stands out as a great choice for any arts and crafts enthusiast. 
 
 
-### [540 Sheets Origami Star Paper Strips for DIY Arts Decorations and Gifts](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=540-sheets-origami-star-paper-strips-for-diy-arts-decorations-and-gifts)
+### [540 Sheets Origami Star Paper Strips for DIY Arts Decorations and Gifts](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=540-sheets-origami-star-paper-strips-for-diy-arts-decorations-and-gifts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=540-sheets-origami-star-paper-strips-for-diy-arts-decorations-and-gifts"><img alt="540-sheets-origami-stars-paper-strips-double-sided-lucky-colorful-star-decoration-7-assortment-color-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/540-sheets-origami-stars-paper-strips-double-sided-lucky-colorful-star-decoration-7-assortment-color-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=540-sheets-origami-star-paper-strips-for-diy-arts-decorations-and-gifts"><img alt="540-sheets-origami-stars-paper-strips-double-sided-lucky-colorful-star-decoration-7-assortment-color-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/540-sheets-origami-stars-paper-strips-double-sided-lucky-colorful-star-decoration-7-assortment-color-1/h=540,fit=pad,background=black"/></a></div>
 
 As a stationery enthusiast, I recently discovered these Lucky Colorful Star Decoration Origami Paper Strips, and let me tell you, they surpassed my expectations. With a whopping 540 sheets of origami paper in seven vibrant colors, I was ready to dive into the world of paper crafts. The paper itself is of high quality, with just the right thickness to make folding a breeze. 
 
@@ -172,9 +172,9 @@ I immediately got to work on a DIY project, transforming these paper strips into
 While the instructions could be more detailed, the paper strips are easy to work with, allowing my students to develop their artistic skills and concentration. The lucky stars bring smiles to everyone who encounters them, making this product a standout in my book. Highly recommended for anyone looking to add a splash of color and a touch of magic to their paper arts and DIY projects. 
 
 
-### [Bryco Goods High-Quality Arts and Crafts Paper Roll for Painting and Wall Decor](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=bryco-goods-high-quality-arts-and-crafts-paper-roll-for-painting-and-wall-decor)
+### [Bryco Goods High-Quality Arts and Crafts Paper Roll for Painting and Wall Decor](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=bryco-goods-high-quality-arts-and-crafts-paper-roll-for-painting-and-wall-decor)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=bryco-goods-high-quality-arts-and-crafts-paper-roll-for-painting-and-wall-decor"><img alt="bryco-goods-arts-and-crafts-paper-roll-thick-craft-paper-for-painting-wall-decor-easel-use-longevity-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bryco-goods-arts-and-crafts-paper-roll-thick-craft-paper-for-painting-wall-decor-easel-use-longevity-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=bryco-goods-high-quality-arts-and-crafts-paper-roll-for-painting-and-wall-decor"><img alt="bryco-goods-arts-and-crafts-paper-roll-thick-craft-paper-for-painting-wall-decor-easel-use-longevity-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bryco-goods-arts-and-crafts-paper-roll-thick-craft-paper-for-painting-wall-decor-easel-use-longevity-1/h=540,fit=pad,background=black"/></a></div>
 
 Embrace your artistic side with the Bryco Goods Arts and Crafts Paper Roll. This versatile and durable craft paper is perfect for painting, drawing, and creating wall decor. 
 
@@ -183,9 +183,9 @@ With a length of 1200 inches and an 18-inch width, it offers endless creative op
 Take your imagination to new heights with this exceptional blank canvas, compatible with numerous art materials and customizable to any size or shape. 
 
 
-### [Astrobrights Colorful 8.5" x 11" Arts & Crafts Paper Pack](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=astrobrights-colorful-8-5-x-11-arts-crafts-paper-pack)
+### [Astrobrights Colorful 8.5" x 11" Arts & Crafts Paper Pack](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=astrobrights-colorful-8-5-x-11-arts-crafts-paper-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=astrobrights-colorful-8-5-x-11-arts-crafts-paper-pack"><img alt="astrobrights-paper-primary-8-5-inch-x-11-inch-100-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/astrobrights-paper-primary-8-5-inch-x-11-inch-100-sheets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=astrobrights-colorful-8-5-x-11-arts-crafts-paper-pack"><img alt="astrobrights-paper-primary-8-5-inch-x-11-inch-100-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/astrobrights-paper-primary-8-5-inch-x-11-inch-100-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine running your fingers over an array of vibrant, eye-catching papers, each one brimming with life and offering endless possibilities. This is exactly what the Astrobrights Paper Pack provides, with its array of colors that will make any scrapbook or card come alive. 
 
@@ -200,9 +200,9 @@ In terms of cons, I found that the pack only contained five colors, which may no
 Overall, the Astrobrights Paper Pack has become a staple in my crafting arsenal. Its bright colors, sturdy paper, and versatility have made it a must-have for any paper crafter looking to add a touch of magic to their projects. 
 
 
-### [210 GSM White Rag Paper for Artistic Block Printing](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=210-gsm-white-rag-paper-for-artistic-block-printing)
+### [210 GSM White Rag Paper for Artistic Block Printing](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=210-gsm-white-rag-paper-for-artistic-block-printing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=210-gsm-white-rag-paper-for-artistic-block-printing"><img alt="khadi-white-rag-paper-210gsm-medium-30x42cm-pack-of-20-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/khadi-white-rag-paper-210gsm-medium-30x42cm-pack-of-20-sheets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=210-gsm-white-rag-paper-for-artistic-block-printing"><img alt="khadi-white-rag-paper-210gsm-medium-30x42cm-pack-of-20-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/khadi-white-rag-paper-210gsm-medium-30x42cm-pack-of-20-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first heard about the Khadi White Rag Paper, I thought it was just some regular old paper. But after putting it to the test, I was blown away by its quality and versatility. At a thickness of 210gsm, it's pretty sturdy and can handle all sorts of media, from watercolor to print press and drawing. It's also great for block prints and even invitations. 
 
@@ -211,9 +211,9 @@ One thing that really stood out to me was its acid-free nature, which is perfect
 However, I did notice that it can be a bit more delicate than your standard paper. It's definitely still strong, but I found that it required a slightly more gentle approach when it came to scrubbing off paint. Overall, though, it's a fantastic product for artists of all stripes. If you're looking for a reliable paper that can handle a variety of art mediums, this is definitely worth checking out. 
 
 
-### [Fade-Resistant Art Paper: Oversized Sheets for Crafting and Mounting](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=fade-resistant-art-paper-oversized-sheets-for-crafting-and-mounting)
+### [Fade-Resistant Art Paper: Oversized Sheets for Crafting and Mounting](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=fade-resistant-art-paper-oversized-sheets-for-crafting-and-mounting)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=fade-resistant-art-paper-oversized-sheets-for-crafting-and-mounting"><img alt="fadeless-art-paper-50-lb-18-x-24-inches-multiple-colors-60-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fadeless-art-paper-50-lb-18-x-24-inches-multiple-colors-60-sheets-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=fade-resistant-art-paper-oversized-sheets-for-crafting-and-mounting"><img alt="fadeless-art-paper-50-lb-18-x-24-inches-multiple-colors-60-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fadeless-art-paper-50-lb-18-x-24-inches-multiple-colors-60-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the chance to try out Fadeless Art Paper recently, and let me tell you, it was quite an experience. This paper boasts a smooth matte finish on one side, perfect for bringing out vivid colors while leaving the other side blank for tracing or other creative projects. 
 
@@ -224,9 +224,9 @@ However, this paper isn't without its drawbacks. While it was great for mounting
 Overall, Fadeless Art Paper is a solid choice for those looking for fade-resistant, vibrant hues in their art projects. It's particularly great for mounting artwork, origami, and block printing. However, it may not be the best option for product photography or other projects where a smooth, even surface is desired. 
 
 
-### [Colors of The World Premium Project Paper Pack](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=colors-of-the-world-premium-project-paper-pack)
+### [Colors of The World Premium Project Paper Pack](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=colors-of-the-world-premium-project-paper-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=colors-of-the-world-premium-project-paper-pack"><img alt="colors-of-the-world-premium-project-paper-48-sheets-per-pack-2-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colors-of-the-world-premium-project-paper-48-sheets-per-pack-2-packs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=colors-of-the-world-premium-project-paper-pack"><img alt="colors-of-the-world-premium-project-paper-48-sheets-per-pack-2-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/colors-of-the-world-premium-project-paper-48-sheets-per-pack-2-packs-1/h=540,fit=pad,background=black"/></a></div>
 
 The Colors of the World Premium Project Paper truly stands out in the world of art supplies with its vibrant array of colors. With each 48 sheet set, you'll find an assortment of hues that effortlessly pair with the brand's renowned Crayons, Markers, and Colored Pencils. 
 
@@ -242,9 +242,9 @@ Despite these minor drawbacks, the Colors of the World Premium Project Paper has
 ###
 
 
-### [Tru-Ray Heavyweight Arts and Crafts Paper - 12 x 9 - 50 Pack](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=tru-ray-heavyweight-arts-and-crafts-paper-12-x-9-50-pack)
+### [Tru-Ray Heavyweight Arts and Crafts Paper - 12 x 9 - 50 Pack](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=tru-ray-heavyweight-arts-and-crafts-paper-12-x-9-50-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=tru-ray-heavyweight-arts-and-crafts-paper-12-x-9-50-pack"><img alt="tru-ray-construction-paper-12-x-9-50-pack-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tru-ray-construction-paper-12-x-9-50-pack-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=tru-ray-heavyweight-arts-and-crafts-paper-12-x-9-50-pack"><img alt="tru-ray-construction-paper-12-x-9-50-pack-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tru-ray-construction-paper-12-x-9-50-pack-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Tru-Ray Construction Paper, a staple for arts and crafts enthusiasts alike. This black beauty boasts remarkable durability, providing an exceptional canvas for your creative journey. With superior fade resistance, your projects will retain their vibrant hues for a longer duration. And for those eco-conscious artists among us, delight in the knowledge that this paper is acid-free and can be easily recycled. 
 
@@ -255,9 +255,9 @@ In conclusion, this product brings an array of versatile benefits to the table, 
 So, if you're looking for an exquisite black construction paper that promises to deliver on both strength and style, Tru-Ray Construction Paper is a solid option. Just remember, with great power comes a bit more resistance when it comes to scoring. Overall, you can't go wrong incorporating this impressive product into your artistic toolkit. 
 
 
-### [High-Quality 100% Rag Watercolor Paper for Artists - Handmade, A3 Size, Rough Texture](https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm\_term=high-quality-100-rag-watercolor-paper-for-artists-handmade-a3-size-rough-texture)
+### [High-Quality 100% Rag Watercolor Paper for Artists - Handmade, A3 Size, Rough Texture](https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm\_term=high-quality-100-rag-watercolor-paper-for-artists-handmade-a3-size-rough-texture)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper?utm_term=high-quality-100-rag-watercolor-paper-for-artists-handmade-a3-size-rough-texture"><img alt="khadi-handmade-100-rag-watercolor-paper-320gsm-rough-20-sheets-pack-a3-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/khadi-handmade-100-rag-watercolor-paper-320gsm-rough-20-sheets-pack-a3-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper?utm_term=high-quality-100-rag-watercolor-paper-for-artists-handmade-a3-size-rough-texture"><img alt="khadi-handmade-100-rag-watercolor-paper-320gsm-rough-20-sheets-pack-a3-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/khadi-handmade-100-rag-watercolor-paper-320gsm-rough-20-sheets-pack-a3-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Khadi Handmade 100% Rag Watercolor Paper and decided to give it a try for my daily art projects. I've been using this paper for about two months now, and I have to say - it's a game-changer. 
 
@@ -281,7 +281,7 @@ Welcome to the buyer's guide for Arts and Crafts Paper! This comprehensive guide
 
 When choosing Arts and Crafts Paper, know that there are various types available on the market, each with its distinct characteristics and applications. Some popular types include construction paper, scrapbook paper, watercolor paper, and origami paper. Familiarize yourself with these types to determine which one best suits your needs. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-2/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-2/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-2" height="540"></a></div>
 
 
 ### Quality and Durability
@@ -293,7 +293,7 @@ Durability is a significant factor to consider when selecting Arts and Crafts Pa
 
 Arts and Crafts Paper comes in a wide range of designs and colors, making it easy to find one that suits your creative project. Consider the mood or theme of your project and choose a paper that complements your vision. Darker colors can create a more dramatic effect, while lighter colors can evoke a sense of calm and serenity. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-3/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-3/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-3" height="540"></a></div>
 
 
 ### Eco-Friendly and Sustainable Options
@@ -303,7 +303,7 @@ If you're conscious about environmental impact, look for Arts and Crafts Paper t
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-4/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-4/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-4" height="540"></a></div>
 
 
 ### What varieties of art and craft paper are on the market?
@@ -319,7 +319,7 @@ Art and craft papers come in two primary forms: acid-free and non-acid-free. Aci
 
 On the other hand, non-acid-free paper can deteriorate faster than acid-free paper, particularly when exposed to high levels of humidity or direct sunlight. However, non-acid-free paper is typically more affordable and may be more suitable for short-term projects or disposable items that don't require long-term preservation. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-5/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-5/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-5" height="540"></a></div>
 
 
 ### How can I store my art and craft papers to avoid damage?
@@ -335,7 +335,7 @@ The tools you select to work with your art and craft paper can significantly imp
 
 Paper trimmers and cutters come in different sizes, such as rotary, cutting mats, and guillotine cutters, and are designed for specific tasks. Scoring tools, like a bone folder or scoring blade, can help create neat folds by lightly scoring a line into the paper before folding it, without causing the paper to tear. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-6/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Arts+And+Crafts+Paper"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Arts-And-Crafts-Paper-6/h=540,fit=pad,background=black" alt="Arts-And-Crafts-Paper-6" height="540"></a></div>
 
 
 ### What are some art and craft paper projects I can try?

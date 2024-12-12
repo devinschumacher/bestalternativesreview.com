@@ -17,9 +17,9 @@ In this article, we delve into the world of Orange Amps, showcasing their divers
 ## Reviews
 
 
-### [Orange Crush Pix 12W Guitar Amp](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-pix-12w-guitar-amp)
+### [Orange Crush Pix 12W Guitar Amp](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-pix-12w-guitar-amp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-pix-12w-guitar-amp"><img alt="orange-cr12l-crush-pix-12w-guitar-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-cr12l-crush-pix-12w-guitar-combo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-pix-12w-guitar-amp"><img alt="orange-cr12l-crush-pix-12w-guitar-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-cr12l-crush-pix-12w-guitar-combo-1/h=540,fit=pad,background=black"/></a></div>
 
 As a guitarist, I often find myself in need of a flexible and versatile practice amp. The Orange CR12L Crush Pix hit all the right notes for me - its compact size and lightweight build were perfect for my apartment with limited space. 
 
@@ -32,9 +32,9 @@ One downside I noticed was that the amp didn't feature any effects. However, thi
 Overall, the Orange CR12L Crush Pix was an excellent practice amp that fit seamlessly into my daily life. Its iconic orange casing added the perfect touch to my guitar setup, and I would definitely recommend it to others searching for an affordable yet high-quality amp for practice sessions. 
 
 
-### [Orange Crush Acoustic 30 Guitar Amp - Black](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-acoustic-30-guitar-amp-black)
+### [Orange Crush Acoustic 30 Guitar Amp - Black](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-acoustic-30-guitar-amp-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-acoustic-30-guitar-amp-black"><img alt="orange-crush-acoustic-30-guitar-combo-amp-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-acoustic-30-guitar-combo-amp-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-acoustic-30-guitar-amp-black"><img alt="orange-crush-acoustic-30-guitar-combo-amp-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-acoustic-30-guitar-combo-amp-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I came across the Orange Crush Acoustic 30 during a quest for the perfect sound companion on the go. With 30 watts of power, this sleek amp proved to be an adept auditory companion, designed specifically for acoustic guitar enthusiasts. 
 
@@ -47,18 +47,18 @@ However, as someone who constantly values battery-saving equipment, I found the 
 In conclusion, the Orange Crush Acoustic 30 strikes the perfect balance between power, portability, and clarity, making it an excellent choice for the modern musician. Despite a few minor drawbacks, it has become an indispensable part of my daily musical arsenal. 
 
 
-### [Orange Crush Mini Amp: 8-Inch Guitar Speaker with 3-Watt Output](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-mini-amp-8-inch-guitar-speaker-with-3-watt-output)
+### [Orange Crush Mini Amp: 8-Inch Guitar Speaker with 3-Watt Output](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-mini-amp-8-inch-guitar-speaker-with-3-watt-output)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-mini-amp-8-inch-guitar-speaker-with-3-watt-output"><img alt="orange-crush-mini-3-watt-1x4-guitar-combo-orange-2022" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-mini-3-watt-1x4-guitar-combo-orange-2022/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-mini-amp-8-inch-guitar-speaker-with-3-watt-output"><img alt="orange-crush-mini-3-watt-1x4-guitar-combo-orange-2022" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-mini-3-watt-1x4-guitar-combo-orange-2022/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Crush Mini is a 3-watt battery-powered amp that lets you enjoy classic Orange tone on the go. With a versatile, simple control panel, you can easily switch between different tones and gain levels. The built-in tuner and option to plug into a 2x10 external speaker cabinet make it a great companion for practice sessions or outdoor performances. 
 
 However, the Orange Crush Mini requires an external power source, which can be a drawback for some users. Overall, it's a compact and practical amp that offers a decent sound quality for the price. 
 
 
-### [Orange CS50 Custom Shop Guitar Amp Head - Class A/B Versatility and Superb Sound Quality](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-cs50-custom-shop-guitar-amp-head-class-a-b-versatility-and-superb-sound-quality)
+### [Orange CS50 Custom Shop Guitar Amp Head - Class A/B Versatility and Superb Sound Quality](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-cs50-custom-shop-guitar-amp-head-class-a-b-versatility-and-superb-sound-quality)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-cs50-custom-shop-guitar-amp-head-class-a-b-versatility-and-superb-sound-quality"><img alt="orange-cs50-custom-shop-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-cs50-custom-shop-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-cs50-custom-shop-guitar-amp-head-class-a-b-versatility-and-superb-sound-quality"><img alt="orange-cs50-custom-shop-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-cs50-custom-shop-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on an Orange CS50 Custom Shop Guitar Amp Head, and it's been a game-changer in my daily life. Right out of the box, I noticed how the cosmetics looked like they were in pristine condition. 
 
@@ -67,9 +67,9 @@ The Orange Amps have always been known for their legendary tone, but this head t
 However, no product is perfect. While the amp is great for those seeking volume control without sacrificing sound quality, the 30 watt mode might be a bit deceiving as it can sound just as loud, if not louder, as the 50 watt setting. But overall, the Orange CS50 hits all the right notes for guitar enthusiasts, and it's well worth the investment. 
 
 
-### [Orange DT30H Dual Terror Guitar Amp Head](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-dt30h-dual-terror-guitar-amp-head)
+### [Orange DT30H Dual Terror Guitar Amp Head](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-dt30h-dual-terror-guitar-amp-head)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-dt30h-dual-terror-guitar-amp-head"><img alt="orange-dt30h-dual-terror-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-dt30h-dual-terror-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-dt30h-dual-terror-guitar-amp-head"><img alt="orange-dt30h-dual-terror-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-dt30h-dual-terror-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Orange DT30H Dual Terror Guitar Amp Head, and let me tell you, it was a game-changer. The independent volume, tone, and gain controls for each channel made it incredibly easy to fine-tune my sound, and the 1.5mm Zintec chassis with steel vented top case added a touch of durability to the mix. 
 
@@ -80,18 +80,18 @@ Although the DT30H Dual Terror comes with a padded gig bag included, I would hav
 Overall, the Orange DT30H Dual Terror Guitar Amp Head exceeded my expectations. Its unique two-stage preamp, versatile power options, and classic Orange sound made it an impressive addition to my guitar setup. If you're looking for a versatile and high-quality amp head, this one definitely deserves a spot on your shortlist. 
 
 
-### [Orange Crush 12 Combo Guitar Amp](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-12-combo-guitar-amp)
+### [Orange Crush 12 Combo Guitar Amp](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-12-combo-guitar-amp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-12-combo-guitar-amp"><img alt="orange-crush-12-combo-amplifier-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-12-combo-amplifier-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-12-combo-guitar-amp"><img alt="orange-crush-12-combo-amplifier-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-12-combo-amplifier-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Crush 12 Combo Amplifier is a fantastic little powerhouse, perfect for any player looking for a great Orange tone without disturbing the peace. With three-band EQ, master Volume, Gain, and a switchable Overdrive circuit, this versatile amp caters to all your guitar-playing needs. 
 
 Plus, the headphone out allows you to practice at any hour, making it a great pick for quiet practice sessions. And, the approximate 12 lbs weight, 6" speaker, and compact design make it easy to transport and carry. 
 
 
-### [Orange OR30 30-Watt Guitar Amp Head](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-or30-30-watt-guitar-amp-head)
+### [Orange OR30 30-Watt Guitar Amp Head](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-or30-30-watt-guitar-amp-head)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-or30-30-watt-guitar-amp-head"><img alt="orange-or30-30-watt-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-or30-30-watt-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-or30-30-watt-guitar-amp-head"><img alt="orange-or30-30-watt-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-or30-30-watt-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the brilliance of your notes with this Orange OR30 30-Watt Guitar Amp Head. Unleash its incredible volume and remarkable flexibility, allowing you to achieve a wide range of sounds. 
 
@@ -100,9 +100,9 @@ With the Bright Switch feature, you can enhance the high frequencies and let you
 This Orange Amps head is in excellent condition, with the original box and can be picked up in Bristol or couriered insured via DCS. 
 
 
-### [Orange Micro Dark Terror 20W Guitar Amp](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-micro-dark-terror-20w-guitar-amp)
+### [Orange Micro Dark Terror 20W Guitar Amp](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-micro-dark-terror-20w-guitar-amp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-micro-dark-terror-20w-guitar-amp"><img alt="orange-micro-dark-terror-20-w-guitar-head-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-micro-dark-terror-20-w-guitar-head-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-micro-dark-terror-20w-guitar-amp"><img alt="orange-micro-dark-terror-20-w-guitar-head-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-micro-dark-terror-20-w-guitar-head-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Micro Dark is a compact and powerful guitar amplifier head that's perfect for musicians on the go. With a wattage of 20W, this amp delivers a hybrid sound that's both rich and versatile. It features one 12AX7 pre-amp tube and can handle a range of impedances from 8-16 ohms, making it a great choice for various guitar setups. The amp's controls are simple, with gain, shape, and volume knobs, allowing for easy tweaking of your sound. 
 
@@ -113,9 +113,9 @@ While the Orange Micro Dark has its advantages, there are a few drawbacks to con
 Overall, the Orange Micro Dark is a versatile and compact amp that's great for musicians looking for a solid sound without breaking the bank. Its hybrid design provides a wide range of tones, from clean to brutal distortion, and its durable build makes it a reliable choice for gigging or practice. 
 
 
-### [Orange TH30H Tube Guitar Amp Head: High-Power 30W Orange Amp](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-th30h-tube-guitar-amp-head-high-power-30w-orange-amp)
+### [Orange TH30H Tube Guitar Amp Head: High-Power 30W Orange Amp](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-th30h-tube-guitar-amp-head-high-power-30w-orange-amp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-th30h-tube-guitar-amp-head-high-power-30w-orange-amp"><img alt="orange-th30h-tube-guitar-amp-head-30-w-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-th30h-tube-guitar-amp-head-30-w-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-th30h-tube-guitar-amp-head-high-power-30w-orange-amp"><img alt="orange-th30h-tube-guitar-amp-head-30-w-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-th30h-tube-guitar-amp-head-30-w-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of using the Orange TH30H Tube Guitar Amp Head, and it's been a game-changer for my studio environment. With its phenomenal tonal range, this little gem offers a fantastic range of sounds that would make any musician's heart sing. 
 
@@ -126,9 +126,9 @@ Despite being in great condition with only a few small use marks, there are a co
 Overall, the Orange TH30H Tube Guitar Amp Head has been an absolute pleasure to use, and I'd highly recommend it to any guitar enthusiast, regardless of skill or style level. 
 
 
-### [Orange Crush Bass 25 Black Amplifier Combo - Powerful and Portable Miniature Rig](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-bass-25-black-amplifier-combo-powerful-and-portable-miniature-rig)
+### [Orange Crush Bass 25 Black Amplifier Combo - Powerful and Portable Miniature Rig](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-bass-25-black-amplifier-combo-powerful-and-portable-miniature-rig)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-bass-25-black-amplifier-combo-powerful-and-portable-miniature-rig"><img alt="orange-crush-bass-25-black-amplifier-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-bass-25-black-amplifier-combo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-bass-25-black-amplifier-combo-powerful-and-portable-miniature-rig"><img alt="orange-crush-bass-25-black-amplifier-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-bass-25-black-amplifier-combo-1/h=540,fit=pad,background=black"/></a></div>
 
 Orange's Crush Bass 25 amp combo is a compact, yet powerful little workhorse for any bass player on the go. I recently purchased this amp to practice at home, and boy, was I impressed with the punch it packs. 
 
@@ -141,18 +141,18 @@ The Crush Bass 25 also comes with an integrated tuner, an auxiliary input for ba
 Considering its portability and the wide range of tones you can achieve, this amp is a great investment for any bass player looking for a reliable, practice-friendly setup. Even though it's relatively low powered in comparison to other amps on the market, it still delivers a powerful and satisfying sound that will leave you craving more. Overall, I would highly recommend the Orange Crush Bass 25 to anyone looking for a compact yet powerful amp to enhance their practice routine. 
 
 
-### [Orange Amps Crush35RT Amplifier Part](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-amps-crush35rt-amplifier-part)
+### [Orange Amps Crush35RT Amplifier Part](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-amps-crush35rt-amplifier-part)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-amps-crush35rt-amplifier-part"><img alt="orange-amps-amplifier-part-crush35rt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-amps-amplifier-part-crush35rt-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-amps-crush35rt-amplifier-part"><img alt="orange-amps-amplifier-part-crush35rt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-amps-amplifier-part-crush35rt-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrill of gut-punching tones with the Orange Crush 35RT guitar combo amplifier, expertly tailored for guitar enthusiasts seeking those high-responsive overdrive and detailed saturation. Boasting a twin channel design with a high-gain preamp, this amplifier delivers gigantic, versatile tones reminiscent of the old school, no-nonsense guitar amplifiers. The Orange Crush 35RT offers a unique blend of clean and overdriven sounds, along with Oranges innovative CabSim circuit that faithfully emulates the sound of a 4x12 inch Orange cabinet, right out of its headphone/line output. 
 
 The Crush 35RT has an on-board tuner and reverb, providing endless hours of practice enjoyment. Furthermore, it boasts an onboard tuner and reverb, giving guitar players the freedom to explore new sounds and configurations. It also features a fully-buffered and low-impedance effects loop, providing you with the perfect platform to showcase your choice of footpedals. With its solid build quality, compact yet sturdy design, and top-notch sound performance, the Orange Crush 35RT is the perfect guitar combo amplifier for players of all skill levels and music genres. 
 
 
-### [Portable Orange Crush 20RT Guitar Amp with Reverb and Tuner](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=portable-orange-crush-20rt-guitar-amp-with-reverb-and-tuner)
+### [Portable Orange Crush 20RT Guitar Amp with Reverb and Tuner](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=portable-orange-crush-20rt-guitar-amp-with-reverb-and-tuner)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=portable-orange-crush-20rt-guitar-amp-with-reverb-and-tuner"><img alt="orange-crush-20rt-20-watt-guitar-combo-amplifier-bundle-with-instrument-cable-and-austin-bazaar-poli-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20rt-20-watt-guitar-combo-amplifier-bundle-with-instrument-cable-and-austin-bazaar-poli-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=portable-orange-crush-20rt-guitar-amp-with-reverb-and-tuner"><img alt="orange-crush-20rt-20-watt-guitar-combo-amplifier-bundle-with-instrument-cable-and-austin-bazaar-poli-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20rt-20-watt-guitar-combo-amplifier-bundle-with-instrument-cable-and-austin-bazaar-poli-1/h=540,fit=pad,background=black"/></a></div>
 
 Orange Crush 20RT amplifier, a perfect companion for musicians on the go. I was pleasantly surprised by the depth and richness of its sound, making it a standout choice among other practice amps. 
 
@@ -161,18 +161,18 @@ The onboard reverb and chromatic tuner also made tuning a breeze. Its small size
 However, an effects loop would have been a great addition, as it would have given users more flexibility to tweak their sound. Overall, an excellent choice for beginners in need of a reliable, high-quality practice amp. 
 
 
-### [Orange CRUSH12 - Powerful Portable Guitar Amp with Quality Build and Distinctive Tones](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush12-powerful-portable-guitar-amp-with-quality-build-and-distinctive-tones)
+### [Orange CRUSH12 - Powerful Portable Guitar Amp with Quality Build and Distinctive Tones](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush12-powerful-portable-guitar-amp-with-quality-build-and-distinctive-tones)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush12-powerful-portable-guitar-amp-with-quality-build-and-distinctive-tones"><img alt="orange-crush12-12-watt-guitar-amp-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush12-12-watt-guitar-amp-combo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush12-powerful-portable-guitar-amp-with-quality-build-and-distinctive-tones"><img alt="orange-crush12-12-watt-guitar-amp-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush12-12-watt-guitar-amp-combo-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Crush 12 is a powerful 12-watt guitar amp combo that offers rich, organic tones for guitarists on the go. Featuring a classic Orange visual styling and a responsive overdrive, this combo amp allows for detailed levels of saturation through its Analog circuit. With a 3 band EQ and dedicated Overdrive control, it's capable of producing a wide range of tones from crisp and clean to vintage Orange grind. 
 
 The Crush 12's custom 6-inch Voice of the World speaker ensures the amp remains punchy and articulate, even in its compact size. This versatile and portable amp is perfect for guitarists seeking high-quality sound, making it an excellent choice for practice, live performances, and studio use. 
 
 
-### [Orange Crush12 Guitar Combo Amplifier - Full Analogue, Powerful 3-Band EQ, Custom Tone](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush12-guitar-combo-amplifier-full-analogue-powerful-3-band-eq-custom-tone)
+### [Orange Crush12 Guitar Combo Amplifier - Full Analogue, Powerful 3-Band EQ, Custom Tone](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush12-guitar-combo-amplifier-full-analogue-powerful-3-band-eq-custom-tone)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush12-guitar-combo-amplifier-full-analogue-powerful-3-band-eq-custom-tone"><img alt="orange-amplifiers-crush12-guitar-combo-amplifier-orange-12w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-amplifiers-crush12-guitar-combo-amplifier-orange-12w-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush12-guitar-combo-amplifier-full-analogue-powerful-3-band-eq-custom-tone"><img alt="orange-amplifiers-crush12-guitar-combo-amplifier-orange-12w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-amplifiers-crush12-guitar-combo-amplifier-orange-12w-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Crush 12 Guitar Combo Amplifier is a powerful little amplifier designed for guitarists who are all about quality tone. With its 3-band EQ and dedicated overdrive control, this amp produces rich, full-bodied sound that is surprisingly loud for such a small unit. The CabSim-loaded headphone output allows you to enjoy huge tones at whisper-quiet levels, making it perfect for practice, songwriting, or simply playing in your spare room. 
 
@@ -183,9 +183,9 @@ The control panel is simple and intuitive, making it easy to dial in your desire
 Overall, the Orange Crush 12 Guitar Combo Amplifier is a fantastic choice for anyone looking for a high-quality practice amp that doesn't break the bank. Its small size makes it easy to store and transport, while its powerful sound and intuitive control panel make it a joy to play. One downside is that the small 6-inch speaker can struggle a bit when the gain and overdrive are cranked all the way up, but for most players, this won't be an issue. Highly recommended. 
 
 
-### [Powerful Orange Super Crush 100 Guitar Head for Live Performances](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=powerful-orange-super-crush-100-guitar-head-for-live-performances)
+### [Powerful Orange Super Crush 100 Guitar Head for Live Performances](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=powerful-orange-super-crush-100-guitar-head-for-live-performances)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=powerful-orange-super-crush-100-guitar-head-for-live-performances"><img alt="orange-super-crush-100-guitar-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-super-crush-100-guitar-head-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=powerful-orange-super-crush-100-guitar-head-for-live-performances"><img alt="orange-super-crush-100-guitar-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-super-crush-100-guitar-head-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orange Super Crush 100 Guitar Head was my recent addition to the guitar arsenal, and it's been nothing short of a sonic journey. The first thing I noticed was the powerful tube emulation - it makes playing clean and overdriven tones feel almost as if I'm using a valve amp. It's a fantastic feature, and I can't help but feel that it adds warmth to the overall sound. 
 
@@ -198,9 +198,9 @@ The balanced XLR output with CabSim speaker emulation is also a standout feature
 In conclusion, the Orange Super Crush 100 Guitar Head is not only a powerful and versatile amp, but it also delivers a top-notch tone that rivals even the most high-end valve amps. Despite its weight, it's definitely worth the investment for any serious guitarist. 
 
 
-### [Orange Crush 20 Guitar Amplifier: Vintage Tones and Customizable Channels](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-20-guitar-amplifier-vintage-tones-and-customizable-channels)
+### [Orange Crush 20 Guitar Amplifier: Vintage Tones and Customizable Channels](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-20-guitar-amplifier-vintage-tones-and-customizable-channels)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-20-guitar-amplifier-vintage-tones-and-customizable-channels"><img alt="orange-crush-20-combo-guitar-amplifier-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20-combo-guitar-amplifier-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-20-guitar-amplifier-vintage-tones-and-customizable-channels"><img alt="orange-crush-20-combo-guitar-amplifier-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20-combo-guitar-amplifier-1/h=540,fit=pad,background=black"/></a></div>
 
 I decided to give the Orange Crush 20 Combo Guitar Amplifier a try, and let me tell you, I was not disappointed! As soon as I plugged my guitar into it, I felt an immediate rush of excitement from its gut-punching tones. 
 
@@ -213,9 +213,9 @@ Now, I'll be honest, I did have one minor issue with the Crush 20. There was a b
 Overall, my experience with the Orange Crush 20 Combo Guitar Amplifier was nothing short of amazing. The wide-ranging tones, the compact design, and the warm analog sound made it a great addition to my daily guitar routine. 
 
 
-### [Orange Crush Mini Portable Guitar Amplifier](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-mini-portable-guitar-amplifier)
+### [Orange Crush Mini Portable Guitar Amplifier](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-mini-portable-guitar-amplifier)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-mini-portable-guitar-amplifier"><img alt="orange-crush-mini-guitar-combo-amp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-mini-guitar-combo-amp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-mini-portable-guitar-amplifier"><img alt="orange-crush-mini-guitar-combo-amp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-mini-guitar-combo-amp-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Orange Crush Mini, and I must say, I was impressed by this little amp's sound and versatility. Compact and lightweight, it's perfect for practicing at home or on the go. The three controls – volume, shape, and gain – allow you to easily dial in a wide range of tones without spending too much time adjusting. 
 
@@ -226,9 +226,9 @@ As I was testing the Orange Crush Mini, I was pleased to find its built-in tuner
 However, there were a couple of drawbacks I noticed. The small 4-inch speaker can be a bit tinny at times, and the battery life isn't the longest. But overall, the Orange Crush Mini is a solid, powerful, and versatile practice amp with a decent tone. 
 
 
-### [Orange Super Crush 100 Combo: Powerful Tube-Emulation Amp with Versatile Tone Shaping](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-super-crush-100-combo-powerful-tube-emulation-amp-with-versatile-tone-shaping)
+### [Orange Super Crush 100 Combo: Powerful Tube-Emulation Amp with Versatile Tone Shaping](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-super-crush-100-combo-powerful-tube-emulation-amp-with-versatile-tone-shaping)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-super-crush-100-combo-powerful-tube-emulation-amp-with-versatile-tone-shaping"><img alt="orange-super-crush-100-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-super-crush-100-combo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-super-crush-100-combo-powerful-tube-emulation-amp-with-versatile-tone-shaping"><img alt="orange-super-crush-100-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-super-crush-100-combo-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Orange Super Crush 100 Combo Amp, and I must say, I was pleasantly surprised by its performance. The tube-like tones it produces despite being a solid-state amp are quite impressive. The two-channel JFET preamp and all-analog circuitry work together seamlessly to create a range of clean and dirty sounds that are incredibly responsive to your touch. 
 
@@ -239,9 +239,9 @@ The reverb is another highlight, with a lush, spring-like effect that adds depth
 While there's nothing to complain about the Orange Super Crush 100 Combo in terms of sound quality, I did notice that its weight might be a drawback for some musicians during setup or transportation. However, overall, I'd highly recommend this amp for its powerful tones, versatility, and ease of use. It's a fantastic option for guitarists seeking an authentic tube-like sound without the hassle of maintaining valves. 
 
 
-### [Orange Crush 20RT Guitar Amp - 20W Orange Sound](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=orange-crush-20rt-guitar-amp-20w-orange-sound)
+### [Orange Crush 20RT Guitar Amp - 20W Orange Sound](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=orange-crush-20rt-guitar-amp-20w-orange-sound)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=orange-crush-20rt-guitar-amp-20w-orange-sound"><img alt="orange-crush-20rt-guitar-combo-amplifier-20w-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20rt-guitar-combo-amplifier-20w-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=orange-crush-20rt-guitar-amp-20w-orange-sound"><img alt="orange-crush-20rt-guitar-combo-amplifier-20w-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-crush-20rt-guitar-combo-amplifier-20w-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Orange Crush 20RT Guitar Combo Amplifier, and it's quickly become my go-to practice amp. The first thing that caught my attention was its compact size and lightweight design, making it perfect for those frequent trips back and forth to friends' houses or different jam sessions. 
 
@@ -252,9 +252,9 @@ The addition of an integrated chromatic tuner and a digital reverb module really
 Overall, the Orange Crush 20RT is a fantastic amp for beginners or those who appreciate a portable, high-quality practice amp that's both powerful and easy to use. Its classic Orange tone, quality build, and attractive design have certainly made it a staple in my collection. 
 
 
-### [Portable and Powerful Orange Micro Terror Guitar Amp](https://serp.ly/@outrun/amazon/Orange+Amps?utm\_term=portable-and-powerful-orange-micro-terror-guitar-amp)
+### [Portable and Powerful Orange Micro Terror Guitar Amp](https://serp.ly/@bar/amazon/Orange+Amps?utm\_term=portable-and-powerful-orange-micro-terror-guitar-amp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Orange+Amps?utm_term=portable-and-powerful-orange-micro-terror-guitar-amp"><img alt="orange-micro-terror-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-micro-terror-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Orange+Amps?utm_term=portable-and-powerful-orange-micro-terror-guitar-amp"><img alt="orange-micro-terror-guitar-amp-head-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/orange-micro-terror-guitar-amp-head-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of using the Orange Micro Terror Guitar Amp Head, and to say it exceeded my expectations would be an understatement. This little powerhouse of an amp packs a punch much larger than its diminutive size suggests. 
 

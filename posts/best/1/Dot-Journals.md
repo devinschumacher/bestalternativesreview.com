@@ -15,9 +15,9 @@ Welcome to our roundup of Dot Journals, a collection of beautifully designed and
 ## Reviews
 
 
-### [Artist's Loft Taupe Dot Journal](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=artists-loft-taupe-dot-journal)
+### [Artist's Loft Taupe Dot Journal](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=artists-loft-taupe-dot-journal)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=artists-loft-taupe-dot-journal"><img alt="artists-loft-taupe-dot-journal-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artists-loft-taupe-dot-journal-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=artists-loft-taupe-dot-journal"><img alt="artists-loft-taupe-dot-journal-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artists-loft-taupe-dot-journal-each-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Artist's Loft Taupe Dot Journal and it has been a game-changer for my daily life. The journal's vibrant taupe cover exudes elegance and is perfect for organizing my thoughts and planning. I appreciate the 180 pages dotted with tiny circles that make drafting neat and orderly content a breeze. 
 
@@ -26,9 +26,9 @@ The dotted paper and the two sturdy elastic bookmarks with ribbons are thoughtfu
 However, one downside is that the dotted paper can be a bit stubborn and difficult to write on, especially if you use thin or felt-tip pens. Also, some highlighters can cause the ink to bleed through, but it's something I can overlook considering the low price point. Overall, the Artist's Loft Taupe Dot Journal makes a perfect companion for those who cherish order and style in their journals. Give it a try and discover its charm! 
 
 
-### [Colorful Dot Journal with Pocket by Artist's Loft](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=colorful-dot-journal-with-pocket-by-artists-loft)
+### [Colorful Dot Journal with Pocket by Artist's Loft](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=colorful-dot-journal-with-pocket-by-artists-loft)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=colorful-dot-journal-with-pocket-by-artists-loft"><img alt="hardcover-dot-journal-with-pocket-by-artists-loft-6-x-8-in-blush-michaels-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hardcover-dot-journal-with-pocket-by-artists-loft-6-x-8-in-blush-michaels-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=colorful-dot-journal-with-pocket-by-artists-loft"><img alt="hardcover-dot-journal-with-pocket-by-artists-loft-6-x-8-in-blush-michaels-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hardcover-dot-journal-with-pocket-by-artists-loft-6-x-8-in-blush-michaels-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Hardcover Dot Journal with Pocket by Artist's Loft - a perfect addition to your creative arsenal. Available in various colors, this versatile journal boasts a dimension of 6-in x 8-in (15.24cm x 20.32cm) and is made of 80 lb/ 120 gsm paper, providing both durability and smoothness for your writing needs. Offering 180 pages of dotted paper, it seamlessly caters to your bullet journaling or doodle-lover spirit. 
 
@@ -37,36 +37,36 @@ Adorned with a hard PU cover and exuding a delightful blush hue, this journal fe
 Though some users have reported concerns regarding ink bleed-through when using highlighters, this journal's overall value and functionality make it an outstanding choice for bullet journaling, doodling, or any creative endeavors you may have in mind. Happy crafting! 
 
 
-### [Dot Grid Paper: Premium 100 Page Notebook, 8.5" x 11](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=dot-grid-paper-premium-100-page-notebook-8-5-x-11)
+### [Dot Grid Paper: Premium 100 Page Notebook, 8.5" x 11](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=dot-grid-paper-premium-100-page-notebook-8-5-x-11)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=dot-grid-paper-premium-100-page-notebook-8-5-x-11"><img alt="dot-grid-paper-100-pages-8-5-x-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-grid-paper-100-pages-8-5-x-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=dot-grid-paper-premium-100-page-notebook-8-5-x-11"><img alt="dot-grid-paper-100-pages-8-5-x-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-grid-paper-100-pages-8-5-x-11-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Dot Grid Paper and couldn't resist giving it a try. What stood out to me was its flexibility – it's not just for bullet journaling, but can also be used for design, creating your own bullet-style journals, drawing, pen and paper games, and more. I particularly enjoyed the simplicity of connecting the dots to create boxes and tables for organizing my tasks. 
 
 However, I did find that the paper itself was quite thin, which caused some ink bleed-through when I wrote with a fountain pen. All in all, for the versatility it provides, I'd say this Dot Grid Paper is a must-have addition to any stationery enthusiast's collection. 
 
 
-### [Dot Journal: Gold Edition - Organize Your Life with Style](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=dot-journal-gold-edition-organize-your-life-with-style)
+### [Dot Journal: Gold Edition - Organize Your Life with Style](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=dot-journal-gold-edition-organize-your-life-with-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=dot-journal-gold-edition-organize-your-life-with-style"><img alt="dot-journal-gold-your-key-to-an-organized-purposeful-and-creative-life-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-journal-gold-your-key-to-an-organized-purposeful-and-creative-life-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=dot-journal-gold-edition-organize-your-life-with-style"><img alt="dot-journal-gold-your-key-to-an-organized-purposeful-and-creative-life-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-journal-gold-your-key-to-an-organized-purposeful-and-creative-life-1/h=540,fit=pad,background=black"/></a></div>
 
 This Dot Journal, a stunning gold-colored alternative to its chic black sibling, is your ultimate key to an organized, purposeful, and creative life. With its acid-free opaque paper that won't bleed through, this notebook lets you jot down all your thoughts and memories without fear of smudging. The durable stain-resistant cover ensures that your journal remains pristine, while the lay-flat binding allows for smooth, effortless writing. 
 
 An expandable pocket folder is thoughtfully included within the journal to store important documents or notes, and the ribbon marker makes it easy to keep track of your progress. The elastic band closure adds a touch of elegance to this versatile journal, perfect for planning, listing, chronicling, setting goals, charting, note-taking, indexing, sketching, and free-writing. Embrace the simplicity of dot journaling and make every moment count with this sleek and stylish companion to your daily life. 
 
 
-### [Art Alternatives Dotted Graph Swiss Dot Violet Journal](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=art-alternatives-dotted-graph-swiss-dot-violet-journal)
+### [Art Alternatives Dotted Graph Swiss Dot Violet Journal](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=art-alternatives-dotted-graph-swiss-dot-violet-journal)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=art-alternatives-dotted-graph-swiss-dot-violet-journal"><img alt="art-alternatives-fashion-journal-dotted-graph-6-inch-x-8-inch-swiss-dot-violet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/art-alternatives-fashion-journal-dotted-graph-6-inch-x-8-inch-swiss-dot-violet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=art-alternatives-dotted-graph-swiss-dot-violet-journal"><img alt="art-alternatives-fashion-journal-dotted-graph-6-inch-x-8-inch-swiss-dot-violet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/art-alternatives-fashion-journal-dotted-graph-6-inch-x-8-inch-swiss-dot-violet-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience a unique blend of style and creativity with Art Alternatives' Fashion Journal. Crafted with a vibrant Swiss Dot Violet cover and dotted graph pages, this 6-inch by 8-inch journal is perfect for capturing your thoughts and artistic expressions. 
 
 The 192-page dotted graph paper ensures smooth writing, while the open-spine binding exudes an air of elegance. The journal's convenient size and high-quality construction lend it versatility for everyday use or as a thoughtful gift for someone looking to showcase their fashion-forward side. 
 
 
-### [Clever Fox Compact Dot Grid Journal for Planners and Sketchers](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=clever-fox-compact-dot-grid-journal-for-planners-and-sketchers)
+### [Clever Fox Compact Dot Grid Journal for Planners and Sketchers](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=clever-fox-compact-dot-grid-journal-for-planners-and-sketchers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=clever-fox-compact-dot-grid-journal-for-planners-and-sketchers"><img alt="clever-fox-dotted-journal-2-0-compact-planning-and-sketching-dot-grid-notebook-120-gsm-thick-no-blee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clever-fox-dotted-journal-2-0-compact-planning-and-sketching-dot-grid-notebook-120-gsm-thick-no-blee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=clever-fox-compact-dot-grid-journal-for-planners-and-sketchers"><img alt="clever-fox-dotted-journal-2-0-compact-planning-and-sketching-dot-grid-notebook-120-gsm-thick-no-blee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clever-fox-dotted-journal-2-0-compact-planning-and-sketching-dot-grid-notebook-120-gsm-thick-no-blee-1/h=540,fit=pad,background=black"/></a></div>
 
 Over the past few months, I've been using the Clever Fox Dotted Journal 2.0, and I must say, it has been a fantastic addition to my daily life. The dotted grid layout has made planning and journaling a breeze, and the 5mm space between the dots is perfect for comfortable writing, drawing, or even doodling. 
 
@@ -77,18 +77,18 @@ However, there were a couple of minor drawbacks to using this journal. Firstly, 
 In conclusion, despite a couple of minor drawbacks, the Clever Fox Dotted Journal 2.0 has proven to be a reliable and functional companion in my daily life. Its many practical features, combined with its portability and comfortable use, make it an excellent choice for anyone looking for a versatile and portable dotted journal. 
 
 
-### [A5 Tarot Hand Charcoal Dot Grid Journal](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=a5-tarot-hand-charcoal-dot-grid-journal)
+### [A5 Tarot Hand Charcoal Dot Grid Journal](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=a5-tarot-hand-charcoal-dot-grid-journal)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=a5-tarot-hand-charcoal-dot-grid-journal"><img alt="a5-dot-grid-journal-tarot-hand-charcoal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a5-dot-grid-journal-tarot-hand-charcoal-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=a5-tarot-hand-charcoal-dot-grid-journal"><img alt="a5-dot-grid-journal-tarot-hand-charcoal-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a5-dot-grid-journal-tarot-hand-charcoal-1/h=540,fit=pad,background=black"/></a></div>
 
 Writing in the soft vegan-leather bound Tarot Hand Charcoal dot grid journal felt like a breath of fresh air. The white extra thick paper inside prevented any bleed-through, making it a heaven for artists and note-takers alike. The tarot emblem added a touch of uniqueness to the otherwise simple classic black cover. The grid guide came in handy for keeping my thoughts organized and the bookmark made it easy to navigate through the pages. 
 
 However, the journal did not stay flat when I tried to write across a double page spread, which was a minor inconvenience. Despite this, the journal's overall quality and design were more than satisfactory, making it a worthy addition to my daily routine. 
 
 
-### [Practical Dot Journal by Constellations for Organization and Writing](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=practical-dot-journal-by-constellations-for-organization-and-writing)
+### [Practical Dot Journal by Constellations for Organization and Writing](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=practical-dot-journal-by-constellations-for-organization-and-writing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=practical-dot-journal-by-constellations-for-organization-and-writing"><img alt="constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=practical-dot-journal-by-constellations-for-organization-and-writing"><img alt="constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, the Constellations A5 Dotted Hardcover Journal is a perfect companion for my daily journaling and writing needs. The classic leather cover not only looks great but also provides durability and protection from accidental damages. The golden constellation patterns on the surface make the notebook comfortable to touch, and the rounded corner design ensures it won't easily get scratched. 
 
@@ -99,9 +99,9 @@ Moreover, the dotted journal helps me maintain a balance between structure and c
 The hardcover and leather design makes this journal a great birthday, Halloween, or Christmas gift for family and friends. It's also an ideal back-to-college gift for yourself or someone who loves to write, journal, or draw. Overall, the Constellations A5 Dotted Hardcover Journal surpassed my expectations, and I highly recommend it for anyone looking for a durable, quality notebook with plenty of versatile features. 
 
 
-### [Iroful A5 Dot Grid Notebook](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=iroful-a5-dot-grid-notebook)
+### [Iroful A5 Dot Grid Notebook](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=iroful-a5-dot-grid-notebook)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=iroful-a5-dot-grid-notebook"><img alt="sakae-iroful-a5-notebook-dot-grid-white-160-pages-a5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sakae-iroful-a5-notebook-dot-grid-white-160-pages-a5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=iroful-a5-dot-grid-notebook"><img alt="sakae-iroful-a5-notebook-dot-grid-white-160-pages-a5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sakae-iroful-a5-notebook-dot-grid-white-160-pages-a5-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Sakae Iroful A5 Notebook, and I have to say, I was impressed by its features. The size of the notebook, at 5.8 x 8.3 inches, allowed for easy use and portability. The paper itself, made from Sakae Technical Paper, had an exquisite quality that truly enhanced the ink's vibrancy and clarity. 
 
@@ -110,9 +110,9 @@ One standout feature was the unique 5mm dot grid, which not only reduced ink los
 However, I found that the notebook was not refillable, which might be a downside for those who prefer reusable products. But overall, despite this minor inconvenience, the Sakae Iroful A5 Notebook proved to be a reliable, high-quality choice for any creative expression. 
 
 
-### [Books & Flowers Dot Grid Notebook - Archer and Olive](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=books-flowers-dot-grid-notebook-archer-and-olive)
+### [Books & Flowers Dot Grid Notebook - Archer and Olive](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=books-flowers-dot-grid-notebook-archer-and-olive)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=books-flowers-dot-grid-notebook-archer-and-olive"><img alt="books-flowers-dot-grid-notebook-by-archer-and-olive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/books-flowers-dot-grid-notebook-by-archer-and-olive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=books-flowers-dot-grid-notebook-archer-and-olive"><img alt="books-flowers-dot-grid-notebook-by-archer-and-olive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/books-flowers-dot-grid-notebook-by-archer-and-olive-1/h=540,fit=pad,background=black"/></a></div>
 
 The Books & Flowers Dot Grid Notebook by Archer and Olive is a charming addition to any introvert's collection. Its cozy design, featuring a stack of books with flowers, feels like a warm hug when you curl up with it. The gold stamping adds a touch of elegance to the beige buckram cover, making it a perfect gift for your fellow book lovers. 
 
@@ -121,9 +121,9 @@ One of the standout features of this notebook is its versatile dot grid pages. T
 The 5mm dot grid paper also guarantees comfort while writing, laying flat when opened for a smooth experience. Overall, the Books & Flowers Dot Grid Notebook is an essential tool for any book lover looking for a comfortable and stylish notebook. 
 
 
-### [Vivid Scribbles Bleed-Proof Dotted Journal – Vegan Friendly A5 Black Bullet Notebook with Key Code, Index & Elastic Pen Loop](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=vivid-scribbles-bleed-proof-dotted-journal-vegan-friendly-a5-black-bullet-notebook-with-key-code-index-elastic-pen-loop)
+### [Vivid Scribbles Bleed-Proof Dotted Journal – Vegan Friendly A5 Black Bullet Notebook with Key Code, Index & Elastic Pen Loop](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=vivid-scribbles-bleed-proof-dotted-journal-vegan-friendly-a5-black-bullet-notebook-with-key-code-index-elastic-pen-loop)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=vivid-scribbles-bleed-proof-dotted-journal-vegan-friendly-a5-black-bullet-notebook-with-key-code-index-elastic-pen-loop"><img alt="vivid-scribbles-dotted-journal-160gsm-no-bleed-thick-white-paper-200-numbered-dot-grid-pages-a5-dott-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vivid-scribbles-dotted-journal-160gsm-no-bleed-thick-white-paper-200-numbered-dot-grid-pages-a5-dott-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=vivid-scribbles-bleed-proof-dotted-journal-vegan-friendly-a5-black-bullet-notebook-with-key-code-index-elastic-pen-loop"><img alt="vivid-scribbles-dotted-journal-160gsm-no-bleed-thick-white-paper-200-numbered-dot-grid-pages-a5-dott-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vivid-scribbles-dotted-journal-160gsm-no-bleed-thick-white-paper-200-numbered-dot-grid-pages-a5-dott-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Vivid Scribbles Dotted Journal, and I'm excited to share my experience with you. This journal has been a game-changer for me, with its premium 160gsm bleed-proof thick white paper, perfect for any pen to be used. The bullet dotted pages are numbered and feature a 0.5cm dot grid, making it ideal for all kinds of bullet journaling or note-taking adventures. 
 
@@ -136,9 +136,9 @@ One of the best parts is the packaging. It comes in a beautiful gift box, making
 In conclusion, the Vivid Scribbles Dotted Journal is a premium, versatile, and beautifully designed notebook. Its features make it perfect for capturing thoughts, tracking habits, or planning out the day. I can't imagine living without it now. So, if you're looking for a high-quality journal to add into your daily routine, the Vivid Scribbles Dotted Journal is worth considering. Add it to your cart and experience the beauty yourself! 
 
 
-### [Dot Journal (Black): Blank Dotted Journal for List-Making, Goal-setting, and Notes with Elastic Closure](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=dot-journal-black-blank-dotted-journal-for-list-making-goal-setting-and-notes-with-elastic-closure)
+### [Dot Journal (Black): Blank Dotted Journal for List-Making, Goal-setting, and Notes with Elastic Closure](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=dot-journal-black-blank-dotted-journal-for-list-making-goal-setting-and-notes-with-elastic-closure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=dot-journal-black-blank-dotted-journal-for-list-making-goal-setting-and-notes-with-elastic-closure"><img alt="dot-journal-black-a-dotted-blank-journal-for-list-making-journaling-goal-setting-256-pages-with-elas-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-journal-black-a-dotted-blank-journal-for-list-making-journaling-goal-setting-256-pages-with-elas-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=dot-journal-black-blank-dotted-journal-for-list-making-goal-setting-and-notes-with-elastic-closure"><img alt="dot-journal-black-a-dotted-blank-journal-for-list-making-journaling-goal-setting-256-pages-with-elas-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-journal-black-a-dotted-blank-journal-for-list-making-journaling-goal-setting-256-pages-with-elas-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dot Journal in black is a versatile, dotted blank journal designed for list-making, journaling, and goal-setting. With 256 pages, you have ample space to organize your thoughts and track progress. The acid-free opaque paper ensures that your ink won't bleed through, while the durable stain-resistant cover maintains its appeal. 
 
@@ -147,27 +147,27 @@ The lay-flat binding allows for easy writing, and the ribbon marker helps you fi
 It's the perfect companion for those looking to plan, sketch, or simply reflect on their day. 
 
 
-### [Appointed Dot Grid Workbook: DIY Notebook, Calendar, Lists in Fern Green](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=appointed-dot-grid-workbook-diy-notebook-calendar-lists-in-fern-green)
+### [Appointed Dot Grid Workbook: DIY Notebook, Calendar, Lists in Fern Green](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=appointed-dot-grid-workbook-diy-notebook-calendar-lists-in-fern-green)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=appointed-dot-grid-workbook-diy-notebook-calendar-lists-in-fern-green"><img alt="dot-grid-workbook-diy-notebook-calendar-lists-appointed-fern-green-none-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-grid-workbook-diy-notebook-calendar-lists-appointed-fern-green-none-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=appointed-dot-grid-workbook-diy-notebook-calendar-lists-in-fern-green"><img alt="dot-grid-workbook-diy-notebook-calendar-lists-appointed-fern-green-none-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dot-grid-workbook-diy-notebook-calendar-lists-appointed-fern-green-none-1/h=540,fit=pad,background=black"/></a></div>
 
 As a writer, I've found the Dot Grid Workbook to be a fantastic companion for my projects and to-do lists. The app has a double-sided dot grid that provides versatility for various purposes, such as a DIY calendar, journal, and more. 
 
 Despite the bleed-through issue with a fountain pen, it's still a valuable resource when compared to blank notebooks. This workbook's construction quality is excellent, and the portable size has been incredibly helpful for my work on the go. 
 
 
-### [Mintgreen Dot Journal: Beach Animals Edition](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=mintgreen-dot-journal-beach-animals-edition)
+### [Mintgreen Dot Journal: Beach Animals Edition](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=mintgreen-dot-journal-beach-animals-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=mintgreen-dot-journal-beach-animals-edition"><img alt="mintgreen-spiral-journal-dot-ruled-200-pages-5-inch-x-7-inch-beach-animals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mintgreen-spiral-journal-dot-ruled-200-pages-5-inch-x-7-inch-beach-animals-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=mintgreen-dot-journal-beach-animals-edition"><img alt="mintgreen-spiral-journal-dot-ruled-200-pages-5-inch-x-7-inch-beach-animals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mintgreen-spiral-journal-dot-ruled-200-pages-5-inch-x-7-inch-beach-animals-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mintgreen Spiral Journal has become a reliable companion during my brainstorming sessions. Its 5 by 7 page size fits perfectly into my bag, and the dotted pages have been a treat for both my writing and sketching skills. The spiral binding keeps the notebook flat on my desk while I jot down ideas, and the elastic band clasp keeps my thoughts neatly tucked away. 
 
 The beach animals theme adds a playful touch to my daily note-taking routine, making me excited to fill in each page. Overall, this Mintgreen spiral journal is a delightful notebook that's been a joy to use. 
 
 
-### [Clever Fox Dotted Notebook - Stylish Bullet Journal with Pen Loop and Accessories](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=clever-fox-dotted-notebook-stylish-bullet-journal-with-pen-loop-and-accessories)
+### [Clever Fox Dotted Notebook - Stylish Bullet Journal with Pen Loop and Accessories](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=clever-fox-dotted-notebook-stylish-bullet-journal-with-pen-loop-and-accessories)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=clever-fox-dotted-notebook-stylish-bullet-journal-with-pen-loop-and-accessories"><img alt="clever-fox-dotted-notebook-dot-grid-bullet-numbered-pages-hard-cover-notebook-journal-with-thick-121" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clever-fox-dotted-notebook-dot-grid-bullet-numbered-pages-hard-cover-notebook-journal-with-thick-121/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=clever-fox-dotted-notebook-stylish-bullet-journal-with-pen-loop-and-accessories"><img alt="clever-fox-dotted-notebook-dot-grid-bullet-numbered-pages-hard-cover-notebook-journal-with-thick-121" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clever-fox-dotted-notebook-dot-grid-bullet-numbered-pages-hard-cover-notebook-journal-with-thick-121/h=540,fit=pad,background=black"/></a></div>
 
 I've recently started using the Clever Fox Dotted Notebook, and let me tell you, it's a game-changer for my daily life. This hardcover notebook has been a reliable companion for jotting down my thoughts, sketching, and even creating schedules. One of the best features I've found is that the 120g thick paper ensures ink doesn't bleed through, allowing me to use any pen of my choice without any hassle. 
 
@@ -178,9 +178,9 @@ However, one downside I've noticed is the lack of a pen holder built into the co
 Overall, I highly recommend the Clever Fox Dotted Notebook for anyone on the lookout for a versatile and high-quality bullet journal. The thick paper, dot grid layout, and variety of fun cover colors make it a perfect addition to any writing routine. Despite the minor inconvenience of not having a pen holder, its numerous benefits make it a top contender in my opinion. 
 
 
-### [Blooming Dot Grid Journal: 80 Pages, 3 Sticker Sheets, and 5.625 x 8 Inches Size](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=blooming-dot-grid-journal-80-pages-3-sticker-sheets-and-5-625-x-8-inches-size)
+### [Blooming Dot Grid Journal: 80 Pages, 3 Sticker Sheets, and 5.625 x 8 Inches Size](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=blooming-dot-grid-journal-80-pages-3-sticker-sheets-and-5-625-x-8-inches-size)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=blooming-dot-grid-journal-80-pages-3-sticker-sheets-and-5-625-x-8-inches-size"><img alt="muted-meadow-bullet-dot-grid-happy-journal-80-sheets-160gsm-paper-black-happy-planner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/muted-meadow-bullet-dot-grid-happy-journal-80-sheets-160gsm-paper-black-happy-planner-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=blooming-dot-grid-journal-80-pages-3-sticker-sheets-and-5-625-x-8-inches-size"><img alt="muted-meadow-bullet-dot-grid-happy-journal-80-sheets-160gsm-paper-black-happy-planner-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/muted-meadow-bullet-dot-grid-happy-journal-80-sheets-160gsm-paper-black-happy-planner-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine coming home after a long day to find your Happy Planner Dot Grid Journal waiting for you on the counter. The muted Meadow cover art calms your senses and signals a peaceful retreat from the day's stresses. As you gently open the journal, the high-quality 160gsm paper greets you with a satisfying crunch. 
 
@@ -189,9 +189,9 @@ The dot grid pages provide the perfect foundation for mindful journaling, helpin
 Though small in size, this journal packs a big punch when it comes to promoting relaxation and well-being. 
 
 
-### [RETTACY A5 Dotted Grid Leather Bullet Journal - Versatile Notebook for Creative Planning and Organization](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=rettacy-a5-dotted-grid-leather-bullet-journal-versatile-notebook-for-creative-planning-and-organization)
+### [RETTACY A5 Dotted Grid Leather Bullet Journal - Versatile Notebook for Creative Planning and Organization](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=rettacy-a5-dotted-grid-leather-bullet-journal-versatile-notebook-for-creative-planning-and-organization)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=rettacy-a5-dotted-grid-leather-bullet-journal-versatile-notebook-for-creative-planning-and-organization"><img alt="rettacy-dotted-notebook-a5-dotted-grid-journal-with-256-pages120gsm-thick-paper8-perforated-pagessmo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rettacy-dotted-notebook-a5-dotted-grid-journal-with-256-pages120gsm-thick-paper8-perforated-pagessmo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=rettacy-a5-dotted-grid-leather-bullet-journal-versatile-notebook-for-creative-planning-and-organization"><img alt="rettacy-dotted-notebook-a5-dotted-grid-journal-with-256-pages120gsm-thick-paper8-perforated-pagessmo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rettacy-dotted-notebook-a5-dotted-grid-journal-with-256-pages120gsm-thick-paper8-perforated-pagessmo-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fan of stationery and bullet journaling, I was excited to try out the Rettacy Bullet Dotted Journal. The sleek faux leather hardcover added a touch of class to my daily journaling routine, and its 256 pages provided ample room for note-taking. 
 
@@ -204,9 +204,9 @@ Despite these minor issues, the Rettacy Bullet Dotted Journal was a versatile to
 In summary, the Rettacy Bullet Dotted Journal was a high-quality journal that offered a smooth writing surface, versatile applications, and acid-free pages to prevent fading. Although the leather cover wasn't ideal for traveling and added a bit of bulk, this journal remained a reliable choice for those who enjoy detailed note-taking and journaling with style. 
 
 
-### [Constellations Dot Journal: Stylish Hardcover Organizer for Bullet Journaling (Taurus)](https://serp.ly/@outrun/amazon/Dot+Journals?utm\_term=constellations-dot-journal-stylish-hardcover-organizer-for-bullet-journaling-taurus)
+### [Constellations Dot Journal: Stylish Hardcover Organizer for Bullet Journaling (Taurus)](https://serp.ly/@bar/amazon/Dot+Journals?utm\_term=constellations-dot-journal-stylish-hardcover-organizer-for-bullet-journaling-taurus)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dot+Journals?utm_term=constellations-dot-journal-stylish-hardcover-organizer-for-bullet-journaling-taurus"><img alt="constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dot+Journals?utm_term=constellations-dot-journal-stylish-hardcover-organizer-for-bullet-journaling-taurus"><img alt="constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/constellations-a5-dotted-hardcover-journal-notebook-100gsm-400pages-writing-paper-bullet-organizers--1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate writer's or artist's companion with the Constellations A5 Dotted Hardcover Journal. This unique and fashionable notebook has captured the hearts of writers, artists, and journal enthusiasts alike. The timeless leather cover, adorned with elegant constellation embellishments, exudes both style and resilience, guarding against water damage. 
 

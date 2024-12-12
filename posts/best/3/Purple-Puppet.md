@@ -15,9 +15,9 @@ Get ready for a whimsical journey into the world of Purple Puppet as we present 
 ## Reviews
 
 
-### [Purple Tie-Die 16-Inch Baby Dinosaur Marionette Puppet Toy](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=purple-tie-die-16-inch-baby-dinosaur-marionette-puppet-toy)
+### [Purple Tie-Die 16-Inch Baby Dinosaur Marionette Puppet Toy](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=purple-tie-die-16-inch-baby-dinosaur-marionette-puppet-toy)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=purple-tie-die-16-inch-baby-dinosaur-marionette-puppet-toy"><img alt="sunny-toys-16-baby-dinosaur-purple-tie-die-marionette-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-16-baby-dinosaur-purple-tie-die-marionette-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=purple-tie-die-16-inch-baby-dinosaur-marionette-puppet-toy"><img alt="sunny-toys-16-baby-dinosaur-purple-tie-die-marionette-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-16-baby-dinosaur-purple-tie-die-marionette-1/h=540,fit=pad,background=black"/></a></div>
 
 I'll never forget the first time I saw this 16'' purple tie-die dino marionette. It was like a little piece of extinct wonder come to life, ready to dance, walk, and run. Honestly, it's incredible to think that something so cute can be so fierce-looking at the same time. 
 
@@ -28,18 +28,18 @@ It's important to note that this marionette is suitable for kids aged 3 and up, 
 However, one thing I'd like to mention is that the arm length might be a bit short for some. But don't let that hold you back – this marionette still has enough charm to make up for it. All in all, it's a fantastic, quirky toy that's sure to bring a smile to anyone's face. 
 
 
-### [30" Purple Monster Puppet - Full Body Ventriloquist-Style Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=30-purple-monster-puppet-full-body-ventriloquist-style-puppet)
+### [30" Purple Monster Puppet - Full Body Ventriloquist-Style Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=30-purple-monster-puppet-full-body-ventriloquist-style-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=30-purple-monster-puppet-full-body-ventriloquist-style-puppet"><img alt="30-purple-monster-puppet-full-body-ventriloquist-style-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-purple-monster-puppet-full-body-ventriloquist-style-puppet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=30-purple-monster-puppet-full-body-ventriloquist-style-puppet"><img alt="30-purple-monster-puppet-full-body-ventriloquist-style-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30-purple-monster-puppet-full-body-ventriloquist-style-puppet-1/h=540,fit=pad,background=black"/></a></div>
 
 Silly Pups' 30" Purple Monster Puppet is a full-bodied, professional-grade ventriloquist style puppet, standing tall at roughly 70 cm or about 28 inches. The puppet is lightweight, weighing in at around 500g, while featuring a large, easy-to-move mouth with hand entry from the bottom. The fur around the mouth can be trimmed for a cleaner look, making this puppet more versatile and adaptable to a variety of scenarios. 
 
 Perfect for puppet ministry, school performances, talent shows, and all sorts of theater fun, the Purple Monster Puppet is recommended for ages 6 and above. With a high-quality build, this puppet is sure to bring endless entertainment and joy for children and adults alike. 
 
 
-### [Purple Puppet: The Puppet Company's Baby Monsters Edition](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=purple-puppet-the-puppet-companys-baby-monsters-edition)
+### [Purple Puppet: The Puppet Company's Baby Monsters Edition](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=purple-puppet-the-puppet-companys-baby-monsters-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=purple-puppet-the-puppet-companys-baby-monsters-edition"><img alt="the-puppet-company-baby-monsters-purple-monster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-puppet-company-baby-monsters-purple-monster-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=purple-puppet-the-puppet-companys-baby-monsters-edition"><img alt="the-puppet-company-baby-monsters-purple-monster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-puppet-company-baby-monsters-purple-monster-1/h=540,fit=pad,background=black"/></a></div>
 
 There's just something so charming about the Puppet Company Baby Monsters, especially this purple monster. It's big enough to be held by little hands and perfect for those storytime snuggles. The workmanship is of the highest quality – these puppets are made to last. 
 
@@ -48,9 +48,9 @@ Designed to bring families together on long car trips, each monster packs a punc
 Available in eight wacky designs and colors, there's a Baby Monster for every taste. And at an average height of 35cm, these lovable creatures are just the right size for all those cuddles. So go ahead, put a smile on your face and have some fun with your favorite Baby Monster! 
 
 
-### [16-inch Purple Baby Unicorn Marionette Puppet for Ages 6+](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=16-inch-purple-baby-unicorn-marionette-puppet-for-ages-6)
+### [16-inch Purple Baby Unicorn Marionette Puppet for Ages 6+](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=16-inch-purple-baby-unicorn-marionette-puppet-for-ages-6)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=16-inch-purple-baby-unicorn-marionette-puppet-for-ages-6"><img alt="sunny-toys-wb392b-16-in-baby-unicorn-purple-marionette-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb392b-16-in-baby-unicorn-purple-marionette-puppet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=16-inch-purple-baby-unicorn-marionette-puppet-for-ages-6"><img alt="sunny-toys-wb392b-16-in-baby-unicorn-purple-marionette-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb392b-16-in-baby-unicorn-purple-marionette-puppet-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the chance to play with the Sunny Toys WB392B 16-inch Baby Unicorn Purple Marionette Puppet, and I must say, it brought a lot of fun and creativity to my daily life. This marionette is a miniature version of their full-sized Purple Unicorn, standing at about 8 inches tall. The total height of the puppet, including the strings, reaches around 16 inches, giving it a magical feel. 
 
@@ -61,18 +61,18 @@ However, I also noticed that the puppet, being made of fabric, could be prone to
 Overall, the Sunny Toys WB392B 16-inch Baby Unicorn Purple Marionette Puppet is a charming and enjoyable addition to any kid's toy collection. 
 
 
-### [Large Purple Puppet with Four Legs](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=large-purple-puppet-with-four-legs)
+### [Large Purple Puppet with Four Legs](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=large-purple-puppet-with-four-legs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=large-purple-puppet-with-four-legs"><img alt="sunny-toys-wb991p-38-in-four-leg-large-goat-purple-large-marionette-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb991p-38-in-four-leg-large-goat-purple-large-marionette-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=large-purple-puppet-with-four-legs"><img alt="sunny-toys-wb991p-38-in-four-leg-large-goat-purple-large-marionette-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb991p-38-in-four-leg-large-goat-purple-large-marionette-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sunny Toys WB991P Marionette sure knows how to stand out from the crowd. This 38-inch large goat, crafted in a vibrant shade of purple, is not just a simple puppet, but a true work of art. 
 
 Its four sturdy legs firmly support it, making it a perfect addition to any marionette show or playroom. However, be aware that its size may require some extra storage space. Overall, this Purple Puppet promises plenty of fun and entertainment for kids and adults alike. 
 
 
-### [Living Puppets - Kang - Purple Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=living-puppets-kang-purple-puppet)
+### [Living Puppets - Kang - Purple Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=living-puppets-kang-purple-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=living-puppets-kang-purple-puppet"><img alt="living-puppets-kang-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/living-puppets-kang-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=living-puppets-kang-purple-puppet"><img alt="living-puppets-kang-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/living-puppets-kang-1/h=540,fit=pad,background=black"/></a></div>
 
 As a parent, I've learned the importance of letting my child's imagination run wild when it comes to playtime. That's why I was thrilled to come across the Living Puppets Kang. This purple puppet, designed with meticulous care in Germany, is a perfect example of how a hand-crafted toy can capture a child's attention. 
 
@@ -85,9 +85,9 @@ However, there is one downside to note: The puppet is a bit small. At only 9 inc
 Overall, the Living Puppets Kang is a delightful toy that encourages imaginative play and fosters a child's social and emotional learning. Despite its small size, its fine craftsmanship and safety make it a worthwhile investment for any family. 
 
 
-### [Purple Hero Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=purple-hero-puppet)
+### [Purple Hero Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=purple-hero-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=purple-hero-puppet"><img alt="the-puppet-company-story-tellers-super-hero-purple-outfit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-puppet-company-story-tellers-super-hero-purple-outfit-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=purple-hero-puppet"><img alt="the-puppet-company-story-tellers-super-hero-purple-outfit-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-puppet-company-story-tellers-super-hero-purple-outfit-1/h=540,fit=pad,background=black"/></a></div>
 
 The Puppet Company's Super Hero puppet brings a thrilling touch to storytelling! Designed to fit comfortably in both children and adult hands, this puppet allows for seamless gestures and movements. Standing at approximately 38 cm, it makes for the perfect addition to your storytelling arsenal. 
 
@@ -102,18 +102,18 @@ However, it's worth mentioning that this particular puppet is not compatible wit
 In summary, this superhero purple puppet is an excellent investment for storytelling enthusiasts and anyone seeking a bit of fun. Its lightweight design and versatile size make it an ideal choice for storytelling sessions and various activities. Don't forget that The Puppet Company's products come with a 30-day return policy and a commitment to providing the best customer experience possible. 
 
 
-### [Sunny Toys Purple Dragon Marionette Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=sunny-toys-purple-dragon-marionette-puppet)
+### [Sunny Toys Purple Dragon Marionette Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=sunny-toys-purple-dragon-marionette-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=sunny-toys-purple-dragon-marionette-puppet"><img alt="sunny-toys-wb334a-16-in-baby-drangon-purple-marionette-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb334a-16-in-baby-drangon-purple-marionette-puppet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=sunny-toys-purple-dragon-marionette-puppet"><img alt="sunny-toys-wb334a-16-in-baby-drangon-purple-marionette-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sunny-toys-wb334a-16-in-baby-drangon-purple-marionette-puppet-1/h=540,fit=pad,background=black"/></a></div>
 
 The Sunny Toys WB334A 16-inch Baby Drangon is a charming marionette puppet that comes in a vivid purple color. This adorable creature is perfect for children ages 6 and above and makes an ideal addition to any birthday party or classroom. Bringing the puppet to life is effortless, and its whimsical nature will captivate the young audience. 
 
 This marionette doesn't only entertain but also helps in promoting the development of fine motor skills, making it an educational and enjoyable toy for kids. While it might not be a perfect replica of a dragon, its unique design and vibrant color make it stand out among other puppets. 
 
 
-### [Large Purple Marionette Unicorn String Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=large-purple-marionette-unicorn-string-puppet)
+### [Large Purple Marionette Unicorn String Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=large-purple-marionette-unicorn-string-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=large-purple-marionette-unicorn-string-puppet"><img alt="gamesgonewild-38-in-four-leg-large-marionette-unicorn-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gamesgonewild-38-in-four-leg-large-marionette-unicorn-purple-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=large-purple-marionette-unicorn-string-puppet"><img alt="gamesgonewild-38-in-four-leg-large-marionette-unicorn-purple-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gamesgonewild-38-in-four-leg-large-marionette-unicorn-purple-1/h=540,fit=pad,background=black"/></a></div>
 
 The 38-inch Four-Leg Large Marionette Unicorn comes in a vibrant purple hue, perfect for bringing some whimsical magic to your yard or garden. With an airplane-like control that rock side-to-side, this marionette puppet can walk or dance with ease, adding a touch of life to your outdoor space. Despite its size, it weighs a reasonable 1.5 lbs, making it easy to maneuver and enjoy. 
 
@@ -122,18 +122,18 @@ This unique puppet is sure to captivate the attention of both children and adult
 Overall, the GamesGoneWild 38-inch Four-Leg Large Marionette Unicorn in Purple is a delightful addition to any outdoor setting, providing hours of entertainment and enchantment. 
 
 
-### [Folkmanis Beaked Dragon Puppet - A Colorful Purple Puppet for Entertainment](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=folkmanis-beaked-dragon-puppet-a-colorful-purple-puppet-for-entertainment)
+### [Folkmanis Beaked Dragon Puppet - A Colorful Purple Puppet for Entertainment](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=folkmanis-beaked-dragon-puppet-a-colorful-purple-puppet-for-entertainment)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=folkmanis-beaked-dragon-puppet-a-colorful-purple-puppet-for-entertainment"><img alt="folkmanis-beaked-dragon-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/folkmanis-beaked-dragon-puppet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=folkmanis-beaked-dragon-puppet-a-colorful-purple-puppet-for-entertainment"><img alt="folkmanis-beaked-dragon-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/folkmanis-beaked-dragon-puppet-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the enchanting world of the Folkmanis Beaked Dragon Puppet, a vibrant purple creature that's destined to bring your stories to life. Captivating young imaginations with its plush plumes and sparkling accents, this interactive hand puppet features expressive eyes, a movable mouth, and long lashes. Ideal for storytime, this puppet measures 28 x 10 x 12 inches and comfortably slips over your hand, making it a delightful addition to classic tales like "I'm a Dragon", "King Jack and the Dragon", or "Dragons Love Tacos". 
 
 As a high-quality Folkmanis puppet, it's constructed from soft, durable materials, ensuring long-lasting enjoyment for children ages 3 to 12 years old. 
 
 
-### [Vibrant Purple Monster Hand Puppet](https://serp.ly/@outrun/amazon/Purple+Puppet?utm\_term=vibrant-purple-monster-hand-puppet)
+### [Vibrant Purple Monster Hand Puppet](https://serp.ly/@bar/amazon/Purple+Puppet?utm\_term=vibrant-purple-monster-hand-puppet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+Puppet?utm_term=vibrant-purple-monster-hand-puppet"><img alt="14-purple-monster-hand-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/14-purple-monster-hand-puppet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+Puppet?utm_term=vibrant-purple-monster-hand-puppet"><img alt="14-purple-monster-hand-puppet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/14-purple-monster-hand-puppet-1/h=540,fit=pad,background=black"/></a></div>
 
 This 14-inch purple monster puppet is undeniably adorable and perfect for young children's playtime. Its high-quality materials make it an ideal gift for those who love pretend play. The puppet's hands and mouth move easily, providing hours of engaging fun. 
 
@@ -149,7 +149,7 @@ If you've found yourself interested in the Purple Puppet category, you're in for
 
 The key features that make a quality Purple Puppet stand out include its material, durability, and design. High-quality puppets have sturdy materials that can withstand daily use and provide a lasting, enjoyable experience. Look for puppets made of soft but durable fabric like cotton or polyester, and inspect the stitching for tight seams. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-2/h=540,fit=pad,background=black" alt="Purple-Puppet-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-2/h=540,fit=pad,background=black" alt="Purple-Puppet-2" height="540"></a></div>
 
 
 ### Considerations Before Purchase
@@ -161,7 +161,7 @@ Before you make your purchase, consider the age range and skill level of the use
 
 To keep your Purple Puppet in top shape, it's essential to clean and store it correctly. Gently wash the puppet by hand using a mild detergent and let it air dry completely before storing it away. Avoid storing your puppet in humid or hot environments, which can damage its material and finish. Regularly inspect your puppet for signs of wear and tear, and invest in high-quality replacements when needed. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-3/h=540,fit=pad,background=black" alt="Purple-Puppet-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-3/h=540,fit=pad,background=black" alt="Purple-Puppet-3" height="540"></a></div>
 
 
 ### Safety Tips for Using Purple Puppets
@@ -171,7 +171,7 @@ Safety should always be a top priority when using any product, including Purple 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-4/h=540,fit=pad,background=black" alt="Purple-Puppet-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-4/h=540,fit=pad,background=black" alt="Purple-Puppet-4" height="540"></a></div>
 
 
 ### What is the Purple Puppet?
@@ -187,7 +187,7 @@ The Purple Puppet is ideal for a wide range of users, including puppeteers, educ
 
 Furthermore, the Purple Puppet can be utilized in educational settings, such as classrooms, libraries, and community centers, to promote literacy, creative expression, and problem-solving skills. It can also be used in theater performances, where experienced puppeteers can bring the puppet to life on stage, captivating audiences of all ages. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-5/h=540,fit=pad,background=black" alt="Purple-Puppet-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-5/h=540,fit=pad,background=black" alt="Purple-Puppet-5" height="540"></a></div>
 
 
 ### What are the main features of the Purple Puppet?
@@ -203,7 +203,7 @@ The Purple Puppet can be utilized in various educational settings to promote lit
 
 In a library setting, the Purple Puppet can be used for storytime sessions, where children can listen to stories and engage with the puppet's expressiveness and movements. The puppet can also be used as a tool for encouraging children to develop their own stories and puppet shows, fostering their creativity and imagination. In community centers, the puppet can be used to organize creative workshops, where children and adults can learn about puppetry and storytelling. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-6/h=540,fit=pad,background=black" alt="Purple-Puppet-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+Puppet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-Puppet-6/h=540,fit=pad,background=black" alt="Purple-Puppet-6" height="540"></a></div>
 
 
 ### What are the benefits of using the Purple Puppet for therapeutic purposes?

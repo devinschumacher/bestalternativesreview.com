@@ -15,9 +15,9 @@ If you're in search of a versatile and stylish lighting solution for your living
 ## Reviews
 
 
-### [Brushed Brass Verona Arc Table Lamp with Clear Glass Shade](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=brushed-brass-verona-arc-table-lamp-with-clear-glass-shade)
+### [Brushed Brass Verona Arc Table Lamp with Clear Glass Shade](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=brushed-brass-verona-arc-table-lamp-with-clear-glass-shade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=brushed-brass-verona-arc-table-lamp-with-clear-glass-shade"><img alt="verona-arc-table-lamp-brushed-brass-with-clear-glass-shade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/verona-arc-table-lamp-brushed-brass-with-clear-glass-shade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=brushed-brass-verona-arc-table-lamp-with-clear-glass-shade"><img alt="verona-arc-table-lamp-brushed-brass-with-clear-glass-shade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/verona-arc-table-lamp-brushed-brass-with-clear-glass-shade-1/h=540,fit=pad,background=black"/></a></div>
 
 Verona Arc Table Lamp: A blend of vintage and modern, this lamp elevates the atmosphere of any room it graces. With its handcrafted finish, it adds a touch of elegance to your space. 
 
@@ -26,9 +26,9 @@ The arced shape ensures targeted lighting, and the clear glass shade provides a 
 However, some users have reported minor issues with the glass cleanliness and the socket fitting, but overall, it's a fantastic, affordable piece. 
 
 
-### [Pillowfort Modern Desktop LED Ball Table Lamp - Sour Cream](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=pillowfort-modern-desktop-led-ball-table-lamp-sour-cream)
+### [Pillowfort Modern Desktop LED Ball Table Lamp - Sour Cream](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=pillowfort-modern-desktop-led-ball-table-lamp-sour-cream)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=pillowfort-modern-desktop-led-ball-table-lamp-sour-cream"><img alt="modern-ball-table-lamp-includes-led-light-bulb-sour-cream-pillowfort-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/modern-ball-table-lamp-includes-led-light-bulb-sour-cream-pillowfort-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=pillowfort-modern-desktop-led-ball-table-lamp-sour-cream"><img alt="modern-ball-table-lamp-includes-led-light-bulb-sour-cream-pillowfort-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/modern-ball-table-lamp-includes-led-light-bulb-sour-cream-pillowfort-1/h=540,fit=pad,background=black"/></a></div>
 
 Illuminate your kiddo's room with style and sophistication with the Modern Ball Table Lamp from Pillowfort. With a unique stacked ball design, this freestanding focal point has a sleek, drum-shaped shade that adds a touch of modern charm to the room. Place it beside their bed for a warm glow, or use it as a statement piece elsewhere in the space. 
 
@@ -43,18 +43,18 @@ The lamp's construction is solid, with a metal and plastic construction that is 
 In conclusion, the Modern Ball Table Lamp is a visually striking addition to any child's room. Its sleek design, versatile shade options, and energy-efficient LED light will delight its owner. However, some users found the dimmer function to be finicky and found that the cord can be a bit of a hazard for curious little fingers. Overall, this lamp is a worthy investment that adds a touch of charm and functionality to a kid's bedroom. 
 
 
-### [Golden Dome Table Lamp: Contemporary & Elegant Design for Modern Spaces](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=golden-dome-table-lamp-contemporary-elegant-design-for-modern-spaces)
+### [Golden Dome Table Lamp: Contemporary & Elegant Design for Modern Spaces](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=golden-dome-table-lamp-contemporary-elegant-design-for-modern-spaces)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=golden-dome-table-lamp-contemporary-elegant-design-for-modern-spaces"><img alt="coaster-dome-shade-table-lamp-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coaster-dome-shade-table-lamp-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=golden-dome-table-lamp-contemporary-elegant-design-for-modern-spaces"><img alt="coaster-dome-shade-table-lamp-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coaster-dome-shade-table-lamp-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 The Coaster Dome Shade Table Lamp in Gold adds a touch of luxury to any space with its elegant gold finish. The contemporary dome shape offers a modern and stylish look, while the curved arm design adds a unique and eye-catching element. 
 
 The lamp also boasts an energy-efficient LED bulb type for long-lasting and cost-effective lighting. With a 9W bulb wattage, it provides bright and sufficient illumination. Overall, this lamp is a sleek and chic addition to any end table or nightstand. 
 
 
-### [Mid-Century Modern Dome Table Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=mid-century-modern-dome-table-lamp)
+### [Mid-Century Modern Dome Table Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=mid-century-modern-dome-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=mid-century-modern-dome-table-lamp"><img alt="rivet-dome-shaped-table-lamp-aster-modern-with-bulb-21h-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rivet-dome-shaped-table-lamp-aster-modern-with-bulb-21h-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=mid-century-modern-dome-table-lamp"><img alt="rivet-dome-shaped-table-lamp-aster-modern-with-bulb-21h-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rivet-dome-shaped-table-lamp-aster-modern-with-bulb-21h-black-1/h=540,fit=pad,background=black"/></a></div>
 
 This Rivet Dome-Shaped Table Lamp from Aster Modern is a stylish addition to any room in your home. Standing at 21 inches tall, its modern 2-light dome design boasts an on-trend matte black finish that effortlessly complements any decor. Its user-friendly touch with two conveniently placed on/off pull chains located at the socket ensures easy operation. 
 
@@ -63,18 +63,18 @@ The lamp comes with two energy-efficient 9-watt warm-white LED bulbs, designed t
 However, it is essential to note that this lamp is intended for indoor use only. The minimalist, sleek design makes it a timeless piece that can be easily incorporated into any interior, whether it's your living room, bedroom, or home office. 
 
 
-### [Curved Dome Table Lamp in Silver, 20.25 inches](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=curved-dome-table-lamp-in-silver-20-25-inches)
+### [Curved Dome Table Lamp in Silver, 20.25 inches](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=curved-dome-table-lamp-in-silver-20-25-inches)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=curved-dome-table-lamp-in-silver-20-25-inches"><img alt="20-25-inch-silver-curved-table-lamp-with-dome-shade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/20-25-inch-silver-curved-table-lamp-with-dome-shade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=curved-dome-table-lamp-in-silver-20-25-inches"><img alt="20-25-inch-silver-curved-table-lamp-with-dome-shade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/20-25-inch-silver-curved-table-lamp-with-dome-shade-1/h=540,fit=pad,background=black"/></a></div>
 
 This silver curved table lamp boasts a striking design that brings sophistication and style to your space. The brushed nickel finish pairs beautifully with its curved lines, while the metal dome shade adds visual interest. Perfect for any living room, bedroom, office or library, this lamp not only adds style, but also provides illumination, creating the ideal atmosphere. 
 
 With a height of 20.25 inches and a five feet black cord, setting up this lamp is easy, no assembly required. This stunning table lamp is recommended for indoor use only, so you can enjoy it in the comfort of your home. 
 
 
-### [Chelsea Grove Gold Dome Table Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=chelsea-grove-gold-dome-table-lamp)
+### [Chelsea Grove Gold Dome Table Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=chelsea-grove-gold-dome-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=chelsea-grove-gold-dome-table-lamp"><img alt="chelsea-grove-22-metal-dome-table-lamp-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chelsea-grove-22-metal-dome-table-lamp-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=chelsea-grove-gold-dome-table-lamp"><img alt="chelsea-grove-22-metal-dome-table-lamp-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chelsea-grove-22-metal-dome-table-lamp-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 As I was exploring different lighting options for my living space, I stumbled upon this Chelsea Grove 22" Metal Dome Table Lamp. With its gold metallic finish, unique mushroom-shaped design, and tall cylinder body, this table lamp certainly caught my eye. 
 
@@ -85,9 +85,9 @@ One downside I noticed was the need for purchasing the bulb separately, but it's
 Despite being a bit on the pricier side, this Chelsea Grove lamp has become a valuable addition to my living space. Its unique design and chic appearance effortlessly transformed the atmosphere of my room, and I'm confident it would do the same for others looking to make a statement with their lighting choices. 
 
 
-### [Modern 20-inch Dome Table Lamp with Touch Sensor-Black](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=modern-20-inch-dome-table-lamp-with-touch-sensor-black)
+### [Modern 20-inch Dome Table Lamp with Touch Sensor-Black](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=modern-20-inch-dome-table-lamp-with-touch-sensor-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=modern-20-inch-dome-table-lamp-with-touch-sensor-black"><img alt="20-inch-metal-accent-table-lamp-dome-shade-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/20-inch-metal-accent-table-lamp-dome-shade-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=modern-20-inch-dome-table-lamp-with-touch-sensor-black"><img alt="20-inch-metal-accent-table-lamp-dome-shade-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/20-inch-metal-accent-table-lamp-dome-shade-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine coming home after a long day at work and lighting up your living space with the stunning 20-inch metal black accent table lamp. The elegant mesh stainless steel dome shade, supported by a sleek and sturdy stem, adds a touch of sophistication to any room. 
 
@@ -96,9 +96,9 @@ A convenient touch sensor switch elevates the experience of using the lamp, lett
 Overall, this metal black accent table lamp is a chic addition to any living space, promising comfort and style. 
 
 
-### [Classic Dome Table Lamp in Brass Finish](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=classic-dome-table-lamp-in-brass-finish)
+### [Classic Dome Table Lamp in Brass Finish](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=classic-dome-table-lamp-in-brass-finish)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=classic-dome-table-lamp-in-brass-finish"><img alt="theia-globe-table-lamp-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/theia-globe-table-lamp-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=classic-dome-table-lamp-in-brass-finish"><img alt="theia-globe-table-lamp-brass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/theia-globe-table-lamp-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of mid-century modern design, I've found myself drawn to Theia Globe Table Lamp in brass. This enchanting little light has quickly become a fixture in my living room. The steel base, paired with the frosted glass globe, creates a warm and inviting ambiance that complements my interior aesthetic. I appreciate the variety of finish options; the brass one I have seamlessly blends with my other brass accents. 
 
@@ -107,9 +107,9 @@ One unexpected challenge I encountered was the assembly, which felt a bit fragil
 Overall, Theia Globe Table Lamp is a stylish and versatile choice for anyone looking to add a touch of mid-century modern charm to their home. The pros undoubtedly outweigh the cons, making it an attractive and functional choice for your space. 
 
 
-### [Gold Dome Accent Table Lamp by Project 62](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=gold-dome-accent-table-lamp-by-project-62)
+### [Gold Dome Accent Table Lamp by Project 62](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=gold-dome-accent-table-lamp-by-project-62)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=gold-dome-accent-table-lamp-by-project-62"><img alt="17-125x9-5-dome-collection-accent-lamp-gold-project-63" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/17-125x9-5-dome-collection-accent-lamp-gold-project-63/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=gold-dome-accent-table-lamp-by-project-62"><img alt="17-125x9-5-dome-collection-accent-lamp-gold-project-63" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/17-125x9-5-dome-collection-accent-lamp-gold-project-63/h=540,fit=pad,background=black"/></a></div>
 
 Illuminate any space in your home with modern style with this Dome Collection Accent Lamp from Project 62. This lamp features a golden metallic dome base with a drum shade for sophisticated flair. The white shade diffuses light for a soft, ambient glow, while the one-way light setting with a simple on/off switch allows for easy operation. 
 
@@ -120,9 +120,9 @@ However, be cautious of the packaging, as reported by some users who saw their l
 The lamp is a lovely accent piece that works well in both modern and traditional spaces, allowing you to achieve the lighting you desire. Its sleek design and sturdy build showcase excellent craftsmanship, which is a testament to its quality. With its reasonable price, you're sure to enjoy this beautiful lamp for a long time. 
 
 
-### [Stylish Black/Gold Dome and Marble Table Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=stylish-black-gold-dome-and-marble-table-lamp)
+### [Stylish Black/Gold Dome and Marble Table Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=stylish-black-gold-dome-and-marble-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=stylish-black-gold-dome-and-marble-table-lamp"><img alt="metal-dome-and-marble-table-lamp-black-gold-medium-metal-marble-kirklands-home-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/metal-dome-and-marble-table-lamp-black-gold-medium-metal-marble-kirklands-home-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=stylish-black-gold-dome-and-marble-table-lamp"><img alt="metal-dome-and-marble-table-lamp-black-gold-medium-metal-marble-kirklands-home-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/metal-dome-and-marble-table-lamp-black-gold-medium-metal-marble-kirklands-home-1/h=540,fit=pad,background=black"/></a></div>
 
 This Black Metal Dome and Marble Table Lamp from Kirkland's Home is a stylish addition to any space, boasting a modern charm. With accents of gold and green, it elevates the decor instantly. The lamp measures 28 inches high and features a straight gold finish base and a green marble stand. 
 
@@ -131,27 +131,27 @@ The dome shade is made of black metal, adding a touch of sophistication while th
 To maintain its beauty, simply dust the lamp with a soft, dry cloth and be mindful not to exceed the specified wattage. 
 
 
-### [Dormify Mila Globe Accent Sage Green Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=dormify-mila-globe-accent-sage-green-lamp)
+### [Dormify Mila Globe Accent Sage Green Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=dormify-mila-globe-accent-sage-green-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=dormify-mila-globe-accent-sage-green-lamp"><img alt="dormify-mila-globe-accent-lamp-minimalist-design-mila-sage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dormify-mila-globe-accent-lamp-minimalist-design-mila-sage-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=dormify-mila-globe-accent-sage-green-lamp"><img alt="dormify-mila-globe-accent-lamp-minimalist-design-mila-sage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dormify-mila-globe-accent-lamp-minimalist-design-mila-sage-1/h=540,fit=pad,background=black"/></a></div>
 
 Finding the perfect accent light can sometimes be a challenge, but the Dormify Mila Globe Accent Lamp makes it easy with its elegant design and practical features. The sage green color adds a touch of calm to any bedroom, while the glass globe shade creates a warm, inviting glow. Thanks to the simple toggle switch, you can effortlessly control the lighting to your desired level. 
 
 With its three on/off settings and included 25W G26 globe bulb, this lamp is not only beautiful but also energy-efficient. You'll appreciate its easy maintenance as well, with no assembly required and simple cleaning instructions. Overall, the Dormify Mila Globe Accent Lamp is a stylish and functional choice that makes a great addition to any bedroom. 
 
 
-### [Modern Accent Dome Table Lamp Set - Set of 2 White Lamps](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=modern-accent-dome-table-lamp-set-set-of-2-white-lamps)
+### [Modern Accent Dome Table Lamp Set - Set of 2 White Lamps](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=modern-accent-dome-table-lamp-set-set-of-2-white-lamps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=modern-accent-dome-table-lamp-set-set-of-2-white-lamps"><img alt="set-of-2-modern-accent-table-lamps-19-metal-dome-shaped-shade-white-13-5-x-19-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/set-of-2-modern-accent-table-lamps-19-metal-dome-shaped-shade-white-13-5-x-19-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=modern-accent-dome-table-lamp-set-set-of-2-white-lamps"><img alt="set-of-2-modern-accent-table-lamps-19-metal-dome-shaped-shade-white-13-5-x-19-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/set-of-2-modern-accent-table-lamps-19-metal-dome-shaped-shade-white-13-5-x-19-6/h=540,fit=pad,background=black"/></a></div>
 
 Amplify the appeal of any space with the stylish Felix White Table Lamps Set. At 19 inches tall, these innovative accent lamps feature a refined metal base in a sophisticated white hue, adorned with a tastefully crafted geometric outline. 
 
 The chic dome-shaped metal shades offer an unmissable modern flair. Benefitting from a convenient in-line on-off switch and a robust metal frame, this set will undoubtedly capture attention, all the while delivering functionality to your interior design scheme. 
 
 
-### [1 Stylish 22 Inch Arc Metal Base Gold Table Lamp with Dome Shade](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=1-stylish-22-inch-arc-metal-base-gold-table-lamp-with-dome-shade)
+### [1 Stylish 22 Inch Arc Metal Base Gold Table Lamp with Dome Shade](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=1-stylish-22-inch-arc-metal-base-gold-table-lamp-with-dome-shade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=1-stylish-22-inch-arc-metal-base-gold-table-lamp-with-dome-shade"><img alt="22-inch-modern-office-table-lamp-dome-shade-arc-metal-base-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-inch-modern-office-table-lamp-dome-shade-arc-metal-base-gold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=1-stylish-22-inch-arc-metal-base-gold-table-lamp-with-dome-shade"><img alt="22-inch-modern-office-table-lamp-dome-shade-arc-metal-base-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-inch-modern-office-table-lamp-dome-shade-arc-metal-base-gold-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added this sleek 22-inch table lamp to my home office, and it has completely transformed the space. The dome-shaped shade provides just the right amount of warm lighting, making it the perfect companion for those late-night work sessions. The sturdy, round metal base ensures the lamp stays put and adds a touch of elegance to any room. 
 
@@ -160,9 +160,9 @@ One of the things I appreciate most about this lamp is its modern, contemporary 
 However, a drawback I noticed is the requirement of a 9-watt LED bulb, which can make the lamp quite bright for some users. Additionally, the product contains lead, which could be a concern for some consumers. Nevertheless, if you're looking for a stylish and functional table lamp, this one is definitely worth considering. 
 
 
-### [Estallar Gray Dome Table Lamp, Iron Base with Elegant Shade](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=estallar-gray-dome-table-lamp-iron-base-with-elegant-shade)
+### [Estallar Gray Dome Table Lamp, Iron Base with Elegant Shade](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=estallar-gray-dome-table-lamp-iron-base-with-elegant-shade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=estallar-gray-dome-table-lamp-iron-base-with-elegant-shade"><img alt="estallar-24-in-iron-desk-table-lamp-with-gray-dome-shade-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/estallar-24-in-iron-desk-table-lamp-with-gray-dome-shade-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=estallar-gray-dome-table-lamp-iron-base-with-elegant-shade"><img alt="estallar-24-in-iron-desk-table-lamp-with-gray-dome-shade-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/estallar-24-in-iron-desk-table-lamp-with-gray-dome-shade-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently found myself needing a desk lamp to brighten up a corner of my study, and I stumbled upon the Estallar 24 in. Iron Desk Table Lamp with Gray Dome Shade. 
 
@@ -171,9 +171,9 @@ I must say, it's been a wonderful addition! The black iron base and gray metal d
 Plus, its in-line switch makes turning it on and off effortless. A great investment for any desk or workspace. 
 
 
-### [Nourison 13" Round Pink Dome Table Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=nourison-13-round-pink-dome-table-lamp)
+### [Nourison 13" Round Pink Dome Table Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=nourison-13-round-pink-dome-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=nourison-13-round-pink-dome-table-lamp"><img alt="nourison-13-round-ceramic-table-lamp-with-pleated-shade-pink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nourison-13-round-ceramic-table-lamp-with-pleated-shade-pink-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=nourison-13-round-pink-dome-table-lamp"><img alt="nourison-13-round-ceramic-table-lamp-with-pleated-shade-pink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nourison-13-round-ceramic-table-lamp-with-pleated-shade-pink-1/h=540,fit=pad,background=black"/></a></div>
 
 This charming round ceramic table lamp, available in a chic pink hue, adds a touch of elegance to any space. With its glossy, rounded design, it seamlessly blends classic charm with contemporary flair. Standing at a compact 13 inches in height, length, and width, this lamp is the perfect size for desks, nightstands, or even small studios. 
 
@@ -182,9 +182,9 @@ It's equipped with a 60-inch clear cord and features an easy-to-use rotary switc
 Overall, this Nourison lamp is an excellent choice for elevating the aesthetic of your space. 
 
 
-### [22" Brass & Cream Pleated Shade Table Lamp](https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm\_term=22-brass-cream-pleated-shade-table-lamp)
+### [22" Brass & Cream Pleated Shade Table Lamp](https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm\_term=22-brass-cream-pleated-shade-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp?utm_term=22-brass-cream-pleated-shade-table-lamp"><img alt="22-pleated-shade-metal-arch-table-lamp-brass-cream-hearth-hand-with-magnolia-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-pleated-shade-metal-arch-table-lamp-brass-cream-hearth-hand-with-magnolia-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp?utm_term=22-brass-cream-pleated-shade-table-lamp"><img alt="22-pleated-shade-metal-arch-table-lamp-brass-cream-hearth-hand-with-magnolia-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/22-pleated-shade-metal-arch-table-lamp-brass-cream-hearth-hand-with-magnolia-1/h=540,fit=pad,background=black"/></a></div>
 
 Brighten up your space with the 22" Pleated Shade Metal Arch Table Lamp from Hearth and Hand with Magnolia. This stylish desk lamp boasts a brass finish that goes perfectly with any decor, while the cream-colored pleated shade adds a timeless touch. With its one-way turn-knob rotary switch, turning on and off is a breeze. 
 
@@ -200,7 +200,7 @@ Dome table lamps are a popular and stylish choice for illuminating your home or 
 
 ### Important Features
 
-<div><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-2/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-2/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-2" height="540"></a></div>
 
 When purchasing a dome table lamp, several features should be taken into account to ensure the lamp meets your needs and preferences. These include the size, shape, color, material, and adjustability of the lamp. Additionally, consider the lamp's energy efficiency and compatibility with different light bulbs. 
 
@@ -209,7 +209,7 @@ When purchasing a dome table lamp, several features should be taken into account
 
 Before making a purchase, consider the space where the lamp will be placed, the intended use, and your personal style preferences. Measure the area where you plan to place the lamp to determine the appropriate size. Think about how you will use the lamp, whether it's for ambient lighting, task lighting, or mood enhancement. Finally, choose a style and aesthetic that complements the overall design of your home or office. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-3/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-3/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-3" height="540"></a></div>
 
 
 ### General Advice
@@ -221,7 +221,7 @@ When purchasing a dome table lamp, consider its size, shape, color, material, an
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-4/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-4/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-4" height="540"></a></div>
 
 
 ### What is a Dome Table Lamp?
@@ -230,7 +230,7 @@ A Dome Table Lamp, also known as a drum table lamp, is a type of lamp that has a
 
 Dome Table Lamps can be battery-operated or have a corded plug for convenient and easy use. Some models feature adjustable brightness levels, making them suitable for various situations and moods. They are typically used as accent lighting or for reading, but can also be used as a decorative piece to complement the overall design of a space. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-5/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-5/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-5" height="540"></a></div>
 
 
 ### What are the benefits of using a Dome Table Lamp?
@@ -242,7 +242,7 @@ Secondly, the various sizes and finishes available for Dome Table Lamps make the
 
 ### What different sizes and finishes of Dome Table Lamps are available?
 
-<div><a href="https://serp.ly/@outrun/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-6/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Dome+Table+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Dome-Table-Lamp-6/h=540,fit=pad,background=black" alt="Dome-Table-Lamp-6" height="540"></a></div>
 
 Dome Table Lamps come in various sizes and finishes to suit different styles and preferences. Some common sizes include small (4-6 inches), medium (8-10 inches), and large (12-16 inches). As for finishes, they can be found in matte, gloss, or metallic, as well as in a range of colors, such as white, black, gold, silver, and bronze. The glass shade can also be frosted, clear, or tinted with various shades of color. 
 

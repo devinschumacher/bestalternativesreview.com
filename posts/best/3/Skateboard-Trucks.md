@@ -15,9 +15,9 @@ Welcome to our roundup of the top skateboard trucks! If you're a fan of skateboa
 ## Reviews
 
 
-### [Stranger Things Krux K5 Trucks with Code Red Artwork](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=stranger-things-krux-k5-trucks-with-code-red-artwork)
+### [Stranger Things Krux K5 Trucks with Code Red Artwork](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=stranger-things-krux-k5-trucks-with-code-red-artwork)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=stranger-things-krux-k5-trucks-with-code-red-artwork"><img alt="krux-x-stranger-things-code-red-k5-trucks-8-0-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-x-stranger-things-code-red-k5-trucks-8-0-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=stranger-things-krux-k5-trucks-with-code-red-artwork"><img alt="krux-x-stranger-things-code-red-k5-trucks-8-0-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-x-stranger-things-code-red-k5-trucks-8-0-1/h=540,fit=pad,background=black"/></a></div>
 
 As a skateboarding enthusiast, I recently got my hands on the Krux X Stranger Things Code Red K5 Trucks. Man, these things are a game-changer! 
 
@@ -26,9 +26,9 @@ The unique artwork from the Stranger Things series is just the icing on the cake
 And let's not forget the durability - these trucks are built to last, with injection-molded pivot cups and the world's best cushions. These K5s have been a solid addition to my skateboarding experience, and I can't wait to showcase them to all my fellow skaters. 
 
 
-### [High-Grade Skateboard Trucks for Durability and Control](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=high-grade-skateboard-trucks-for-durability-and-control)
+### [High-Grade Skateboard Trucks for Durability and Control](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=high-grade-skateboard-trucks-for-durability-and-control)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=high-grade-skateboard-trucks-for-durability-and-control"><img alt="ccs-skateboard-trucks-raw-129mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccs-skateboard-trucks-raw-129mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=high-grade-skateboard-trucks-for-durability-and-control"><img alt="ccs-skateboard-trucks-raw-129mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccs-skateboard-trucks-raw-129mm-1/h=540,fit=pad,background=black"/></a></div>
 
 CCS Skateboard Trucks are a superior choice for any level of skateboarding enthusiast. The high-grade no-slip kingpin and sturdy steel base plate ensure your board remains stable and secure as you embark on your skating journey. Equipped with premium high-rebound bushings, you'll experience smooth, controlled turns, enabling you to conquer the skateparks with ease. 
 
@@ -37,18 +37,18 @@ The classic geometry of these trucks caters to all kinds of skateboarding, wheth
 While other trucks might offer a similar set of features, the cost savings you get with CCS Skateboard Trucks make them a worthy investment. Not only do you receive a dependable, durable truck, but you can also save money in the process. Give CCS Skateboard Trucks a try, and experience the perfect blend of style, performance, and affordability. 
 
 
-### [Royal Raw Skateboard Trucks - Model 144](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=royal-raw-skateboard-trucks-model-144)
+### [Royal Raw Skateboard Trucks - Model 144](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=royal-raw-skateboard-trucks-model-144)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=royal-raw-skateboard-trucks-model-144"><img alt="royal-raw-skateboard-trucks-144-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/royal-raw-skateboard-trucks-144-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=royal-raw-skateboard-trucks-model-144"><img alt="royal-raw-skateboard-trucks-144-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/royal-raw-skateboard-trucks-144-1/h=540,fit=pad,background=black"/></a></div>
 
 The Royal Raw Skateboard Trucks 144 are a perfect choice for riders seeking a combination of stability and surfy feel. These trucks offer a medium-height, 8.25-wide design for a smooth and responsive ride. 
 
 The standard kingpin and hanger provide solid support, while the bushings offer a touch of flexibility that will keep your ride interesting even in the winter. The Royal Raw Skateboard Trucks 144 have garnered high praise from users, with many praising their stability, lightweight construction, and pop. Some riders note that they offer an excellent blend of turning capabilities and technical performance, making them a sweet spot for riders seeking a balanced skateboarding experience. 
 
 
-### [Core Skateboard Trucks: High-Quality, Colorful, and Versatile Aluminum Alloy Choice](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=core-skateboard-trucks-high-quality-colorful-and-versatile-aluminum-alloy-choice)
+### [Core Skateboard Trucks: High-Quality, Colorful, and Versatile Aluminum Alloy Choice](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=core-skateboard-trucks-high-quality-colorful-and-versatile-aluminum-alloy-choice)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=core-skateboard-trucks-high-quality-colorful-and-versatile-aluminum-alloy-choice"><img alt="core-skateboard-trucks-aluminum-alloy-premium-bushings-choose-color-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/core-skateboard-trucks-aluminum-alloy-premium-bushings-choose-color-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=core-skateboard-trucks-high-quality-colorful-and-versatile-aluminum-alloy-choice"><img alt="core-skateboard-trucks-aluminum-alloy-premium-bushings-choose-color-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/core-skateboard-trucks-aluminum-alloy-premium-bushings-choose-color-size-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience a smooth and responsive ride with Core Skateboard Trucks. Crafted with high-quality aluminum alloy hangers and heavy duty baseplates, these trucks offer a premium feel. 
 
@@ -57,9 +57,9 @@ The super high rebound (SHR) bushings and pivot cups provide added durability an
 Available in a range of sizes, they fit decks from 7.5" to 8.0", making them a versatile choice for skaters on a budget who don't want to compromise on performance. 
 
 
-### [Enuff Skateboard Trucks: Classic Design, Ultra-Low for Stability](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=enuff-skateboard-trucks-classic-design-ultra-low-for-stability)
+### [Enuff Skateboard Trucks: Classic Design, Ultra-Low for Stability](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=enuff-skateboard-trucks-classic-design-ultra-low-for-stability)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=enuff-skateboard-trucks-classic-design-ultra-low-for-stability"><img alt="skateboard-trucks-enuff-covert-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skateboard-trucks-enuff-covert-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=enuff-skateboard-trucks-classic-design-ultra-low-for-stability"><img alt="skateboard-trucks-enuff-covert-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skateboard-trucks-enuff-covert-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Enuff skateboard trucks from Covert, and I was pleasantly surprised by the stable, smooth ride they offered. These trucks are designed to optimize strength while maintaining a lightweight feel, thanks to their ultra-low profile. The clean, classic lines incorporated into this superb weight-saving design are not only visually appealing but also practical. 
 
@@ -70,9 +70,9 @@ One thing I noticed was that the assembly bolts were sold separately, which can 
 In summary, the Enuff skateboard trucks from Covert are a solid choice for anyone looking for a stable, lightweight, and customizable skateboarding experience. 
 
 
-### [Tensor Mag Light Skateboard Trucks: High-Performance, Lightweight, and All-Terrain](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=tensor-mag-light-skateboard-trucks-high-performance-lightweight-and-all-terrain)
+### [Tensor Mag Light Skateboard Trucks: High-Performance, Lightweight, and All-Terrain](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=tensor-mag-light-skateboard-trucks-high-performance-lightweight-and-all-terrain)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=tensor-mag-light-skateboard-trucks-high-performance-lightweight-and-all-terrain"><img alt="tensor-mag-light-skateboard-trucks-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-mag-light-skateboard-trucks-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=tensor-mag-light-skateboard-trucks-high-performance-lightweight-and-all-terrain"><img alt="tensor-mag-light-skateboard-trucks-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-mag-light-skateboard-trucks-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 The Tensor Mag Light Skateboard Trucks in Silver are a must-have for any skateboard enthusiast. I was genuinely impressed with their weight, making them 30% lighter than any skateboard truck I've tried before. This feature alone is a game-changer, making it so much easier to perform tricks and tricks. 
 
@@ -85,9 +85,9 @@ One downside is the customer support, which I found to be unresponsive. While I 
 In conclusion, these Mag Light Skateboard Trucks are a remarkable choice for skateboarders in search of a lightweight, high-performing truck. Although there are a few minor drawbacks, the pros definitely outweigh the cons in this case. 
 
 
-### [Krux K5 Krome Rainbow Kitties Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-krome-rainbow-kitties-skateboard-trucks)
+### [Krux K5 Krome Rainbow Kitties Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-krome-rainbow-kitties-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-krome-rainbow-kitties-skateboard-trucks"><img alt="krux-k5-krome-rainbow-kitties-standard-skateboard-trucks-8-50-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-krome-rainbow-kitties-standard-skateboard-trucks-8-50-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-krome-rainbow-kitties-skateboard-trucks"><img alt="krux-k5-krome-rainbow-kitties-standard-skateboard-trucks-8-50-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-krome-rainbow-kitties-standard-skateboard-trucks-8-50-1/h=540,fit=pad,background=black"/></a></div>
 
 Skateboarding through a colorful world is made all the more enjoyable with the Krux K5 Krome Rainbow Kitties Standard Skateboard Trucks. These 8.50" hanger trucks come with a unique design that features a re-designed hanger and baseplate. I found that the quicker turning geometry made them more agile on the board compared to others. 
 
@@ -96,18 +96,18 @@ The new pivot shape and more durable injection molded pivot cup added a layer of
 However, I must say that the aesthetics might be a bit too cute for some. Overall, the Krux K5 Trucks are a great choice for those who seek a blend of functionality and cute charm. 
 
 
-### [Tensor Alloys Skateboard Trucks - Classic Design for Grinding](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=tensor-alloys-skateboard-trucks-classic-design-for-grinding)
+### [Tensor Alloys Skateboard Trucks - Classic Design for Grinding](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=tensor-alloys-skateboard-trucks-classic-design-for-grinding)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=tensor-alloys-skateboard-trucks-classic-design-for-grinding"><img alt="tensor-alloys-skateboard-trucks-raw-finish-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-alloys-skateboard-trucks-raw-finish-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=tensor-alloys-skateboard-trucks-classic-design-for-grinding"><img alt="tensor-alloys-skateboard-trucks-raw-finish-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-alloys-skateboard-trucks-raw-finish-1/h=540,fit=pad,background=black"/></a></div>
 
 These traditional aluminum alloy skateboard trucks, with their raw finish, bring a nostalgic charm to the forefront. I love how they bridge the gap between old-school aesthetics and modern handling. Tensor Trucks truly delivers on their promise of providing the best grind and impressive maneuverability. The company's dedication to quality is apparent, backed by their lifetime guarantee. 
 
 Despite the minor drawbacks of being incompatible with Dooks and not having a detailed sizing reference, these skateboard trucks have been a real force in my daily life. Their standard baseplate design and the perfect balance of weight add to their allure. Overall, the benefits of these trucks far outweigh their minor flaws, making them a dependable and stylish choice for any skateboarding enthusiast. 
 
 
-### [Grind King Disruptor Raw Skate Trucks 5.5" Hanger, 8.0" Axle (Pair)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=grind-king-disruptor-raw-skate-trucks-5-5-hanger-8-0-axle-pair)
+### [Grind King Disruptor Raw Skate Trucks 5.5" Hanger, 8.0" Axle (Pair)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=grind-king-disruptor-raw-skate-trucks-5-5-hanger-8-0-axle-pair)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=grind-king-disruptor-raw-skate-trucks-5-5-hanger-8-0-axle-pair"><img alt="grind-king-truck-co-disruptor-raw-skateboard-trucks-5-5-hanger-8-0-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grind-king-truck-co-disruptor-raw-skateboard-trucks-5-5-hanger-8-0-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=grind-king-disruptor-raw-skate-trucks-5-5-hanger-8-0-axle-pair"><img alt="grind-king-truck-co-disruptor-raw-skateboard-trucks-5-5-hanger-8-0-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grind-king-truck-co-disruptor-raw-skateboard-trucks-5-5-hanger-8-0-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 As a skateboard enthusiast, I recently tried out the Grind King Truck Co. Disruptor Raw Skateboard Trucks. These trucks truly lived up to their reputation of being reliable and sturdy. 
 
@@ -120,9 +120,9 @@ However, I did notice that the bushings required some fine-tuning to achieve the
 Overall, the Grind King Truck Co. Disruptor Raw Skateboard Trucks offered a great combination of performance, reliability, and customization options. They are definitely worth considering for any serious skateboarder looking to take their skills to the next level. 
 
 
-### [Shadow Black Skateboard Trucks by Gullwing - 5.25" Hanger, 8.0" Axle (Set of 2)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=shadow-black-skateboard-trucks-by-gullwing-5-25-hanger-8-0-axle-set-of-2)
+### [Shadow Black Skateboard Trucks by Gullwing - 5.25" Hanger, 8.0" Axle (Set of 2)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=shadow-black-skateboard-trucks-by-gullwing-5-25-hanger-8-0-axle-set-of-2)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=shadow-black-skateboard-trucks-by-gullwing-5-25-hanger-8-0-axle-set-of-2"><img alt="gullwing-trucks-shadow-black-skateboard-trucks-5-25-hanger-8-0-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-shadow-black-skateboard-trucks-5-25-hanger-8-0-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=shadow-black-skateboard-trucks-by-gullwing-5-25-hanger-8-0-axle-set-of-2"><img alt="gullwing-trucks-shadow-black-skateboard-trucks-5-25-hanger-8-0-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-shadow-black-skateboard-trucks-5-25-hanger-8-0-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the smooth ride of Gullwing Trucks Shadow Black Skateboard Trucks. These trucks, measuring 5.25 inches wide on a 8.0-inch axle, offer excellent stability on the board. Each set includes axle nuts and speed washers for an added touch of convenience. 
 
@@ -131,9 +131,9 @@ With a weight of 1.4 pounds, they're some of the lightest-weight trucks on the m
 Note that this set of skateboard trucks is only available as a pair. 
 
 
-### [Krux K5 Polished Silver Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-polished-silver-skateboard-trucks)
+### [Krux K5 Polished Silver Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-polished-silver-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-polished-silver-skateboard-trucks"><img alt="krux-k5-polished-silver-standard-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-polished-silver-standard-trucks-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-polished-silver-skateboard-trucks"><img alt="krux-k5-polished-silver-standard-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-polished-silver-standard-trucks-1/h=540,fit=pad,background=black"/></a></div>
 
 The Krux K5 Polished Silver Standard Trucks are a game changer for skateboard enthusiasts. These trucks have undergone numerous improvements, resulting in an exceptional ride quality. The re-designed hanger offers a smoother turning experience, while the baseplate boasts improved aesthetics. The enhanced axle formulation ensures a more secure fit, promising unwavering support on every ride. 
 
@@ -144,9 +144,9 @@ However, no product is without its flaws. Some users have reported that the truc
 Despite these minor setbacks, the Krux K5 Polished Silver Standard Trucks remain a popular choice for those looking to upgrade their setup. Embracing a combination of style and functionality, these trucks are an excellent addition to any skateboard enthusiast's collection. 
 
 
-### [Black Widow Krux K5 DLK Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=black-widow-krux-k5-dlk-skateboard-trucks)
+### [Black Widow Krux K5 DLK Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=black-widow-krux-k5-dlk-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=black-widow-krux-k5-dlk-skateboard-trucks"><img alt="krux-k5-dlk-standard-skateboard-trucks-black-widow-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-dlk-standard-skateboard-trucks-black-widow-8-00-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=black-widow-krux-k5-dlk-skateboard-trucks"><img alt="krux-k5-dlk-standard-skateboard-trucks-black-widow-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-dlk-standard-skateboard-trucks-black-widow-8-00-1/h=540,fit=pad,background=black"/></a></div>
 
 The Krux K5 DLK Standard Skateboard Trucks in Black Widow finish are a standout choice for your ride. Boasting an exact fit for 8-inch decks, these trucks tip the scales at just 340 grams each. With a Down Low Kingpin that adds a noticeable difference in performance, these trucks are built strong with SCM435 axles. 
 
@@ -155,9 +155,9 @@ Improved pivot cup designs keep everything secure, while the new geometry ensure
 Despite these minor setbacks, users are highly satisfied with the overall durability and feel of these trucks. 
 
 
-### [Independent Stage 11 Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-skateboard-trucks)
+### [Independent Stage 11 Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=independent-stage-11-skateboard-trucks"><img alt="independent-159-stage-11-skateboard-truck-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-159-stage-11-skateboard-truck-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=independent-stage-11-skateboard-trucks"><img alt="independent-159-stage-11-skateboard-truck-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-159-stage-11-skateboard-truck-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the legendary brand in skateboarding, known for its high-quality products and exceptional riding experience. Independent Stage 11 trucks feature a durable design that guarantees long-lasting performance. They are designed for all types of skateboarding, providing high-performance turn into and out of things, improved stability on landings, and better overall grind clearance. 
 
@@ -166,9 +166,9 @@ The 8.75" axles and 55mm height make them suitable for any skateboarding style. 
 The 159mm width provides the perfect balance between stability and maneuverability, making these trucks an outstanding choice for skateboarders of all levels. Purchase with confidence, knowing that Independent Trucks are guaranteed for life against manufacturer defects in materials or workmanship. 
 
 
-### [Classic Silver Skateboard Trucks for 7.25" Decks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=classic-silver-skateboard-trucks-for-7-25-decks)
+### [Classic Silver Skateboard Trucks for 7.25" Decks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=classic-silver-skateboard-trucks-for-7-25-decks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=classic-silver-skateboard-trucks-for-7-25-decks"><img alt="bullet-standard-skateboard-trucks-polished-silver-120-mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullet-standard-skateboard-trucks-polished-silver-120-mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=classic-silver-skateboard-trucks-for-7-25-decks"><img alt="bullet-standard-skateboard-trucks-polished-silver-120-mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullet-standard-skateboard-trucks-polished-silver-120-mm-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Bullet Standard Skateboard Trucks a try, and I must say, they've been a game-changer in my skateboarding experience. These bad boys are perfect for all-terrain shredding, with their classic geometry and premium high rebound 88a cushions. 
 
@@ -179,9 +179,9 @@ However, I must say that the bushings were a bit on the softer side, and it took
 Overall, the Bullet Standard Skateboard Trucks are a solid choice for anyone looking for a durable and reliable set of skateboard trucks at a budget-friendly price. With their classic design and robust construction, they're definitely worth considering for your next skateboarding adventure. 
 
 
-### [Royal Skateboard Trucks: Inverted Kingpin Design for Stable Steering](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=royal-skateboard-trucks-inverted-kingpin-design-for-stable-steering)
+### [Royal Skateboard Trucks: Inverted Kingpin Design for Stable Steering](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=royal-skateboard-trucks-inverted-kingpin-design-for-stable-steering)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=royal-skateboard-trucks-inverted-kingpin-design-for-stable-steering"><img alt="skateboard-truck-royal-inverted-raw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skateboard-truck-royal-inverted-raw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=royal-skateboard-trucks-inverted-kingpin-design-for-stable-steering"><img alt="skateboard-truck-royal-inverted-raw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/skateboard-truck-royal-inverted-raw-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Royal Inverted skateboard truck, and let me tell you, it made a world of difference in my skating experience. The inverted kingpin design was smooth and allowed for extra stability when doing grinds. 
 
@@ -192,18 +192,18 @@ However, there was one downside to the Royal Inverted. The supplied rubbers seem
 Overall, the Royal Inverted skateboard truck is a definite game-changer for any skater looking for improved steering and lightness. Just be prepared to replace the rubbers regularly to keep this bad boy in top shape. 
 
 
-### [Venture All Polished V Light Skateboard Trucks - 5.0 Hi](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=venture-all-polished-v-light-skateboard-trucks-5-0-hi)
+### [Venture All Polished V Light Skateboard Trucks - 5.0 Hi](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=venture-all-polished-v-light-skateboard-trucks-5-0-hi)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=venture-all-polished-v-light-skateboard-trucks-5-0-hi"><img alt="venture-all-polished-v-light-skateboard-truck-5-0-hi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/venture-all-polished-v-light-skateboard-truck-5-0-hi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=venture-all-polished-v-light-skateboard-trucks-5-0-hi"><img alt="venture-all-polished-v-light-skateboard-truck-5-0-hi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/venture-all-polished-v-light-skateboard-truck-5-0-hi-1/h=540,fit=pad,background=black"/></a></div>
 
 Venture All skateboard trucks have always been my go-to choice for smooth rides and quick turns on my board. The polished look adds an extra touch of style, while the hollow kingpin and forged baseplate guarantee a strong yet lightweight feel. With a snug 5-inch hang width and Venture's exclusive Quick Response Geometry, turning on a dime has never felt so natural. 
 
 It might not be the cheapest option on the market, but the durability and performance definitely make these skateboard trucks worth the investment. 
 
 
-### [Lightweight Hollow High Trucks for Skateboards](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=lightweight-hollow-high-trucks-for-skateboards)
+### [Lightweight Hollow High Trucks for Skateboards](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=lightweight-hollow-high-trucks-for-skateboards)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=lightweight-hollow-high-trucks-for-skateboards"><img alt="venture-all-polished-v-hollow-trucks-5-2-hi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/venture-all-polished-v-hollow-trucks-5-2-hi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=lightweight-hollow-high-trucks-for-skateboards"><img alt="venture-all-polished-v-hollow-trucks-5-2-hi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/venture-all-polished-v-hollow-trucks-5-2-hi-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who enjoys the thrill of taking my skateboard on a spin, I've come across the Venture All Polished V-Hollow Trucks. I must say, these trucks have been a game-changer. Having a high-truck height and a wide structure, these trucks provide a smooth and stable ride, ensuring that no wheel-bite interrupts the fun. 
 
@@ -214,18 +214,18 @@ However, like everything else, there were a few drawbacks. The one that stood ou
 Overall, my experience with Venture All Polished V-Hollow Trucks has been a positive one, and I'd highly recommend them to anyone who wants a durable, lightweight skateboard set. 
 
 
-### [Tensor Raw Aluminum Skateboard Trucks: High Performance and Durability](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=tensor-raw-aluminum-skateboard-trucks-high-performance-and-durability)
+### [Tensor Raw Aluminum Skateboard Trucks: High Performance and Durability](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=tensor-raw-aluminum-skateboard-trucks-high-performance-and-durability)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=tensor-raw-aluminum-skateboard-trucks-high-performance-and-durability"><img alt="tensor-new-raw-aluminum-skateboard-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-new-raw-aluminum-skateboard-trucks-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=tensor-raw-aluminum-skateboard-trucks-high-performance-and-durability"><img alt="tensor-new-raw-aluminum-skateboard-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-new-raw-aluminum-skateboard-trucks-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience exceptional durability and responsiveness with Tensor's Raw Aluminum Skateboard Trucks. These trucks are designed to offer a lighter feel, providing you with better control and tighter turning abilities. Their interlocking bushings ensure an incredibly smooth ride, while their refined geometry ensures you'll avoid any grind hang-ups. 
 
 The trucks' taller truck (55mm axle height) makes for a more impressive turning experience. Although they may be a bit expensive, their superior quality and unparalleled performance make them a worthwhile investment for serious skaters looking to up their game. 
 
 
-### [Krux Standard K5 Skateboard Trucks - Pur-fect Turn, Strong Axles](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-standard-k5-skateboard-trucks-pur-fect-turn-strong-axles)
+### [Krux Standard K5 Skateboard Trucks - Pur-fect Turn, Strong Axles](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-standard-k5-skateboard-trucks-pur-fect-turn-strong-axles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-standard-k5-skateboard-trucks-pur-fect-turn-strong-axles"><img alt="k5-galaxy-standard-krux-skateboard-trucks-8-25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-galaxy-standard-krux-skateboard-trucks-8-25-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-standard-k5-skateboard-trucks-pur-fect-turn-strong-axles"><img alt="k5-galaxy-standard-krux-skateboard-trucks-8-25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-galaxy-standard-krux-skateboard-trucks-8-25-1/h=540,fit=pad,background=black"/></a></div>
 
 Unveiled as the new kid on the block, the K5 Galaxy Standard Krux Skateboard Trucks are ready to redefine your skating experience. With a cool wavy baseplate that adds an element of style to your board, these trucks boast a new pivot shape and a durable injection molded pivot cup that provides a robust turn. The axles are designed with strength in mind, offering the ultimate cushioning for your skating needs. 
 
@@ -236,9 +236,9 @@ In terms of user feedback, there is a notable mixed response. Some users have ex
 Overall, the K5 Galaxy Standard Krux Skateboard Trucks have the potential to be a game-changer for experienced skateboarders, particularly those who prioritize durability and style. For novice skaters, they might be worth exploring, but there are certainly cheaper alternatives available. The brand's reputation and the new technology incorporated into these trucks are impressive, but skaters should also be aware of the potential cons before making a purchase. 
 
 
-### [Forged Hollow Mid Independent Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=forged-hollow-mid-independent-skateboard-trucks)
+### [Forged Hollow Mid Independent Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=forged-hollow-mid-independent-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=forged-hollow-mid-independent-skateboard-trucks"><img alt="forged-hollow-mid-independent-skateboard-trucks-139-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/forged-hollow-mid-independent-skateboard-trucks-139-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=forged-hollow-mid-independent-skateboard-trucks"><img alt="forged-hollow-mid-independent-skateboard-trucks-139-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/forged-hollow-mid-independent-skateboard-trucks-139-1/h=540,fit=pad,background=black"/></a></div>
 
 The Forged Hollow Mid Independent Skateboard Trucks from Indy are a well-loved choice among skateboarders, thanks to their superior construction and impressive performance on the streets. These trucks feature a 356 Aluminum hanger and baseplate, 4140 Chromoly steel axle, and a 50.5mm height for optimal performance. 
 
@@ -247,9 +247,9 @@ The inverted Grade 8 kingpin and steel shaft nut with nylon locking insert provi
 With their improved turning and lower profile, you'll experience better responsiveness and a smoother ride. 
 
 
-### [Independent Stage 11 Hollow Silver Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-hollow-silver-skateboard-trucks)
+### [Independent Stage 11 Hollow Silver Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-hollow-silver-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=independent-stage-11-hollow-silver-skateboard-trucks"><img alt="independent-stage-11-hollow-silver-standard-skateboard-trucks-159-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-stage-11-hollow-silver-standard-skateboard-trucks-159-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=independent-stage-11-hollow-silver-skateboard-trucks"><img alt="independent-stage-11-hollow-silver-standard-skateboard-trucks-159-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-stage-11-hollow-silver-standard-skateboard-trucks-159-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Independent Stage 11 Hollow Silver Standard Skateboard Trucks 159, and I have to say, it has been a game-changer in my skating experience. One of the greatest features is how agile and responsive this truck is, especially when it comes to maneuverability and tricks. I've noticed a significant difference in pop compared to my older trucks, allowing me to take my skills to a whole new level. 
 
@@ -258,18 +258,18 @@ The design of the forged baseplate and hollow axle and kingpin create a strong c
 One downside I've experienced is the weight of these trucks, which might make it a little harder for beginners to control and perform tricks. Nonetheless, for more experienced skaters, the pros undoubtedly outweigh the cons. I highly recommend these Independent trucks for skateboarders seeking a high-performance, responsive, and long-lasting option. 
 
 
-### [Cal 7 Matte Black Kingpin Longboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=cal-7-matte-black-kingpin-longboard-trucks)
+### [Cal 7 Matte Black Kingpin Longboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=cal-7-matte-black-kingpin-longboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=cal-7-matte-black-kingpin-longboard-trucks"><img alt="cal-7-180mm-reverse-kingpin-longboard-trucks-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cal-7-180mm-reverse-kingpin-longboard-trucks-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=cal-7-matte-black-kingpin-longboard-trucks"><img alt="cal-7-180mm-reverse-kingpin-longboard-trucks-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cal-7-180mm-reverse-kingpin-longboard-trucks-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Cal 7 180mm reverse kingpin longboard trucks offer impressive stability for downhill boards or super speed enthusiasts. These trucks have a hanger and axles that fit perfectly on boards with a width of 10.75-11 inches, making them an ideal option for longboards. 
 
 The aluminum construction ensures they are lightweight yet strong, providing the perfect balance for a smooth and stable ride. Though there are no specific reviews or ratings available for these longboard trucks, many users appreciate their stability and performance, making them a popular choice in the skateboarding community. 
 
 
-### [Ace Classic Matte Black Medium Skateboard Trucks for Wider Setups](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=ace-classic-matte-black-medium-skateboard-trucks-for-wider-setups)
+### [Ace Classic Matte Black Medium Skateboard Trucks for Wider Setups](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=ace-classic-matte-black-medium-skateboard-trucks-for-wider-setups)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=ace-classic-matte-black-medium-skateboard-trucks-for-wider-setups"><img alt="ace-classic-matte-black-skateboard-trucks-66-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-classic-matte-black-skateboard-trucks-66-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=ace-classic-matte-black-medium-skateboard-trucks-for-wider-setups"><img alt="ace-classic-matte-black-skateboard-trucks-66-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-classic-matte-black-skateboard-trucks-66-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on these Ace Classic Matte Black Skateboard Trucks and let me tell you, they're quite the powerhouse. The beefy 66's have a sizeable presence, and I found they work best on larger decks, around 9.1 inches wide and up. Ace has proven time and again that they know their stuff when it comes to skateboard trucks, so I had high hopes for these. But, while I was testing it, it became apparent that they had some room for improvement - mainly with the bushings. 
 
@@ -280,9 +280,9 @@ However, once I swapped the washers with something more robust, the wheels seeme
 Overall, I was impressed with the build quality of the Ace Classic Matte Black Skateboard Trucks. Although they require some adjustments on the bushings end, once corrected, they provide a smooth and predictable ride. 
 
 
-### [Krux K5 Downlow Kingpin Skateboard Trucks (Pair)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-downlow-kingpin-skateboard-trucks-pair)
+### [Krux K5 Downlow Kingpin Skateboard Trucks (Pair)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-downlow-kingpin-skateboard-trucks-pair)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-downlow-kingpin-skateboard-trucks-pair"><img alt="krux-k5-rainbow-2-dlk-standard-trucks-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-rainbow-2-dlk-standard-trucks-8-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-downlow-kingpin-skateboard-trucks-pair"><img alt="krux-k5-rainbow-2-dlk-standard-trucks-8-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-rainbow-2-dlk-standard-trucks-8-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Krux K5 Rainbow 2 DLK Standard Trucks, and I must say, they've been a real game-changer in my skating world. The price for a pair of these trucks is quite reasonable, making them a steal for their caliber. 
 
@@ -295,9 +295,9 @@ Manufactured in the USA, these trucks exude a sense of quality that I've come to
 Overall, my experience with the Krux K5 Rainbow 2 DLK Standard Trucks has been nothing short of impressive. The features and design of these trucks have really raised the bar for me in the world of skateboard trucks. 
 
 
-### [High-Performance Skateboard Trucks for Comfortable Rides](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=high-performance-skateboard-trucks-for-comfortable-rides)
+### [High-Performance Skateboard Trucks for Comfortable Rides](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=high-performance-skateboard-trucks-for-comfortable-rides)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=high-performance-skateboard-trucks-for-comfortable-rides"><img alt="mini-logo-skateboard-trucks-raw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-logo-skateboard-trucks-raw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=high-performance-skateboard-trucks-for-comfortable-rides"><img alt="mini-logo-skateboard-trucks-raw-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-logo-skateboard-trucks-raw-1/h=540,fit=pad,background=black"/></a></div>
 
 Mini Logo Skateboard Trucks offer a sleek design with a raw finish, making them a perfect addition to any skateboard. Their medium 94a bushings provide a smooth, precise feel, while their 8mm axles ensure a tight fit for better control. 
 
@@ -306,9 +306,9 @@ The high-rebound urethane bushings offer a responsive feel, ensuring a smooth ri
 Despite this minor drawback, the Mini Logo Skateboard Trucks provide excellent value for money and perform exceptionally well in daily use. 
 
 
-### [Innovative Mini Logo Skateboard Raw Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=innovative-mini-logo-skateboard-raw-trucks)
+### [Innovative Mini Logo Skateboard Raw Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=innovative-mini-logo-skateboard-raw-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=innovative-mini-logo-skateboard-raw-trucks"><img alt="mini-logo-skateboard-trucks-raw-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-logo-skateboard-trucks-raw-8-00-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=innovative-mini-logo-skateboard-raw-trucks"><img alt="mini-logo-skateboard-trucks-raw-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-logo-skateboard-trucks-raw-8-00-1/h=540,fit=pad,background=black"/></a></div>
 
 Mini Logo Skateboard Trucks - Raw - 8.00" are a perfect addition to any skateboard enthusiast's arsenal. I've had the pleasure of using these trucks for a while now, and they didn't need any break-in time to start performing like a charm. 
 
@@ -317,9 +317,9 @@ One feature that stood out to me is the precision 8mm axles with a slightly curv
 However, the lightweight hanger and baseplate do feel a bit less substantial than some other high-performance trucks. Overall, the Mini Logo Skateboard Trucks - Raw - 8.00" offer a great balance of strength, stability, and smooth turning, and are definitely worth considering if you're in the market for new skateboard trucks. 
 
 
-### [Ace AF1 Skateboard Trucks with Improved Performance and Strongest Cast Structure (9.0" Axle)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=ace-af1-skateboard-trucks-with-improved-performance-and-strongest-cast-structure-9-0-axle)
+### [Ace AF1 Skateboard Trucks with Improved Performance and Strongest Cast Structure (9.0" Axle)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=ace-af1-skateboard-trucks-with-improved-performance-and-strongest-cast-structure-9-0-axle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=ace-af1-skateboard-trucks-with-improved-performance-and-strongest-cast-structure-9-0-axle"><img alt="ace-skateboard-trucks-af1-silver-66-9-0-axle-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-skateboard-trucks-af1-silver-66-9-0-axle-pair-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=ace-af1-skateboard-trucks-with-improved-performance-and-strongest-cast-structure-9-0-axle"><img alt="ace-skateboard-trucks-af1-silver-66-9-0-axle-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-skateboard-trucks-af1-silver-66-9-0-axle-pair-1/h=540,fit=pad,background=black"/></a></div>
 
 The Ace Skateboard Trucks AF1 Silver 66 (9.0" Axle) Pair offers an exciting and innovative skating experience. Designed with a focus on performance and durability, these trucks feature a game-changing proprietary casting process that results in a 70% increase in aluminum's structural integrity. This makes them the strongest cast trucks available on the market. 
 
@@ -332,9 +332,9 @@ With a 4.9-star rating from 59 reviews, the Ace Skateboard Trucks AF1 Silver 66 
 In summary, the Ace Skateboard Trucks AF1 Silver 66 (9.0" Axle) Pair offers a top-quality skating experience for those looking to upgrade their trucks. With its innovative design, increased durability, and responsive performance, these trucks are a popular choice among skaters and are highly recommended for those seeking an enjoyable and satisfying skating experience. 
 
 
-### [Independent Stage 11 - Premier Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-premier-skateboard-trucks)
+### [Independent Stage 11 - Premier Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-premier-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=independent-stage-11-premier-skateboard-trucks"><img alt="independent-skateboard-trucks-stage-11-139-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-skateboard-trucks-stage-11-139-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=independent-stage-11-premier-skateboard-trucks"><img alt="independent-skateboard-trucks-stage-11-139-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-skateboard-trucks-stage-11-139-1/h=540,fit=pad,background=black"/></a></div>
 
 The Independent Raw 139 Stage 11 skateboard trucks stand out in the skateboarding scene as one of the most popular options for riders. With an improved turning performance that allows for smoother and more precise moves, these trucks also offer enhanced stability on landings and at high speeds. Say goodbye to pesky wheel bite as the design leads to a better overall grind clearance, providing riders with the perfect balance between control and responsiveness. 
 
@@ -343,18 +343,18 @@ The unique "No Hang-up" yoke is another standout feature that keeps things rolli
 With their smooth and responsive ride, as well as their long-lasting build, Independent Trucks are the go-to choice for skateboarders looking for a reliable and top-quality experience. 
 
 
-### [Slappy St1 Classic Skateboard Trucks for Polished Boards](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=slappy-st1-classic-skateboard-trucks-for-polished-boards)
+### [Slappy St1 Classic Skateboard Trucks for Polished Boards](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=slappy-st1-classic-skateboard-trucks-for-polished-boards)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=slappy-st1-classic-skateboard-trucks-for-polished-boards"><img alt="slappy-st1-classic-skateboard-trucks-polished-9-25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/slappy-st1-classic-skateboard-trucks-polished-9-25-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=slappy-st1-classic-skateboard-trucks-for-polished-boards"><img alt="slappy-st1-classic-skateboard-trucks-polished-9-25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/slappy-st1-classic-skateboard-trucks-polished-9-25-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the chance to try out the Slappy ST1 Classic Skateboard Trucks in my daily life, and let me tell you, I was pleasantly surprised. The grind clearance is just right, giving me the freedom to execute some of my most daring tricks without any hitches. The polished hangers and baseplate add a touch of sophistication, which I appreciate as these trucks are built with both aesthetics and function in mind. And let's not forget about the effortless turning – it was a breeze navigating through crowded streets and skate parks. 
 
 Of course, no product is perfect, and I did find a few minor drawbacks. Firstly, while the trucks are smooth and responsive, the turning radius seemed a bit narrower compared to some of my other boards. Second, I noticed some wear and tear on the hanger and baseplate after a couple of intense sessions, which may require more frequent maintenance than I'd like. But overall, the pros outweigh the cons, and I'm definitely sticking with my Slappy ST1 Classic Skateboard Trucks for the time being! 
 
 
-### [Independent Stage 11 Primitive Mid Gold Skateboard Trucks (139mm)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-primitive-mid-gold-skateboard-trucks-139mm)
+### [Independent Stage 11 Primitive Mid Gold Skateboard Trucks (139mm)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=independent-stage-11-primitive-mid-gold-skateboard-trucks-139mm)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=independent-stage-11-primitive-mid-gold-skateboard-trucks-139mm"><img alt="independent-stage-11-primitive-mid-skateboard-trucks-gold-139mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-stage-11-primitive-mid-skateboard-trucks-gold-139mm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=independent-stage-11-primitive-mid-gold-skateboard-trucks-139mm"><img alt="independent-stage-11-primitive-mid-skateboard-trucks-gold-139mm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/independent-stage-11-primitive-mid-skateboard-trucks-gold-139mm-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Primitive Mid Skateboard Trucks in gold, and I have to say, they blew me away. The gold plated hanger and baseplate not only looked amazing but felt so sturdy and durable. The black cushions and gold washers, nuts, and kingpin added a nice touch as well. 
 
@@ -365,9 +365,9 @@ However, there were a couple of drawbacks. For some reason, every once in a whil
 Overall, I was really impressed with the Primitive Mid Skateboard Trucks in gold. The combination of their style and performance made them a fantastic addition to my skate setup. If you're in the market for some new trucks, I'd definitely recommend giving these a try! 
 
 
-### [Softrucks Durable Indoor Skateboard Trucks for All Skill Levels](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=softrucks-durable-indoor-skateboard-trucks-for-all-skill-levels)
+### [Softrucks Durable Indoor Skateboard Trucks for All Skill Levels](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=softrucks-durable-indoor-skateboard-trucks-for-all-skill-levels)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=softrucks-durable-indoor-skateboard-trucks-for-all-skill-levels"><img alt="softrucks-indoor-practice-skateboard-trucks-cyan-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/softrucks-indoor-practice-skateboard-trucks-cyan-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=softrucks-durable-indoor-skateboard-trucks-for-all-skill-levels"><img alt="softrucks-indoor-practice-skateboard-trucks-cyan-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/softrucks-indoor-practice-skateboard-trucks-cyan-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try out the Softrucks Indoor Practice Skateboard Trucks in Cyan Blue. As a skater myself, I was excited to see if these would actually help me improve my skills without the fear of breaking my board or injuring myself. 
 
@@ -382,9 +382,9 @@ However, there was one area where the Softrucks fell short - the warning that th
 Overall, the Softrucks Indoor Practice Skateboard Trucks offered a convenient and safe way for me to improve my skating skills indoors. Even with the small chemical concern, I still found them to be a valuable addition to my skateboarding practice routine. 
 
 
-### [ACE AF1 Polished Skateboard Trucks for High-Performance and Durability](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=ace-af1-polished-skateboard-trucks-for-high-performance-and-durability)
+### [ACE AF1 Polished Skateboard Trucks for High-Performance and Durability](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=ace-af1-polished-skateboard-trucks-for-high-performance-and-durability)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=ace-af1-polished-skateboard-trucks-for-high-performance-and-durability"><img alt="ace-af1-polished-skateboard-trucks-22-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-af1-polished-skateboard-trucks-22-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=ace-af1-polished-skateboard-trucks-for-high-performance-and-durability"><img alt="ace-af1-polished-skateboard-trucks-22-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-af1-polished-skateboard-trucks-22-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Ace AF1 Polished Truck a spin in a local skate park, and I was pleasantly surprised by its performance. The hanger width is a comfortable 5.2 inches, making it easy to maneuver on high-speed turns. 
 
@@ -393,9 +393,9 @@ The trucks themselves are lightweight at just 1.44 pounds, which makes for a qui
 One downside I noticed was compatibility with non-compatible risers, making them a bit tricky to install. However, the smooth polished finish and high-quality materials make up for this small inconvenience. Overall, the Ace AF1 Polished Truck offers a solid skateboarding experience that's hard to beat. 
 
 
-### [Jizmo 7.75-8.25" Skateboard Trucks Kit with ABEC-11 Wheels and Tools for Beginners](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=jizmo-7-75-8-25-skateboard-trucks-kit-with-abec-11-wheels-and-tools-for-beginners)
+### [Jizmo 7.75-8.25" Skateboard Trucks Kit with ABEC-11 Wheels and Tools for Beginners](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=jizmo-7-75-8-25-skateboard-trucks-kit-with-abec-11-wheels-and-tools-for-beginners)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=jizmo-7-75-8-25-skateboard-trucks-kit-with-abec-11-wheels-and-tools-for-beginners"><img alt="jizmo-skateboard-trucks-fits-7-75-8-25-deck-skateboard-wheels-52mm-skateboard-bearings-abec-11-skate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jizmo-skateboard-trucks-fits-7-75-8-25-deck-skateboard-wheels-52mm-skateboard-bearings-abec-11-skate-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=jizmo-7-75-8-25-skateboard-trucks-kit-with-abec-11-wheels-and-tools-for-beginners"><img alt="jizmo-skateboard-trucks-fits-7-75-8-25-deck-skateboard-wheels-52mm-skateboard-bearings-abec-11-skate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jizmo-skateboard-trucks-fits-7-75-8-25-deck-skateboard-wheels-52mm-skateboard-bearings-abec-11-skate-1/h=540,fit=pad,background=black"/></a></div>
 
 Jizmo skateboard trucks offer a solid foundation for any skateboard, fitting decks up to 8.25 inches in width. Built with an emphasis on durability and performance, these trucks feature hollow axles and kingpins, ensuring smooth rolling and effortless maneuverability. Paired with high-precision ABEC-11 skateboard wheels, these trucks provide just the right amount of grip and speed for thrilling rides on the street and at skate parks. 
 
@@ -404,27 +404,27 @@ The included hardware and T-tool also make building and adjusting your skateboar
 However, don't forget to lubricate the wheels and bearings for optimal performance. 
 
 
-### [Carve-Specific Skateboard Trucks by Gullwing Sidewinder II](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=carve-specific-skateboard-trucks-by-gullwing-sidewinder-ii)
+### [Carve-Specific Skateboard Trucks by Gullwing Sidewinder II](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=carve-specific-skateboard-trucks-by-gullwing-sidewinder-ii)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=carve-specific-skateboard-trucks-by-gullwing-sidewinder-ii"><img alt="gullwing-trucks-sidewinder-ii-black-skateboard-double-kingpin-159mm-hanger-9-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-sidewinder-ii-black-skateboard-double-kingpin-159mm-hanger-9-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=carve-specific-skateboard-trucks-by-gullwing-sidewinder-ii"><img alt="gullwing-trucks-sidewinder-ii-black-skateboard-double-kingpin-159mm-hanger-9-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-sidewinder-ii-black-skateboard-double-kingpin-159mm-hanger-9-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate carving thrill with the Gullwing Sidewinder II Trucks, designed for a seamless and reactive ride. The advanced double kingpin setup ensures excellent handling, enabling effortless turns and quick momentum generation through pumping. 
 
 Engineered with 89a cone and barrel combo bushings, these trucks are ideally suited for longboarding with specialized carving capabilities. However, they are not recommended for downhill skateboarding. The stylish black finish with 9-inch axles adds a modern touch, making the trucks a standout accessory for your longboard.
 
 
-### [Tensor Mag Light Silver Skateboard Trucks - 5.5, Super Light and Strong Magnesium](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=tensor-mag-light-silver-skateboard-trucks-5-5-super-light-and-strong-magnesium)
+### [Tensor Mag Light Silver Skateboard Trucks - 5.5, Super Light and Strong Magnesium](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=tensor-mag-light-silver-skateboard-trucks-5-5-super-light-and-strong-magnesium)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=tensor-mag-light-silver-skateboard-trucks-5-5-super-light-and-strong-magnesium"><img alt="tensor-mag-light-lo-skateboard-trucks-silver-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-mag-light-lo-skateboard-trucks-silver-5-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=tensor-mag-light-silver-skateboard-trucks-5-5-super-light-and-strong-magnesium"><img alt="tensor-mag-light-lo-skateboard-trucks-silver-5-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-mag-light-lo-skateboard-trucks-silver-5-5-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Tensor Mag Light Silver Skateboard Trucks in 5.5, and I was impressed by how light and strong these trucks are. They're made of magnesium and have hollow axles and kingpins, making them up to 29% lighter than the industry standard. As someone who prefers flatground skating, the lighter weight really helped me with my ollies. 
 
 The trucks have a smooth grinding and fast turning feel, which is great for navigating through tight spaces or taking on challenging terrain. However, I did encounter an issue with one of the front posts snapping in half after a short period of use during a nollie flip. Despite this setback, the overall quality of the Tensor Mag Light trucks is impressive, and I'd definitely recommend them to others looking for a lightweight, high-performance skateboarding experience. 
 
 
-### [Krux K5 Skateboard Trucks - High-Performance 8.00" DLK Standard Design](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-skateboard-trucks-high-performance-8-00-dlk-standard-design)
+### [Krux K5 Skateboard Trucks - High-Performance 8.00" DLK Standard Design](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-skateboard-trucks-high-performance-8-00-dlk-standard-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-skateboard-trucks-high-performance-8-00-dlk-standard-design"><img alt="krux-k5-kien-caples-dlk-standard-skateboard-trucks-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-kien-caples-dlk-standard-skateboard-trucks-8-00-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-skateboard-trucks-high-performance-8-00-dlk-standard-design"><img alt="krux-k5-kien-caples-dlk-standard-skateboard-trucks-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-kien-caples-dlk-standard-skateboard-trucks-8-00-1/h=540,fit=pad,background=black"/></a></div>
 
 I was pretty excited to try out the Krux K5 DLK Skateboard Trucks, and I have to say, they've been a great addition to my skateboard setup. The first thing I noticed was the graphic design on these trucks - it's a real eye-catcher! And while aesthetics are important, I was looking for something more than just a pretty design. 
 
@@ -435,9 +435,9 @@ As much as I love these trucks, I did encounter a couple of issues. First off, t
 Another downside was the weight of these trucks. They felt a bit heavy compared to some other options on the market, which might not be ideal for some riders. But overall, I found myself enjoying the Krux K5 DLK Skateboard Trucks, and the pros definitely outweigh the cons. With serious grind clearance and improved performance, these trucks are a fantastic addition to any skateboarder's setup. 
 
 
-### [Krux Skateboard Trucks K5 Cat Party 2 DLK for High-Performance Riding Experience](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-skateboard-trucks-k5-cat-party-2-dlk-for-high-performance-riding-experience)
+### [Krux Skateboard Trucks K5 Cat Party 2 DLK for High-Performance Riding Experience](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-skateboard-trucks-k5-cat-party-2-dlk-for-high-performance-riding-experience)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-skateboard-trucks-k5-cat-party-2-dlk-for-high-performance-riding-experience"><img alt="k5-cat-party-2-dlk-krux-skateboard-trucks-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-cat-party-2-dlk-krux-skateboard-trucks-8-00-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-skateboard-trucks-k5-cat-party-2-dlk-for-high-performance-riding-experience"><img alt="k5-cat-party-2-dlk-krux-skateboard-trucks-8-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-cat-party-2-dlk-krux-skateboard-trucks-8-00-1/h=540,fit=pad,background=black"/></a></div>
 
 For any skateboard aficionado, the K5 Cat Party 2 DLK Krux Skateboard Trucks are a must-have. Boasting a stunning silver and orange finish with Fos Eyes Graphics, these stylish trucks are sure to draw attention on the streets. Famous for their exceptional bushings, Krux guarantees a highly responsive turning experience.
 
@@ -448,9 +448,9 @@ Manufactured in the USA to ensure only the finest quality, these skateboard truc
 The K5 Cat Party 2 DLK Krux Skateboard Trucks have garnered a well-deserved 5 out of 5 star customer rating, thanks to their perfect blend of style, performance, and affordability. Whether you're an accomplished pro or just beginning your skateboarding adventure, these trucks promise a smooth and awe-inspiring ride.
 
 
-### [Tensor Trucks Alloy Polished Skateboard Trucks - 6.0" Hanger 8.75" Axle (Set of 2)](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2)
+### [Tensor Trucks Alloy Polished Skateboard Trucks - 6.0" Hanger 8.75" Axle (Set of 2)](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2"><img alt="tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2"><img alt="tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tensor-trucks-alloy-polished-skateboard-trucks-6-0-hanger-8-75-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 Tensor Trucks Alloy Polished Skateboard Trucks - these durable alloy trucks are perfect for skateboarders looking for a reliable and smooth ride. With a hanger width of 6.0 inches and an axle width of 8.75 inches, these trucks offer a great balance of performance and stability. 
 
@@ -459,9 +459,9 @@ At just 1.44 pounds, they're also lightweight, making them easier to maneuver. T
 Overall, if you're in the market for a new set of skateboard trucks, Tensor Trucks Alloy Polished Skateboard Trucks - 6.0" Hanger 8.75" Axle (Set of 2) are a great choice. 
 
 
-### [Krux K5 No Parking DLK Standard Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-no-parking-dlk-standard-skateboard-trucks)
+### [Krux K5 No Parking DLK Standard Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-no-parking-dlk-standard-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-no-parking-dlk-standard-skateboard-trucks"><img alt="krux-k5-no-parking-dlk-standard-truck-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-no-parking-dlk-standard-truck-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-no-parking-dlk-standard-skateboard-trucks"><img alt="krux-k5-no-parking-dlk-standard-truck-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/krux-k5-no-parking-dlk-standard-truck-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Krux K5 No Parking DLK Standard Trucks, and I must say, I've never had a skateboarding experience quite like it. The polished silver hanger and baseplate looked sleek and stylish, catching my eye every time I passed by. The curb graphic added a certain edge to their design, giving them an appealing rebellious twist. 
 
@@ -474,9 +474,9 @@ However, I did notice that they were a little challenging to set up initially. I
 Overall, I highly recommend the Krux K5 No Parking DLK Standard Trucks for their sleek design and impressive performance. They're sure to turn heads while providing the perfect blend of style and functionality on the skateboarding scene. 
 
 
-### [Gullwing Charger Rasta Black Skateboard Trucks Set](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=gullwing-charger-rasta-black-skateboard-trucks-set)
+### [Gullwing Charger Rasta Black Skateboard Trucks Set](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=gullwing-charger-rasta-black-skateboard-trucks-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=gullwing-charger-rasta-black-skateboard-trucks-set"><img alt="gullwing-trucks-charger-black-rasta-skateboard-trucks-185mm-hanger-10-inch-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-charger-black-rasta-skateboard-trucks-185mm-hanger-10-inch-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=gullwing-charger-rasta-black-skateboard-trucks-set"><img alt="gullwing-trucks-charger-black-rasta-skateboard-trucks-185mm-hanger-10-inch-axle-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gullwing-trucks-charger-black-rasta-skateboard-trucks-185mm-hanger-10-inch-axle-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I tested out the Gullwing Trucks Charger Black / Rasta Skateboard Reverse Kingpin Trucks - 7.25" Hanger 10.0" Axle (Set of 2), and I must say, I was quite impressed with their robust construction and smooth performance. As a novice skateboarder, I found the trucks to be incredibly nimble and reactive, enabling me to carve smoothly and glide effortlessly. The premium materials used in their construction instilled in me a sense of assurance that they would provide lasting value.
 
@@ -485,9 +485,9 @@ One aspect I noticed is that these trucks are somewhat hefty relative to other o
 My overall experience with these trucks has been nothing short of positive, and I would highly recommend them to others. The blend of their durability, silky-smooth ride, and reactive responsiveness makes them a noteworthy choice for skateboard aficionados.
 
 
-### [Krux K5 Chompers DLK Skateboard Trucks for Ultimate Grind and Rigidity](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=krux-k5-chompers-dlk-skateboard-trucks-for-ultimate-grind-and-rigidity)
+### [Krux K5 Chompers DLK Skateboard Trucks for Ultimate Grind and Rigidity](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=krux-k5-chompers-dlk-skateboard-trucks-for-ultimate-grind-and-rigidity)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=krux-k5-chompers-dlk-skateboard-trucks-for-ultimate-grind-and-rigidity"><img alt="k5-chompers-dlk-standard-skateboard-trucks-krux-no-color-9-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-chompers-dlk-standard-skateboard-trucks-krux-no-color-9-00-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=krux-k5-chompers-dlk-skateboard-trucks-for-ultimate-grind-and-rigidity"><img alt="k5-chompers-dlk-standard-skateboard-trucks-krux-no-color-9-00-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/k5-chompers-dlk-standard-skateboard-trucks-krux-no-color-9-00-1/h=540,fit=pad,background=black"/></a></div>
 
 Ready to take your skate game up a notch? The K5 Chompers DLK Krux trucks are just the ticket, offering a bold new design that's as impressive as it is effective. These trucks boast impressive durability, delivering a fierce performance that can handle the toughest of tricks. 
 
@@ -496,9 +496,9 @@ The attention to detail is second to none, with artwork by Todd Bratrud adding a
 So, gear up, and chomp those curbs in style! 
 
 
-### [Atlas Truck Co. Ultralight Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=atlas-truck-co-ultralight-skateboard-trucks)
+### [Atlas Truck Co. Ultralight Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=atlas-truck-co-ultralight-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=atlas-truck-co-ultralight-skateboard-trucks"><img alt="atlas-truck-co-ultralight-48-degree-longboard-trucks-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atlas-truck-co-ultralight-48-degree-longboard-trucks-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=atlas-truck-co-ultralight-skateboard-trucks"><img alt="atlas-truck-co-ultralight-48-degree-longboard-trucks-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atlas-truck-co-ultralight-48-degree-longboard-trucks-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Atlas Truck Co. Ultralight 48 Degree Longboard Trucks a spin for an extended morning, and I must say, the whole experience was refreshingly different from the trucks I've used in the past. 
 
@@ -513,18 +513,18 @@ However, I did notice a slight wobble on high-speed turns. Nothing that would di
 Overall, these Atlas 180mm Ultralight trucks have made a new kingpin in my book. They're not perfect, but there's no perfect truck when you're dealing with the dynamics of gravity and concrete. These trucks definitely give you a taste of luxury for a budget price—and I'm a fan. 
 
 
-### [ACE AF1: High-Performance Skateboard Truck, Medium Height, 9.5 Width](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=ace-af1-high-performance-skateboard-truck-medium-height-9-5-width)
+### [ACE AF1: High-Performance Skateboard Truck, Medium Height, 9.5 Width](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=ace-af1-high-performance-skateboard-truck-medium-height-9-5-width)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=ace-af1-high-performance-skateboard-truck-medium-height-9-5-width"><img alt="ace-77-af1-9-5-truck-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-77-af1-9-5-truck-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=ace-af1-high-performance-skateboard-truck-medium-height-9-5-width"><img alt="ace-77-af1-9-5-truck-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-77-af1-9-5-truck-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 The ACE AF1 9.5" Truck, Gray is a revolutionary product in the skateboarding world. With a medium truck height and a 9.5" truck width, it's designed to provide optimal stability and comfort while offering exceptional performance on the board. Made from high-quality materials, this truck boasts a 70% increase in structural integrity compared to its predecessors, making it the strongest cast truck available on the market. 
 
 The ACE AF1 is crafted using a proprietary casting process, ensuring that each unit is meticulously manufactured to exacting standards. Its game-changing performance and commitment to quality have earned it a remarkable 4.9 rating from satisfied customers, with 59.0 reviews showcasing its superiority in the skateboarding truck market. 
 
 
-### [Paris V2 Longboard Skateboard Trucks Set of 2](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=paris-v2-longboard-skateboard-trucks-set-of-2)
+### [Paris V2 Longboard Skateboard Trucks Set of 2](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=paris-v2-longboard-skateboard-trucks-set-of-2)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=paris-v2-longboard-skateboard-trucks-set-of-2"><img alt="paris-v2-180mm-50-longboard-skateboard-trucks-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/paris-v2-180mm-50-longboard-skateboard-trucks-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=paris-v2-longboard-skateboard-trucks-set-of-2"><img alt="paris-v2-180mm-50-longboard-skateboard-trucks-set-of-2-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/paris-v2-180mm-50-longboard-skateboard-trucks-set-of-2-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Paris V2 180mm 50° Longboard Skateboard Trucks set and I must say, they've been a Gamechanger in my skateboarding experience. The 50° baseplate delivers a responsive and playful truck allowing for a fluid, effortless ride. The open, unrestrictive bushing seat and positive hanger rake provide a full-tilt, lively turn that's perfect for smooth carving and pumping. 
 
@@ -533,9 +533,9 @@ The 180mm hanger size is the go-to for most longboard decks, handling every styl
 While they might be a bit pricey, the Paris V2 trucks are a worthwhile investment for any skateboarding enthusiast. They're not just durable but also look fantastic with their multiple colorways. The customer service is top-notch as well, ensuring you have the best experience with your purchase. 
 
 
-### [Slappy St1 Polished 7.75" Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=slappy-st1-polished-7-75-skateboard-trucks)
+### [Slappy St1 Polished 7.75" Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=slappy-st1-polished-7-75-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=slappy-st1-polished-7-75-skateboard-trucks"><img alt="slappy-st1-hollow-skateboard-trucks-polished-7-75-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/slappy-st1-hollow-skateboard-trucks-polished-7-75-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=slappy-st1-polished-7-75-skateboard-trucks"><img alt="slappy-st1-hollow-skateboard-trucks-polished-7-75-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/slappy-st1-hollow-skateboard-trucks-polished-7-75-1/h=540,fit=pad,background=black"/></a></div>
 
 As a skateboard enthusiast, I've always been on the lookout for high-quality trucks to enhance my rides. The Slappy St1 Hollow Skateboard Trucks did not disappoint. The hollow kingpins and axles gave the board a lightweight yet strong feel, allowing me to maneuver the board with ease. 
 
@@ -546,9 +546,9 @@ However, one minor drawback I noticed was that these trucks were sold individual
 In conclusion, the Slappy St1 Hollow Skateboard Trucks provided me with a comforting and smooth ride. Despite the single-truck arrangement, the trucks' unique features and high-quality materials made them a solid choice for any skateboarder looking to level up their experience. 
 
 
-### [Mindless Surfskate Trucks - Fast and Smooth Skateboard Experience](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=mindless-surfskate-trucks-fast-and-smooth-skateboard-experience)
+### [Mindless Surfskate Trucks - Fast and Smooth Skateboard Experience](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=mindless-surfskate-trucks-fast-and-smooth-skateboard-experience)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=mindless-surfskate-trucks-fast-and-smooth-skateboard-experience"><img alt="mindless-surfskate-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mindless-surfskate-trucks-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=mindless-surfskate-trucks-fast-and-smooth-skateboard-experience"><img alt="mindless-surfskate-trucks-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mindless-surfskate-trucks-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Mindless Surf Skate trucks - the perfect addition to your longboard ride! These trucks boast a size of 159mm and a height of 85mm, ensuring a stable and responsive performance. The unique rear truck angle of 73° and front truck angle of 90° make for a fast, tight, progressive ride, perfect for both newbies and experienced skaters. 
 
@@ -557,9 +557,9 @@ The trucks come complete with bushings at 82A and 78°, providing a smooth and c
 So why wait? Add some flair to your longboard game with the Mindless Surf Skate trucks today! 
 
 
-### [Ace AF1 Low 8.75" Skateboard Trucks - XLE/Kingpin Style](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=ace-af1-low-8-75-skateboard-trucks-xle-kingpin-style)
+### [Ace AF1 Low 8.75" Skateboard Trucks - XLE/Kingpin Style](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=ace-af1-low-8-75-skateboard-trucks-xle-kingpin-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=ace-af1-low-8-75-skateboard-trucks-xle-kingpin-style"><img alt="ace-60-af1-low-8-75-truck-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-60-af1-low-8-75-truck-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=ace-af1-low-8-75-skateboard-trucks-xle-kingpin-style"><img alt="ace-60-af1-low-8-75-truck-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ace-60-af1-low-8-75-truck-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Ace 60 AF1 Low 8.75" Truck, Gray. As a skateboard enthusiast, I was thrilled to test this truck in my daily life. One of the first things I noticed was its low profile, which provided amazing stability while cruising. This feature made the truck an excellent choice for maintaining balance on uneven surfaces. 
 
@@ -568,18 +568,18 @@ However, I also noticed that the narrow profile sacrificed a bit of turning radi
 The machine polishing of the truck added a sleek and stylish touch, making it stand out among other trucks on the market. As a skater who appreciates performance without compromising aesthetics, the Ace 60 AF1 Low was a fantastic addition to my board. 
 
 
-### [Havoc Silver Skateboard Trucks](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=havoc-silver-skateboard-trucks)
+### [Havoc Silver Skateboard Trucks](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=havoc-silver-skateboard-trucks)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=havoc-silver-skateboard-trucks"><img alt="havoc-skateboard-trucks-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/havoc-skateboard-trucks-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=havoc-silver-skateboard-trucks"><img alt="havoc-skateboard-trucks-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/havoc-skateboard-trucks-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 The Havoc Skateboard Trucks come in a silver finish and include 2 trucks for a complete set. The hangers measure 5.25 inches, while the axle stretches 8.25 inches from tip to tip. These trucks are designed to work with skateboards between 7.8 to 8.4 inches wide. 
 
 Users have mixed opinions about the product's quality; some praise the affordable price and durability, while others express dissatisfaction with the bushings and overall build. These skateboard trucks may be an excellent option for those on a budget or looking for a beginner-friendly option. 
 
 
-### [Thunder Polished High Trucks for Advanced Skateboarding Performance](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=thunder-polished-high-trucks-for-advanced-skateboarding-performance)
+### [Thunder Polished High Trucks for Advanced Skateboarding Performance](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=thunder-polished-high-trucks-for-advanced-skateboarding-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=thunder-polished-high-trucks-for-advanced-skateboarding-performance"><img alt="thunder-polished-trucks-147-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/thunder-polished-trucks-147-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=thunder-polished-high-trucks-for-advanced-skateboarding-performance"><img alt="thunder-polished-trucks-147-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/thunder-polished-trucks-147-1/h=540,fit=pad,background=black"/></a></div>
 
 As a skateboarder, I've always been on the lookout for the perfect trucks that could give me the right balance of maneuverability and stability. And when I first tried the Thunder Polished Hi 147s, I knew I had found a game-changer. 
 
@@ -592,9 +592,9 @@ However, no product is perfect, and the Thunder Polished Hi 147s did have a few 
 Despite this minor issue, I truly believe the Thunder Polished Hi 147s are some of the best skateboard trucks out there. Their combination of responsiveness, lightweight design, and premium quality make them a worthy investment for any advanced skateboarder looking to take their skills to the next level. 
 
 
-### [Forged Mid-Height Skateboard Trucks 159 - Hollow Forged for Optimal Performance](https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm\_term=forged-mid-height-skateboard-trucks-159-hollow-forged-for-optimal-performance)
+### [Forged Mid-Height Skateboard Trucks 159 - Hollow Forged for Optimal Performance](https://serp.ly/@bar/amazon/Skateboard+Trucks?utm\_term=forged-mid-height-skateboard-trucks-159-hollow-forged-for-optimal-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks?utm_term=forged-mid-height-skateboard-trucks-159-hollow-forged-for-optimal-performance"><img alt="forged-hollow-mid-independent-skateboard-trucks-159-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/forged-hollow-mid-independent-skateboard-trucks-159-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks?utm_term=forged-mid-height-skateboard-trucks-159-hollow-forged-for-optimal-performance"><img alt="forged-hollow-mid-independent-skateboard-trucks-159-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/forged-hollow-mid-independent-skateboard-trucks-159-1/h=540,fit=pad,background=black"/></a></div>
 
 The Forged Hollow Mid Independent Skateboard Trucks, with a 4.7-star rating and 58.0 reviews, offer an impressive skating experience. These trucks feature an exact fit for 8.75 skateboard decks and are built using high-quality materials like A356 T6 Aluminum Hanger, Forged 6061 Aluminum Baseplate, and Chromoly Steel Axle. The hollow axle ensures a lightweight feel, while the inverted kingpin provides an enhanced turning experience. 
 
@@ -610,7 +610,7 @@ Choosing the right skateboard trucks is essential to ensure you have a smooth, s
 
 Skateboard trucks are typically made from either aluminum or steel. Aluminum trucks tend to be lighter and more affordable, making them a popular choice among beginners. However, they might not be as durable as steel trucks. Steel trucks are heavier but offer better strength and stability, which can be beneficial for more advanced riders or those who plan to use their skateboard in demanding conditions. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-2/h=540,fit=pad,background=black" alt="Skateboard-Trucks-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-2/h=540,fit=pad,background=black" alt="Skateboard-Trucks-2" height="540"></a></div>
 
 
 ### Axis Type
@@ -622,7 +622,7 @@ Skateboard trucks can have either a standard axle or an axle with bushings. Stan
 
 There are two main hanger types for skateboard trucks: standard hanger and reverse kingpin (RKP). Standard hangers have the pivot cups facing outwards, which helps to keep the truck stable when carving or performing tricks. RKP hangers have the pivot cups facing inwards, which makes it easier to initiate turns and adds a bit of extra looseness to the ride. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-3/h=540,fit=pad,background=black" alt="Skateboard-Trucks-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-3/h=540,fit=pad,background=black" alt="Skateboard-Trucks-3" height="540"></a></div>
 
 
 ### Configuration
@@ -632,7 +632,7 @@ Skateboard trucks come in three different configurations: regular, classic, and 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-4/h=540,fit=pad,background=black" alt="Skateboard-Trucks-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-4/h=540,fit=pad,background=black" alt="Skateboard-Trucks-4" height="540"></a></div>
 
 
 ### What are skateboard trucks and their importance?
@@ -648,7 +648,7 @@ The height of skateboard trucks plays a crucial role in the turning and stabilit
 
 On the other hand, high trucks boast a higher hanger height, fostering a more responsive and carvy feel. Freestyle and trick skaters often prefer high trucks, as they provide better leverage for executing popping and grinding tricks. High trucks offer a higher clearance, benefiting skaters who perform high ollies or other vert-oriented tricks. The choice between low and high skateboard trucks ultimately depends on the rider's preferences, skill level, and intended style of skating. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-5/h=540,fit=pad,background=black" alt="Skateboard-Trucks-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-5/h=540,fit=pad,background=black" alt="Skateboard-Trucks-5" height="540"></a></div>
 
 
 ### What materials are skateboard trucks made of?
@@ -662,7 +662,7 @@ When shopping for skateboard trucks, consider the style of skating you predomina
 
 Additionally, pay attention to the truck's width and axle length, as these factors impact the overall feel and performance of your skateboard. Wider trucks generally provide better support and control, while narrower trucks offer increased maneuverability. It is crucial to strike a balance that aligns with your riding style and preferences. Consulting with a local skateboard shop or experienced skateboarder can provide valuable guidance and personalized advice for selecting the right trucks for your needs. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-6/h=540,fit=pad,background=black" alt="Skateboard-Trucks-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Skateboard+Trucks"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Skateboard-Trucks-6/h=540,fit=pad,background=black" alt="Skateboard-Trucks-6" height="540"></a></div>
 
 
 ### Can I install skateboard trucks myself, or do I need professional help?

@@ -15,9 +15,9 @@ Get ready to explore the wild and unique world of Junk Gypsy Boots! In this arti
 ## Reviews
 
 
-### [Junk Gypsy Dreamer Boots for Western Fashion](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-dreamer-boots-for-western-fashion)
+### [Junk Gypsy Dreamer Boots for Western Fashion](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-dreamer-boots-for-western-fashion)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-dreamer-boots-for-western-fashion"><img alt="junk-gypsy-by-lane-womens-turquoise-dreamer-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-turquoise-dreamer-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-dreamer-boots-for-western-fashion"><img alt="junk-gypsy-by-lane-womens-turquoise-dreamer-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-turquoise-dreamer-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been rocking these turquoise dreamer boots by Lane lately and I must say, they've become my go-to for when I want to make a statement. The distress leather construction provides that raw, edgy feel that truly sets these boots apart. The flowing fringe adds a touch of whimsy and playfulness that makes these boots really stand out. And let's not forget about the unique and subtle winged-heart detail on the upper; it's a feature that really puts these boots in a league of their own. 
 
@@ -26,9 +26,9 @@ However, just because they look unforgettable doesn't mean they're perfect. Whil
 When it comes down to it, these Lane boots are a sight to behold and they are truly one-of-a-kind. But with the pros come the cons; the price you pay for the unparalleled style is a bit of a heavier-than-desired boot and some durability issues. Nonetheless, if you're looking for a pair of boots that'll turn heads and spark conversations, then these are the dreamers you've been looking for. 
 
 
-### [Junk Gypsy Spitfire Boots - Black Snip Toe Women's Style](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-spitfire-boots-black-snip-toe-womens-style)
+### [Junk Gypsy Spitfire Boots - Black Snip Toe Women's Style](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-spitfire-boots-black-snip-toe-womens-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-spitfire-boots-black-snip-toe-womens-style"><img alt="junk-gypsy-by-lane-womens-black-spitfire-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-black-spitfire-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-spitfire-boots-black-snip-toe-womens-style"><img alt="junk-gypsy-by-lane-womens-black-spitfire-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-black-spitfire-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine stepping out into the night, clad in a stunning pair of Lane Women's Black Spitfire Boots. The first thing you notice is the full-grain leather that gives these boots a premium, luxurious feel. As you slide your foot into them, the cushioned footbed provides instant comfort, wrapping your foot in a warm, cozy embrace. 
 
@@ -39,18 +39,18 @@ In my experience, there were a few things that stood out. On the positive side, 
 Overall, the Lane Women's Black Spitfire Boots are a bold and stylish choice for anyone looking to make a statement. While they may not be perfect for everyone, their comfort and unique design are sure to impress. 
 
 
-### [Junk Gypsy Hwy 237 Western Bootie with Harness Straps](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-hwy-237-western-bootie-with-harness-straps)
+### [Junk Gypsy Hwy 237 Western Bootie with Harness Straps](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-hwy-237-western-bootie-with-harness-straps)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-hwy-237-western-bootie-with-harness-straps"><img alt="womens-lane-boots-x-junk-gypsy-hwy-237-bootie-black-leather-6-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-lane-boots-x-junk-gypsy-hwy-237-bootie-black-leather-6-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-hwy-237-western-bootie-with-harness-straps"><img alt="womens-lane-boots-x-junk-gypsy-hwy-237-bootie-black-leather-6-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-lane-boots-x-junk-gypsy-hwy-237-bootie-black-leather-6-m-1/h=540,fit=pad,background=black"/></a></div>
 
 The HWY 237 Boot from Junk Gypsy is a stylish ankle boot designed to add an edgy touch to your wardrobe. Made of full-grain leather, these booties feature a 7" harness and buckle shaft, which adds to their Western charm. The leather lining provides a comfortable fit, while the elastic side gores ensure a better shape, allowing you to move freely without restriction. 
 
 With a leather outsole and single welt construction, these boots are built to last, and the Western heel offers a distinct, fashionable stance. Overall, the HWY 237 Boot is a chic choice for those seeking both style and comfort. 
 
 
-### [Junk Gypsy Snip Toe Vagabond Western Boot](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-snip-toe-vagabond-western-boot)
+### [Junk Gypsy Snip Toe Vagabond Western Boot](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-snip-toe-vagabond-western-boot)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-snip-toe-vagabond-western-boot"><img alt="junk-gypsy-by-lane-womens-vagabond-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-vagabond-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-snip-toe-vagabond-western-boot"><img alt="junk-gypsy-by-lane-womens-vagabond-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-vagabond-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I tried on the Junk Gypsy by Lane Women's Vagabond Western Boots with a 16-inch shaft and Western-inspired details. These comfortable boots feature a 2 3/4-inch western heel, making them the perfect addition to any outfit. The full-grain leather material provides a luxurious look, while the cushioned footbed ensures all-day comfort. 
 
@@ -59,9 +59,9 @@ What stood out to me were the stunning stitched eagle detail along the shaft and
 However, I noticed that the boots are true to size, so it's essential to order your correct size to ensure the best fit. Some customers have reported minor issues with the manufacturing process, such as the heel being slightly bent or missing parts. Overall, I believe these Junk Gypsy by Lane Women's Vagabond Western Boots are a fantastic choice for adding a touch of western flair to your look. 
 
 
-### [Junk Gypsy Ladies Distressed Black Thunderbird Boots](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-ladies-distressed-black-thunderbird-boots)
+### [Junk Gypsy Ladies Distressed Black Thunderbird Boots](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-ladies-distressed-black-thunderbird-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-ladies-distressed-black-thunderbird-boots"><img alt="junk-gypsy-ladies-distressed-black-thunderbird-boots-6-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-ladies-distressed-black-thunderbird-boots-6-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-ladies-distressed-black-thunderbird-boots"><img alt="junk-gypsy-ladies-distressed-black-thunderbird-boots-6-5-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-ladies-distressed-black-thunderbird-boots-6-5-1/h=540,fit=pad,background=black"/></a></div>
 
 As a devoted fan of Junk Gypsy boots, I can't help but rave about these ladies distressed black thunderbird beauties. The moment I opened the box, the soft smell of leather hit me right away. What caught my eye was the intricate thunderbird applique, with its wings and tail expertly embroidered. The fringe detailing is the true star here, providing a playful and rock n' roll touch to the classic silhouette. 
 
@@ -72,9 +72,9 @@ One thing I must mention is that the sizing might be a bit roomier than what I t
 As I embark on my journey with these black thunderbird boots, I've been nothing but impressed with the comfort and style they bring to my life. The 2-inch heel adds the perfect height, while the pull-on entry makes it easy to slip them on and off. I've received an overwhelming number of compliments - whether I'm running errands, dancing the night away, or attending a concert. Overall, these Junk Gypsy boots are a fantastic investment that I wholeheartedly recommend to others searching for a stylish, versatile, and comfortable addition to their wardrobe. 
 
 
-### [Highway Snake Print Western Heel Boot by Junk Gypsy](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=highway-snake-print-western-heel-boot-by-junk-gypsy)
+### [Highway Snake Print Western Heel Boot by Junk Gypsy](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=highway-snake-print-western-heel-boot-by-junk-gypsy)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=highway-snake-print-western-heel-boot-by-junk-gypsy"><img alt="junk-gypsy-by-lane-womens-highway-snake-print-western-boot-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-highway-snake-print-western-boot-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=highway-snake-print-western-heel-boot-by-junk-gypsy"><img alt="junk-gypsy-by-lane-womens-highway-snake-print-western-boot-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-highway-snake-print-western-boot-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the chance to wear the Junk Gypsy Women's Highway Snake Print Western Boot from a highway-side festival. Now, I'm not a real cowgirl, but I appreciated the authenticity this boot had. I was mesmerized by the snake print detailing on the leather material, and I could feel how sturdy it was even with my casual city stride. 
 
@@ -83,9 +83,9 @@ What truly stood out was the comfort and fit of the boots. The snip toe and tape
 However, despite the side zip closure issues, the craftsmanship and comfort won me over. I'd highly recommend these Junk Gypsy boots to anyone looking for a stylish yet reliable pair of Western boots without breaking the bank. 
 
 
-### [Junk Gypsy Western Boots by Lane - Desert Highway Snip Toe](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-boots-by-lane-desert-highway-snip-toe)
+### [Junk Gypsy Western Boots by Lane - Desert Highway Snip Toe](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-boots-by-lane-desert-highway-snip-toe)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-boots-by-lane-desert-highway-snip-toe"><img alt="junk-gypsy-by-lane-womens-desert-highway-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-desert-highway-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-boots-by-lane-desert-highway-snip-toe"><img alt="junk-gypsy-by-lane-womens-desert-highway-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-desert-highway-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 These Lane Women's Desert Highway Western Boots from Junk Gypsy are a sight for sore feet. Made of genuine leather, they've quickly become my go-to for a casual yet stylish look. The pull tab makes slipping them on and off a breeze, while the internal zipper closure ensures a snug, secure fit. 
 
@@ -94,9 +94,9 @@ I love the snip toe design as it adds an edgy touch to these boots, and the west
 But they do have a small hitch - the 15-inch shaft height may be a bit too tall for some, making them tricky to pair with shorter dresses or skirts. Overall, though, these Junk Gypsy boots are a comfortable, stylish choice for a day out on the town. 
 
 
-### [Junk Gypsy by Lane Trail Boss Western Boots](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-by-lane-trail-boss-western-boots)
+### [Junk Gypsy by Lane Trail Boss Western Boots](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-by-lane-trail-boss-western-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-by-lane-trail-boss-western-boots"><img alt="junk-gypsy-by-lane-womens-trail-boss-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-trail-boss-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-by-lane-trail-boss-western-boots"><img alt="junk-gypsy-by-lane-womens-trail-boss-western-boots-snip-toe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-trail-boss-western-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the allure of the Junk Gypsy by Lane Women's Trail Boss Western Boots in Snip Toe. Featuring a striking snake print design and full-grain leather construction, these boots exude elegance. With a height of 19.875 inches, they are sure to catch the eye. 
 
@@ -105,9 +105,9 @@ The snip toe design adds a unique touch, while the leather lining ensures a comf
 Don't miss the chance to make a statement with these eye-catching leather boots. 
 
 
-### [Junk Gypsy Women's Suede Zipper Boots with Layered Fringe and Western Heel](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-womens-suede-zipper-boots-with-layered-fringe-and-western-heel)
+### [Junk Gypsy Women's Suede Zipper Boots with Layered Fringe and Western Heel](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-womens-suede-zipper-boots-with-layered-fringe-and-western-heel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-womens-suede-zipper-boots-with-layered-fringe-and-western-heel"><img alt="junk-gypsy-by-lane-womens-kiss-me-at-midnight-western-fashion-mule-bo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-kiss-me-at-midnight-western-fashion-mule-bo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-womens-suede-zipper-boots-with-layered-fringe-and-western-heel"><img alt="junk-gypsy-by-lane-womens-kiss-me-at-midnight-western-fashion-mule-bo-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/junk-gypsy-by-lane-womens-kiss-me-at-midnight-western-fashion-mule-bo-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Junk Gypsy by Lane Women's Kiss Me at Midnight Western Fashion Mule Boots, and let me tell you, they are a delight to wear! The moment I slipped them on, I felt like I was wearing the epitome of Western fashion. 
 
@@ -118,18 +118,18 @@ However, there were a couple of things that I found to be a bit of a downer. The
 Overall, I would say these boots are definitely a unique and beautiful addition to any Western-inspired outfit. Just remember to size them carefully, as they tend to run big! 
 
 
-### [Junk Gypsy Western Booties with Distressed Leather and Ombre Fringe Detailing](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-booties-with-distressed-leather-and-ombre-fringe-detailing)
+### [Junk Gypsy Western Booties with Distressed Leather and Ombre Fringe Detailing](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-booties-with-distressed-leather-and-ombre-fringe-detailing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-booties-with-distressed-leather-and-ombre-fringe-detailing"><img alt="junk-gypsy-womens-spirit-animal-ombre-fringe-western-fashion-booties-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-womens-spirit-animal-ombre-fringe-western-fashion-booties-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-booties-with-distressed-leather-and-ombre-fringe-detailing"><img alt="junk-gypsy-womens-spirit-animal-ombre-fringe-western-fashion-booties-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-womens-spirit-animal-ombre-fringe-western-fashion-booties-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the essence of western fashion with these unique Junk Gypsy Spirit Animal Ombre Fringe Booties. Crafted from distressed leather, they boast a 6-inch upper shaft and a snip toe for a cozy, comfortable fit. The stitched heart on the shaft adds a touch of charm, while the ombre fringe detailing down the side adds an alluring touch of elegance. 
 
 The leather outsole ensures durability and sturdiness, perfect for those who love to make a statement with their footwear. Though they're not yet rated or reviewed, the JG0040G style is sure to make a fashionable splash for women who love to embrace their spirit animal and indulge in the charm of western style. 
 
 
-### [Junk Gypsy Lane Women's Spirit Animal Tall Boots - Distressed Leather, Ombre Fringe, and Side Zipper](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-lane-womens-spirit-animal-tall-boots-distressed-leather-ombre-fringe-and-side-zipper)
+### [Junk Gypsy Lane Women's Spirit Animal Tall Boots - Distressed Leather, Ombre Fringe, and Side Zipper](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-lane-womens-spirit-animal-tall-boots-distressed-leather-ombre-fringe-and-side-zipper)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-lane-womens-spirit-animal-tall-boots-distressed-leather-ombre-fringe-and-side-zipper"><img alt="junk-gypsy-by-lane-womens-spirit-animal-tall-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-spirit-animal-tall-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-lane-womens-spirit-animal-tall-boots-distressed-leather-ombre-fringe-and-side-zipper"><img alt="junk-gypsy-by-lane-womens-spirit-animal-tall-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-spirit-animal-tall-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 For fashion enthusiasts seeking a statement boot that makes a big impression, the Junk Gypsy Spirit Animal Tall Boots will do just that. Crafted from distressed leather reminiscent of the classic cowboy aesthetic, these boots feature a chic ombre fringe on the side and an enchanting etching of a heart with wings. 
 
@@ -138,18 +138,18 @@ Designed with a 2.75" heel, these boots are perfect for adding a touch of drama 
 Despite the slightly higher price tag, these boots are sure to become a staple in their collection. 
 
 
-### [Junk Gypsy Ladies Metallic Kiss Me Booties](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-ladies-metallic-kiss-me-booties)
+### [Junk Gypsy Ladies Metallic Kiss Me Booties](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-ladies-metallic-kiss-me-booties)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-ladies-metallic-kiss-me-booties"><img alt="junk-gypsy-by-lane-ladies-kiss-me-at-midnight-metallic-booties-jg0066b-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-ladies-kiss-me-at-midnight-metallic-booties-jg0066b-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-ladies-metallic-kiss-me-booties"><img alt="junk-gypsy-by-lane-ladies-kiss-me-at-midnight-metallic-booties-jg0066b-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-ladies-kiss-me-at-midnight-metallic-booties-jg0066b-11-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the world of Junk Gypsy with these beautiful Kiss Me At Midnight Booties. Handcrafted with premium full-grain leather, they're not just stylish but also incredibly comfortable. Don't miss the zipper shaft, cushioned footbed, and leather outsole that make these boots irresistible. 
 
 The 2" western heel adds a touch of elegance, while the front metal toe rand gives them a unique and eye-catching look. Embrace your western style with these fantastic boots! 
 
 
-### [Hand Painted Junk Gypsy Ombre Fringe Boots by Lane Women's Spirit Animal Collection](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=hand-painted-junk-gypsy-ombre-fringe-boots-by-lane-womens-spirit-animal-collection)
+### [Hand Painted Junk Gypsy Ombre Fringe Boots by Lane Women's Spirit Animal Collection](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=hand-painted-junk-gypsy-ombre-fringe-boots-by-lane-womens-spirit-animal-collection)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=hand-painted-junk-gypsy-ombre-fringe-boots-by-lane-womens-spirit-animal-collection"><img alt="junk-gypsy-by-lane-womens-spirit-animal-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-spirit-animal-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=hand-painted-junk-gypsy-ombre-fringe-boots-by-lane-womens-spirit-animal-collection"><img alt="junk-gypsy-by-lane-womens-spirit-animal-boots-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-by-lane-womens-spirit-animal-boots-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 These stunning Junk Gypsy booties are a true statement-maker, both in their craftsmanship and design. Handcrafted using genuine leather, these boots have a distinct turquoise sole that sets them apart from the rest. But don't just stop at the soles – the fringe accents are an absolute showstopper, adding a touch of sparkle that's hard to ignore. 
 
@@ -160,18 +160,18 @@ However, the zipper closure on the side does require a bit of adjustment. It cou
 Despite these minor drawbacks, these Junk Gypsy booties are a fantastic choice for someone looking to make a bold fashion statement. They're comfortable, stylish, and most importantly, they're unique. 
 
 
-### [Stylish Junk Gypsy Western Boots for Women](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=stylish-junk-gypsy-western-boots-for-women)
+### [Stylish Junk Gypsy Western Boots for Women](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=stylish-junk-gypsy-western-boots-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=stylish-junk-gypsy-western-boots-for-women"><img alt="junk-gypsy-western-boots-womens-cowboy-texas-tumbleweed-jg0009d-sand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-western-boots-womens-cowboy-texas-tumbleweed-jg0009d-sand-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=stylish-junk-gypsy-western-boots-for-women"><img alt="junk-gypsy-western-boots-womens-cowboy-texas-tumbleweed-jg0009d-sand-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-western-boots-womens-cowboy-texas-tumbleweed-jg0009d-sand-1/h=540,fit=pad,background=black"/></a></div>
 
 These Junk Gypsy Texas Tumbleweed boots by Lane are a stunning blend of modern style and western tradition. The boots feature a 1.75-inch heel, a 15-inch circumference, and a leather upper, lining, and sole. 
 
 The cushioned insole provides a comfortable fit, while the side zip closure ensures flexibility. The unique fringe adds a fun, eye-catching touch to the boots. Using these boots in my daily life has been an experience I look forward to, as they bring a touch of western flair wherever I go. 
 
 
-### [Dingo Women's Gypsy Boots - Golden Style in Size 8M](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=dingo-womens-gypsy-boots-golden-style-in-size-8m)
+### [Dingo Women's Gypsy Boots - Golden Style in Size 8M](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=dingo-womens-gypsy-boots-golden-style-in-size-8m)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=dingo-womens-gypsy-boots-golden-style-in-size-8m"><img alt="dingo-womens-gypsy-boots-gold-8-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dingo-womens-gypsy-boots-gold-8-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=dingo-womens-gypsy-boots-golden-style-in-size-8m"><img alt="dingo-womens-gypsy-boots-gold-8-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dingo-womens-gypsy-boots-gold-8-m-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in the allure of these Dingo Gypsy boots. Designed with a flair for fashion, these women's boots boast genuine leather upper and a stylish fringe detail that runs almost the full height of their 13" shaft. 
 
@@ -180,9 +180,9 @@ The mid-calf shaft has a snip toe and a cushioned insole for added comfort, whil
 Despite minor sizing issues and color discrepancies reported in some reviews, the overall comfort and attention-grabbing style of these boots make them a popular choice among customers. 
 
 
-### [Junk Gypsy Western-Inspired Spitfire Fashion Bootie with Fringe & Pink Colorway](https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-inspired-spitfire-fashion-bootie-with-fringe-pink-colorway)
+### [Junk Gypsy Western-Inspired Spitfire Fashion Bootie with Fringe & Pink Colorway](https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm\_term=junk-gypsy-western-inspired-spitfire-fashion-bootie-with-fringe-pink-colorway)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-inspired-spitfire-fashion-bootie-with-fringe-pink-colorway"><img alt="junk-gypsy-womens-spitfire-fashion-booties-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-womens-spitfire-fashion-booties-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Junk+Gypsy+Boots?utm_term=junk-gypsy-western-inspired-spitfire-fashion-bootie-with-fringe-pink-colorway"><img alt="junk-gypsy-womens-spitfire-fashion-booties-snip-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/junk-gypsy-womens-spitfire-fashion-booties-snip-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 The Junk Gypsy women's Spitfire Fashion Booties are a charming addition to any wardrobe. Made with soft, full-grain leather, these booties feature a plush leather lining and a cushioned footbed for ultimate comfort. The unique snip toe design adds a touch of elegance, while the western heel and fringe detailing around the ankle give the bootie a playful, feminine edge. 
 

@@ -15,9 +15,9 @@ Are you in search of the perfect cycling accessory that enhances your performanc
 ## Reviews
 
 
-### [Shimano SPD Compatible Mountain Indoor Bicycle Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-compatible-mountain-indoor-bicycle-cleats)
+### [Shimano SPD Compatible Mountain Indoor Bicycle Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-compatible-mountain-indoor-bicycle-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-compatible-mountain-indoor-bicycle-cleats"><img alt="shimano-spd-sm-sh56-compatible-mountain-indoor-bicycle-cleats-easy-release-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-sm-sh56-compatible-mountain-indoor-bicycle-cleats-easy-release-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-compatible-mountain-indoor-bicycle-cleats"><img alt="shimano-spd-sm-sh56-compatible-mountain-indoor-bicycle-cleats-easy-release-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-sm-sh56-compatible-mountain-indoor-bicycle-cleats-easy-release-1/h=540,fit=pad,background=black"/></a></div>
 
 As a frequent mountain biker, making the transition to indoor cycling left me feeling a bit insecure about my cycling performance. The Shimano SPD SM-SH56 Compatible Mountain Indoor Bicycle Cleats Easy Release proved to be the perfect solution for my confidence, both on the spin bike and during my mountain cycling adventures. 
 
@@ -28,9 +28,9 @@ One small drawback I encountered is that, as opposed to the highlights stating "
 Overall, these cleats provide versatility for my biking needs, whether it's indoor cycling or hitting the trails. I wholeheartedly recommend the Shimano SPD SM-SH56 Compatible Mountain Indoor Bicycle Cleats Easy Release for both beginners and experienced cyclists looking to enhance their indoor and outdoor performance. 
 
 
-### [Shimano SPD Replaceable Cleat for Ultimate Bike Control](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-replaceable-cleat-for-ultimate-bike-control)
+### [Shimano SPD Replaceable Cleat for Ultimate Bike Control](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-replaceable-cleat-for-ultimate-bike-control)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-replaceable-cleat-for-ultimate-bike-control"><img alt="shimano-spd-cleat-sm-sh51-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-cleat-sm-sh51-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-replaceable-cleat-for-ultimate-bike-control"><img alt="shimano-spd-cleat-sm-sh51-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-cleat-sm-sh51-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SPD Cleat (SM-SH51) is an excellent solution for mountain bikers and fitness enthusiasts aiming to enhance their performance and comfort while riding. These cleats are designed to deliver smooth, efficient power transfer throughout the pedaling cycle while also ensuring optimal foot stability and minimal slippage. They come in a variety of versions to meet varying rider needs, such as those who prefer side release or multi-release cleats depending on their experience and riding style. 
 
@@ -41,9 +41,9 @@ However, frequent riders should consider replacing their cleats at least once pe
 In conclusion, the Shimano SPD Cleat (SM-SH51) is an exceptional product for riders seeking to improve their performance and comfort during their rides. Its innovative design, durability, and compatibility with a wide variety of mountain bike and fitness shoes make it a must-have accessory for any serious cyclist. 
 
 
-### [Shimano SPD Compatible Cleats for Multi-Release](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-compatible-cleats-for-multi-release)
+### [Shimano SPD Compatible Cleats for Multi-Release](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-compatible-cleats-for-multi-release)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-compatible-cleats-for-multi-release"><img alt="shimano-sm-sh56-spd-plates-multi-release-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-plates-multi-release-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-compatible-cleats-for-multi-release"><img alt="shimano-sm-sh56-spd-plates-multi-release-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-plates-multi-release-1/h=540,fit=pad,background=black"/></a></div>
 
 Looking for a reliable and versatile cleat system for your Shimano SPD pedals? Look no further than the genuine Shimano SH56 MTB SPD cleats. 
 
@@ -52,9 +52,9 @@ With a quick and easy release design, these cleats allow you to get out of sever
 The multi-release mechanism makes it simple to roll your foot in any direction to easily release the cleats, perfect for those looking to maintain a strong grip when riding. Compatible with all Shimano SPD pedals, these high-quality cleats are ideal for any mountain biking enthusiast, and they come highly recommended by customers who have had great success using them. 
 
 
-### [Shimano SPD SH51 & Look X-Track Series Pedal Compatible Bicycle Cleats (2 Pairs)](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-sh51-look-x-track-series-pedal-compatible-bicycle-cleats-2-pairs)
+### [Shimano SPD SH51 & Look X-Track Series Pedal Compatible Bicycle Cleats (2 Pairs)](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-sh51-look-x-track-series-pedal-compatible-bicycle-cleats-2-pairs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-sh51-look-x-track-series-pedal-compatible-bicycle-cleats-2-pairs"><img alt="bv-bike-cleats-compatible-with-shimano-spd-sh51-spinning-indoor-cycling-mountain-bike-bicycle-cleat--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bv-bike-cleats-compatible-with-shimano-spd-sh51-spinning-indoor-cycling-mountain-bike-bicycle-cleat--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-sh51-look-x-track-series-pedal-compatible-bicycle-cleats-2-pairs"><img alt="bv-bike-cleats-compatible-with-shimano-spd-sh51-spinning-indoor-cycling-mountain-bike-bicycle-cleat--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bv-bike-cleats-compatible-with-shimano-spd-sh51-spinning-indoor-cycling-mountain-bike-bicycle-cleat--1/h=540,fit=pad,background=black"/></a></div>
 
 The BV Bike Cleats are a versatile option for cyclists seeking compatibility with Shimano SPD SH51 and Look X-Track Series Pedal. These cleats offer a single direction release, ensuring easy disengagement from the pedals. 
 
@@ -63,18 +63,18 @@ The top level power transfer guarantees ultimate cycling efficiency, making thes
 The BV Brand is committed to continuous improvement and evolving to meet customer needs, with the goal of providing 100% satisfaction. With their affordable price and high-quality performance, BV Bike Cleats are an excellent choice for cyclists looking to enhance their cycling experience. 
 
 
-### [BV Shimano SPD Compatible Bicycle Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=bv-shimano-spd-compatible-bicycle-cleats)
+### [BV Shimano SPD Compatible Bicycle Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=bv-shimano-spd-compatible-bicycle-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=bv-shimano-spd-compatible-bicycle-cleats"><img alt="bv-bike-cleats-compatible-with-shimano-spd-spinning-indoor-cycling-mountain-bike-bicycle-cleat-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bv-bike-cleats-compatible-with-shimano-spd-spinning-indoor-cycling-mountain-bike-bicycle-cleat-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=bv-shimano-spd-compatible-bicycle-cleats"><img alt="bv-bike-cleats-compatible-with-shimano-spd-spinning-indoor-cycling-mountain-bike-bicycle-cleat-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bv-bike-cleats-compatible-with-shimano-spd-spinning-indoor-cycling-mountain-bike-bicycle-cleat-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Boost your cycling experience with these BV Bike Cleats, compatible with both Shimano SPD SH51 and Look X-Track Series Pedals. Their single direction release mechanism allows for a smooth and easy twist heel release, while ensuring top-level power transfer for unmatched efficiency. This set comes with optional 2-hole cleat nuts and metal plates, making it suitable for a wide range of cycling shoes. 
 
 Users have reported an overall positive experience, praising the cleats' compatibility and ease of use. However, the occasional faulty screw has surfaced as a concern for disappointed customers. Despite this, the majority of reviews highlight the excellent price-to-performance ratio, making these BV Bike Cleats a great choice for indoor and outdoor cycling enthusiasts. 
 
 
-### [Shimano SH56 Multi-Release SPD Bike Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh56-multi-release-spd-bike-cleats)
+### [Shimano SH56 Multi-Release SPD Bike Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh56-multi-release-spd-bike-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh56-multi-release-spd-bike-cleats"><img alt="shimano-sh56-multi-release-spd-bike-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh56-multi-release-spd-bike-cleats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh56-multi-release-spd-bike-cleats"><img alt="shimano-sh56-multi-release-spd-bike-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh56-multi-release-spd-bike-cleats-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Shimano SH56 Multi Release SPD Bike Cleats, an excellent addition to your cycling gear. These high-quality cleats are designed with multiple release systems, allowing you to twist your heels in any direction to release from the pedals quickly. With their easy step-in feature, you can be ready to ride in no time! 
 
@@ -83,9 +83,9 @@ Cold-forged and specially heat-treated, these cleats are durable and suitable fo
 Although they work great with SPD pedals, these cleats might not fit the M858 model. Remember to tighten them correctly the first time, so they don't slide off unexpectedly. The Shimano SH56 Multi Release SPD Bike Cleats offer a great value for the price and are well-received by the cycling community, with a 4.9-star rating based on hundreds of reviews. Invest in these cleats and experience improved performance and security while riding. 
 
 
-### [Shimano SM-SH56 SPD Multi-Release Bike Cleats for Open Pedals](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh56-spd-multi-release-bike-cleats-for-open-pedals)
+### [Shimano SM-SH56 SPD Multi-Release Bike Cleats for Open Pedals](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh56-spd-multi-release-bike-cleats-for-open-pedals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh56-spd-multi-release-bike-cleats-for-open-pedals"><img alt="shimano-sm-sh56-spd-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-cleats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh56-spd-multi-release-bike-cleats-for-open-pedals"><img alt="shimano-sm-sh56-spd-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-cleats-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SM-SH56 SPD cleats are perfect for cyclists who want the convenience of clipless pedals without having to worry about getting stuck in their pedals. These multi-release cleats allow your shoe to be disengaged by rolling or twisting the foot in any direction, making them an excellent choice for those who prefer a more secure and controlled riding experience. 
 
@@ -96,9 +96,9 @@ While the Shimano SM-SH56 SPD cleats have received overwhelmingly positive revie
 Overall, the Shimano SM-SH56 SPD cleats offer a highly effective and user-friendly option for those looking to upgrade their pedals for a more secure and enjoyable riding experience. Their ability to work with a wide range of open design pedals, combined with their multi-release capabilities, makes them a top choice for cyclists seeking a reliable and easy-to-use cleat solution. 
 
 
-### [Shimano SM-SH51: Premium Shimano SPD Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh51-premium-shimano-spd-cleats)
+### [Shimano SM-SH51: Premium Shimano SPD Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh51-premium-shimano-spd-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh51-premium-shimano-spd-cleats"><img alt="shimano-sm-sh51-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh51-premium-shimano-spd-cleats"><img alt="shimano-sm-sh51-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SM-SH51 shoe cleat offers a reliable and easy-to-use solution for cyclists looking to improve their bike connection. With a single-sided release, this cleat is designed to provide a stable and secure connection to the pedals, reducing the risk of accidental releases on rough terrain. Its counter plate ensures that the cleat stays in place, making it an ideal choice for dedicated cyclists who prefer a firm grip on their pedals. 
 
@@ -107,9 +107,9 @@ Designed for compatibility with all SPD pedals, the Shimano SM-SH51 cleat delive
 In summary, the Shimano SM-SH51 shoe cleat is a well-regarded and reliable choice for cyclists looking to enhance their bike connection. Its single-sided release, compatibility with all SPD pedals, and adjustable cleat system make it a popular option among both recreational and professional cyclists alike. 
 
 
-### [Shimano SP Easy-Off Pedalset with SPD Single Release Cleats for MTB Cycling](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sp-easy-off-pedalset-with-spd-single-release-cleats-for-mtb-cycling)
+### [Shimano SP Easy-Off Pedalset with SPD Single Release Cleats for MTB Cycling](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sp-easy-off-pedalset-with-spd-single-release-cleats-for-mtb-cycling)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sp-easy-off-pedalset-with-spd-single-release-cleats-for-mtb-cycling"><img alt="shimano-spd-easy-off-pedalset-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-easy-off-pedalset-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sp-easy-off-pedalset-with-spd-single-release-cleats-for-mtb-cycling"><img alt="shimano-spd-easy-off-pedalset-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-easy-off-pedalset-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to try out the Shimano SPD Easy-Off pedalset. I'd been struggling to find a solution to easily release my SPD shoes while off-road, as I often find myself needing to walk through tricky terrains. 
 
@@ -122,9 +122,9 @@ In my experience, these cleats stood out for their smooth operation and durabili
 Overall, the Shimano SPD Easy-Off pedalset has been a game-changer for my off-road cycling experience. Highly recommended for all mountain bikers looking for easy-to-use, reliable SPD cleats. 
 
 
-### [Shimano Multi-Release Cleat Set for SPD Pedals](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-multi-release-cleat-set-for-spd-pedals)
+### [Shimano Multi-Release Cleat Set for SPD Pedals](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-multi-release-cleat-set-for-spd-pedals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-multi-release-cleat-set-for-spd-pedals"><img alt="shimano-sm-sh56-spd-cleat-set-pair-multi-release-w-cleat-nut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-cleat-set-pair-multi-release-w-cleat-nut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-multi-release-cleat-set-for-spd-pedals"><img alt="shimano-sm-sh56-spd-cleat-set-pair-multi-release-w-cleat-nut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-cleat-set-pair-multi-release-w-cleat-nut-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SM-SH56 cleats are an excellent addition to any road cyclist's or mountain biker's arsenal, as they provide a multi-release function that allows for both side and vertical releases when the feet come free from the pedals. This feature makes it easy to clip out quickly in case of an emergency. 
 
@@ -133,9 +133,9 @@ The cleats are made from cold-forged steel, ensuring durability and a long lifes
 These cleats are a wise investment for cyclists starting to train with SPD pedals. 
 
 
-### [Shimano SPD Cleat Adapter for Road & Cycling Shoes](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-cleat-adapter-for-road-cycling-shoes)
+### [Shimano SPD Cleat Adapter for Road & Cycling Shoes](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-cleat-adapter-for-road-cycling-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-cleat-adapter-for-road-cycling-shoes"><img alt="shimano-spd-cleat-adapter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-cleat-adapter-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-cleat-adapter-for-road-cycling-shoes"><img alt="shimano-spd-cleat-adapter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-cleat-adapter-1/h=540,fit=pad,background=black"/></a></div>
 
 Oh, I remember the first time I used the Shimano SPD Cleat Adapter! I was in the middle of a grueling bike tour and my SPD-SL/3-hole cycling shoes just weren't having it with the 2-hole cleats I had. I needed a quick and easy solution. Enter this little gem of an adapter! The SM-SH41 had me clipping into my pedals like a pro once again. 
 
@@ -146,18 +146,18 @@ Not only does this adapter work with your bike, but it also has advantages off t
 Using this adapter has made my life on the bike a whole lot easier and stable. Plus, it's a great conversation starter when people ask, "What kind of magic is that on your shoes? " All in all, the Shimano SPD Cleat Adapter is a game-changer – a little gear that goes a long way. 
 
 
-### [Shimano SH-A200 4-Hole SPD Cleat Nut for Mountain Bike Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh-a200-4-hole-spd-cleat-nut-for-mountain-bike-cleats)
+### [Shimano SH-A200 4-Hole SPD Cleat Nut for Mountain Bike Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh-a200-4-hole-spd-cleat-nut-for-mountain-bike-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh-a200-4-hole-spd-cleat-nut-for-mountain-bike-cleats"><img alt="shimano-sh-a200-4-hole-spd-cleat-nut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh-a200-4-hole-spd-cleat-nut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh-a200-4-hole-spd-cleat-nut-for-mountain-bike-cleats"><img alt="shimano-sh-a200-4-hole-spd-cleat-nut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh-a200-4-hole-spd-cleat-nut-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SH-A200 4-Hole SPD Cleat Nut offers a reliable and durable solution for mounting Shimano SPD cleats onto your mountain bike shoes. With 4 tapped holes, this internal shoe-plate easily fits SH51/52/55 cleats, ensuring a snug and sturdy connection. Its smooth sliding mechanism allows for easy fore and aft adjustments, while the Shimano Spd Cleats compatibility guarantees compatibility with a wide range of shoes and cleats. 
 
 Despite potential rarity of needing a replacement, this handy cleat nut is always available for those in need. 
 
 
-### [Shimano SM-SH11 SPD-SL 6 Degree Cleat System - Cycling Comfort](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh11-spd-sl-6-degree-cleat-system-cycling-comfort)
+### [Shimano SM-SH11 SPD-SL 6 Degree Cleat System - Cycling Comfort](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh11-spd-sl-6-degree-cleat-system-cycling-comfort)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh11-spd-sl-6-degree-cleat-system-cycling-comfort"><img alt="shimano-sm-sh11-spd-sl-6-degree-cleat-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh11-spd-sl-6-degree-cleat-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh11-spd-sl-6-degree-cleat-system-cycling-comfort"><img alt="shimano-sm-sh11-spd-sl-6-degree-cleat-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh11-spd-sl-6-degree-cleat-set-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SM-SH11 SPD-SL 6 Degree Cleat Set is a popular choice among cyclists for its versatile and reliable performance. With 6-degree float, these cleats provide free movement and reduced joint stress, allowing for a more comfortable and personalized cycling experience. 
 
@@ -168,9 +168,9 @@ The Shimano SPD SL Cleat Set is easy to install and use, making it a great optio
 Overall, the Shimano SM-SH11 SPD-SL 6 Degree Cleat Set is a top-performing, durable, and high-quality product that stands out for its ease of use, customization options, and the consistent results it delivers. With these cleats, cyclists can experience a whole new level of performance, stability, and comfort, perfect for achieving their goals on any ride. 
 
 
-### [Shimano SPD Cleat for 2-Bolt Pedals](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-cleat-for-2-bolt-pedals)
+### [Shimano SPD Cleat for 2-Bolt Pedals](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-cleat-for-2-bolt-pedals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-cleat-for-2-bolt-pedals"><img alt="shimano-sm-sh51-spd-pedal-cleats-black-1-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-spd-pedal-cleats-black-1-pair-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-cleat-for-2-bolt-pedals"><img alt="shimano-sm-sh51-spd-pedal-cleats-black-1-pair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-spd-pedal-cleats-black-1-pair-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SPD Pedal Cleats feature sleek, black cleat nuts that add an elegant touch to your cycling shoes. These cleats work in conjunction with SPD pedals, providing exceptional power transfer and performance. They offer 4 degrees of float, allowing for better foot stability and increased comfort. 
 
@@ -181,9 +181,9 @@ While some users may find the cleats tricky to clip in at first, their ultimate 
 Shimano's legacy of Systems Engineering and excellent component design has resulted in these outstanding SPD pedal cleats that have become the go-to choice for cycling enthusiasts across the world. 
 
 
-### [SHIMANO SPD-SL Cleats with Fixed and Floating Options](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-sl-cleats-with-fixed-and-floating-options)
+### [SHIMANO SPD-SL Cleats with Fixed and Floating Options](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-sl-cleats-with-fixed-and-floating-options)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-sl-cleats-with-fixed-and-floating-options"><img alt="shimano-sm-sh12-spd-sl-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh12-spd-sl-cleats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-sl-cleats-with-fixed-and-floating-options"><img alt="shimano-sm-sh12-spd-sl-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh12-spd-sl-cleats-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the SHIMANO SM-SH12 SPD-SL Cleats, a versatile and reliable choice for cyclists. These cleats offer users the freedom to choose from three options - red, yellow, and blue - providing a range of foot positions with varying degrees of float. The red option offers a fixed foot position with no float, perfect for those who want stability and precision. The yellow option allows for 6 degrees of float, ideal for riders who prefer a more relaxed fit. Lastly, the blue option provides 2 degrees of float, offering a happy medium for those who don't want too much movement but don't want their feet feeling too restricted. 
 
@@ -194,18 +194,18 @@ These high-quality cleats are available in pairs and feature a three-hole SPD-SL
 Overall, the SHIMANO SM-SH12 SPD-SL Cleats are an excellent choice for cyclists who want a customizable and stable foot position. With a variety of options to choose from and SHIMANO's reputation for quality, these cleats are a popular choice among cyclists everywhere. 
 
 
-### [Pro Bike Tool: Shimano SPD-SL Road Cleats](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=pro-bike-tool-shimano-spd-sl-road-cleats)
+### [Pro Bike Tool: Shimano SPD-SL Road Cleats](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=pro-bike-tool-shimano-spd-sl-road-cleats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=pro-bike-tool-shimano-spd-sl-road-cleats"><img alt="pro-bike-tool-shimano-spd-sl-road-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-bike-tool-shimano-spd-sl-road-cleats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=pro-bike-tool-shimano-spd-sl-road-cleats"><img alt="pro-bike-tool-shimano-spd-sl-road-cleats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pro-bike-tool-shimano-spd-sl-road-cleats-1/h=540,fit=pad,background=black"/></a></div>
 
 These Shimano SPD SL Road Cleats from Pro Bike Tool have been a game-changer in improving my cycling experience. They offer a natural pedaling motion with a 4-degree float, which lets my foot rotate and disengage smoothly. I especially appreciate the anti-slip design and secure fit, which ensures confident pedaling and reduces noise while increasing my overall comfort. 
 
 The durable, lightweight TPU plastic also makes installation and adjustment a breeze. The company's commitment to their product, with refund or replacement offered, adds a layer of trust and confidence when using these cleats. Overall, I highly recommend them for any cyclist using the Shimano SPD SL system. 
 
 
-### [Shimano SM-SH51 SPD Pedal Cleats for Adults](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh51-spd-pedal-cleats-for-adults)
+### [Shimano SM-SH51 SPD Pedal Cleats for Adults](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh51-spd-pedal-cleats-for-adults)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh51-spd-pedal-cleats-for-adults"><img alt="shimano-sm-sh51-spd-pedal-cleat-set-include-4mm-allen-wrench-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-spd-pedal-cleat-set-include-4mm-allen-wrench-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh51-spd-pedal-cleats-for-adults"><img alt="shimano-sm-sh51-spd-pedal-cleat-set-include-4mm-allen-wrench-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh51-spd-pedal-cleat-set-include-4mm-allen-wrench-1/h=540,fit=pad,background=black"/></a></div>
 
 When it comes to finding top-notch cycling accessories, it's hard to beat the reliability of Shimano. Their SM-SH51 SPD pedal cleat set is no exception. This sleek, black module is designed with a single release mode, making it a great choice for adult cyclists of all skill levels. 
 
@@ -214,9 +214,9 @@ The best part? This set comes complete with the necessary 4mm Allen wrench, maki
 While it's not ideal for everyone, the Shimano SM-SH51 SPD pedal cleat set stands out for its high-quality build and easy installation process. Give it a try and experience the Shimano difference for yourself! 
 
 
-### [Shimano SH-A200 Spd Cleat Nut](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh-a200-spd-cleat-nut)
+### [Shimano SH-A200 Spd Cleat Nut](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sh-a200-spd-cleat-nut)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh-a200-spd-cleat-nut"><img alt="shimano-sh-a200-cleat-nut-single-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh-a200-cleat-nut-single-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sh-a200-spd-cleat-nut"><img alt="shimano-sh-a200-cleat-nut-single-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sh-a200-cleat-nut-single-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Shimano SH-A200 Cleat Nut, a single piece designed to enhance your cycling experience by providing a secure fit for your shoes on Shimano pedals. This Cold forged and specially heat treated steel component is built to withstand even the most demanding conditions, ensuring your SPD cleats remain resistant to damage. 
 
@@ -227,9 +227,9 @@ The Shimano SH-A200 cleat nut matches perfectly with SM-SH51/52/56 blocks, guara
 Despite generally favorable reviews, some customers have expressed disappointment over its single piece packaging, believing it overpriced for just one item. Overall, however, the Shimano SH-A200 Cleat Nut is a valuable addition to any cyclist's collection, working seamlessly with SPD pedals and providing both durability and solid performance. 
 
 
-### [Shimano SM SH20 SPD-SL Cleat Spacer Set for Cyclist Adjustments](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh20-spd-sl-cleat-spacer-set-for-cyclist-adjustments)
+### [Shimano SM SH20 SPD-SL Cleat Spacer Set for Cyclist Adjustments](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-sm-sh20-spd-sl-cleat-spacer-set-for-cyclist-adjustments)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh20-spd-sl-cleat-spacer-set-for-cyclist-adjustments"><img alt="shimano-sm-sh20-spd-sl-cleat-spacer-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh20-spd-sl-cleat-spacer-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sm-sh20-spd-sl-cleat-spacer-set-for-cyclist-adjustments"><img alt="shimano-sm-sh20-spd-sl-cleat-spacer-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh20-spd-sl-cleat-spacer-set-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Shimano SM SH20 SPD-SL Cleat Spacer Set for some time now and I must say, it's been a game-changer. As a cyclist, I often notice that one leg is slightly longer than the other and it can be quite uncomfortable, if not painful, to pedal for long periods of time. This set of stackable cleat spacers has given me the perfect solution to compensate for this discrepancy. 
 
@@ -242,9 +242,9 @@ Installing these spacers is a breeze, too. The included longer-length bolts make
 If you, like me, face leg length discrepancies, the Shimano SM SH20 SPD-SL Cleat Spacer Set is a must-have. It's easy to install, affordable, and most importantly, effective. I highly recommend it to anyone in need of a comfortable and ergonomic cycling experience. 
 
 
-### [Shimano SPD Multi-Release Cleats Set for All SPD Pedals](https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-multi-release-cleats-set-for-all-spd-pedals)
+### [Shimano SPD Multi-Release Cleats Set for All SPD Pedals](https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm\_term=shimano-spd-multi-release-cleats-set-for-all-spd-pedals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-multi-release-cleats-set-for-all-spd-pedals"><img alt="shimano-sm-sh56-spd-multi-release-cleats-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-multi-release-cleats-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-spd-multi-release-cleats-set-for-all-spd-pedals"><img alt="shimano-sm-sh56-spd-multi-release-cleats-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-sm-sh56-spd-multi-release-cleats-set-1/h=540,fit=pad,background=black"/></a></div>
 
 The Shimano SM-SH56 SPD Multi Release Cleats Set is a versatile and innovative solution for mountain bikers who desire the convenience of a one-sided release system while still maintaining security on their SPD pedals. With a reliable recessed cleat design, walking around with these cleats is made a breeze as they offer a natural release when needed. These cleats also come with counter plates for added durability and ease of use. 
 

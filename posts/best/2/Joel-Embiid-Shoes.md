@@ -15,9 +15,9 @@ Have you been searching for shoes that can keep up with your dynamic style witho
 ## Reviews
 
 
-### [LeBron Ambassador 13 'Empire Jade' Sports Shoes](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=lebron-ambassador-13-empire-jade-sports-shoes)
+### [LeBron Ambassador 13 'Empire Jade' Sports Shoes](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=lebron-ambassador-13-empire-jade-sports-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=lebron-ambassador-13-empire-jade-sports-shoes"><img alt="nike-lebron-ambassador-13-empire-jade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nike-lebron-ambassador-13-empire-jade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=lebron-ambassador-13-empire-jade-sports-shoes"><img alt="nike-lebron-ambassador-13-empire-jade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nike-lebron-ambassador-13-empire-jade-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nike LeBron Ambassador 13 'Empire Jade' was my recent go-to for the basketball court. I've tried other signature shoes, but Nike really nailed the functionality with this pair. The cushioning is top-notch and provides the necessary protection during intense games. The slip-resistant sole ensures I stay stable on the court, while the wrapping design means they fit like a glove. 
 
@@ -28,9 +28,9 @@ While basketball shoes should ideally be limited to the season, these shoes are 
 However, I did notice that the lacing system could use some improvement - it's challenging to tighten and loosen the shoe without it feeling too tight or loose. But overall, the Nike LeBron Ambassador 13 'Empire Jade' is a fantastic addition to any basketball enthusiast's wardrobe. 
 
 
-### [Slime Joel Embiid x Puma MB.02 Signature Basketball Shoes](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=slime-joel-embiid-x-puma-mb-02-signature-basketball-shoes)
+### [Slime Joel Embiid x Puma MB.02 Signature Basketball Shoes](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=slime-joel-embiid-x-puma-mb-02-signature-basketball-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=slime-joel-embiid-x-puma-mb-02-signature-basketball-shoes"><img alt="puma-mb-02-x-slime-basketball-shoes-green-mens-size-9-m-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/puma-mb-02-x-slime-basketball-shoes-green-mens-size-9-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=slime-joel-embiid-x-puma-mb-02-signature-basketball-shoes"><img alt="puma-mb-02-x-slime-basketball-shoes-green-mens-size-9-m-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/puma-mb-02-x-slime-basketball-shoes-green-mens-size-9-m-1/h=540,fit=pad,background=black"/></a></div>
 
 As a basketball enthusiast, I've always been on the lookout for comfortable yet stylish shoes. I must admit, the Puma MB. 02 x Slime Basketball Shoes immediately caught my eye. Being a fan of Puma footwear, I was eager to try out the latest addition to their lineup. 
 
@@ -45,9 +45,9 @@ That being said, I did encounter a minor issue with the laces occasionally being
 Despite the minor setback, I've grown to love the Puma MB. 02 x Slime Basketball Shoes for their innovative design, attention to comfort, and solid footing. For fellow basketball players seeking a reliable pair of shoes that blend style and performance, I highly recommend giving these a go. 
 
 
-### [New Balance Joel Embiid 650 Signature Sneakers](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-joel-embiid-650-signature-sneakers)
+### [New Balance Joel Embiid 650 Signature Sneakers](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-joel-embiid-650-signature-sneakers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=new-balance-joel-embiid-650-signature-sneakers"><img alt="new-balance-white-black-650-sneakers-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/new-balance-white-black-650-sneakers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=new-balance-joel-embiid-650-signature-sneakers"><img alt="new-balance-white-black-650-sneakers-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/new-balance-white-black-650-sneakers-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest to find a comfy and stylish pair of sneakers, I stumbled upon the New Balance 650. The sleek design, featuring premium leather and an elevated look, caught my eye right away. 
 
@@ -56,9 +56,9 @@ But what really won me over was the lace-up closure and cushioned footbed. I've 
 While some reviewers have mentioned sizing concerns, overall, I've been really happy with my purchase. So if you're looking for a stylish and comfortable pair of sneakers, the New Balance 650 might just be the perfect fit. 
 
 
-### [New Balance Joel Embiid Inside Voices Blue Shoes](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-joel-embiid-inside-voices-blue-shoes)
+### [New Balance Joel Embiid Inside Voices Blue Shoes](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-joel-embiid-inside-voices-blue-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=new-balance-joel-embiid-inside-voices-blue-shoes"><img alt="new-balance-9060-joe-freshgoods-inside-voices-baby-shower-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/new-balance-9060-joe-freshgoods-inside-voices-baby-shower-blue-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=new-balance-joel-embiid-inside-voices-blue-shoes"><img alt="new-balance-9060-joe-freshgoods-inside-voices-baby-shower-blue-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/new-balance-9060-joe-freshgoods-inside-voices-baby-shower-blue-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the New Balance 9060 Joe Freshgoods Inside Voices Baby Shower Blue, and I have to say, I was quite impressed with the overall design and feel of these shoes. The pale yellow mesh construction provides a breathable and comfortable base for the blue suede overlays, while the gold New Balance logos add a touch of sophistication. 
 
@@ -73,18 +73,18 @@ One potential downside is that the shoes may not be the most suitable for casual
 Overall, the New Balance 9060 Joe Freshgoods Inside Voices Baby Shower Blue is a stylish and comfortable addition to my footwear collection. Its unique design and thoughtful touches make it a standout option for those seeking a versatile casual shoe. 
 
 
-### [Aime Leon Dore x New Balance 650R 'White Green' Limited Edition Shoes - Joel Embiid's Favorite](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=aime-leon-dore-x-new-balance-650r-white-green-limited-edition-shoes-joel-embiids-favorite)
+### [Aime Leon Dore x New Balance 650R 'White Green' Limited Edition Shoes - Joel Embiid's Favorite](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=aime-leon-dore-x-new-balance-650r-white-green-limited-edition-shoes-joel-embiids-favorite)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=aime-leon-dore-x-new-balance-650r-white-green-limited-edition-shoes-joel-embiids-favorite"><img alt="aime-leon-dore-x-650r-green-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aime-leon-dore-x-650r-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=aime-leon-dore-x-new-balance-650r-white-green-limited-edition-shoes-joel-embiids-favorite"><img alt="aime-leon-dore-x-650r-green-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aime-leon-dore-x-650r-green-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the New Balance 650R Aime Leon Dore White Green, and I must say, I was quite impressed with this throwback '80s hoops shoe. The limited edition release in July 2021 offered a stylish two-tone palette of white and green, featuring a full-grain leather upper with contrasting accents. The shoes feature a comfortable padded mesh collar and a durable rubber cupsole with exposed EVA wedge. 
 
 However, while the shoes themselves were great, the packaging left something to be desired. I received two pairs in the same shoe box, which definitely was not the most efficient use of space. Overall, I'd recommend these shoes for their classic look and feel, but be aware that there might be some QC issues with the packaging. 
 
 
-### [Under Armour Embiid One - High-Performance Basketball Shoes](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=under-armour-embiid-one-high-performance-basketball-shoes)
+### [Under Armour Embiid One - High-Performance Basketball Shoes](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=under-armour-embiid-one-high-performance-basketball-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=under-armour-embiid-one-high-performance-basketball-shoes"><img alt="under-armour-embiid-one-brotherly-love-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/under-armour-embiid-one-brotherly-love-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=under-armour-embiid-one-high-performance-basketball-shoes"><img alt="under-armour-embiid-one-brotherly-love-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/under-armour-embiid-one-brotherly-love-1/h=540,fit=pad,background=black"/></a></div>
 
 Under Armour Embiid One: The Ultimate Basketball Shoe
 
@@ -101,9 +101,9 @@ However, there were a couple of cons worth mentioning. Firstly, the shoe is a bi
 Overall, the Under Armour Embiid One proved to be an excellent choice for basketball players looking for a blend of comfort, durability, and responsiveness. Its impressive features allowed me to achieve better performance and confidence on the court. My only wish is for some improvements in the shoe's weight and ankle padding. 
 
 
-### [Under Armour Embiid 1 CNY: Joel Embiid Men's Red Trainers](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=under-armour-embiid-1-cny-joel-embiid-mens-red-trainers)
+### [Under Armour Embiid 1 CNY: Joel Embiid Men's Red Trainers](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=under-armour-embiid-1-cny-joel-embiid-mens-red-trainers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=under-armour-embiid-1-cny-joel-embiid-mens-red-trainers"><img alt="under-armour-embiid-1-cny-mens-red-trainers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/under-armour-embiid-1-cny-mens-red-trainers-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=under-armour-embiid-1-cny-joel-embiid-mens-red-trainers"><img alt="under-armour-embiid-1-cny-mens-red-trainers-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/under-armour-embiid-1-cny-mens-red-trainers-1/h=540,fit=pad,background=black"/></a></div>
 
 The Under Armour Embiid 1 Cny Men's Red Trainers are a great choice for those looking for a basketball shoe with a sporty touch. The design is inspired by the professional basketball player Joel Embiid, making it perfect for someone wanting to bring their game to the next level. 
 
@@ -112,18 +112,18 @@ One thing that stood out to me is the HOVR technology that provides energy absor
 The lightweight mesh upper was another feature that impressed me, as it provided the perfect balance of breathability, mobility, and stability during my time on the court. However, the insole pad coming off was a big disappointment for me. It was uncomfortable to play with and caused some discomfort while playing. Overall, the Under Armour Embiid 1 Cny Men's Red Trainers were a solid choice for a sports shoe, but with the insole issue, it may not be the perfect fit for everyone. 
 
 
-### [Adidas D.O.N. Issue 4 Black Basketball Shoes: Data-Generated Traction, LIGHTLOCK Upper & Propulsion Plate](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=adidas-d-o-n-issue-4-black-basketball-shoes-data-generated-traction-lightlock-upper-propulsion-plate)
+### [Adidas D.O.N. Issue 4 Black Basketball Shoes: Data-Generated Traction, LIGHTLOCK Upper & Propulsion Plate](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=adidas-d-o-n-issue-4-black-basketball-shoes-data-generated-traction-lightlock-upper-propulsion-plate)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=adidas-d-o-n-issue-4-black-basketball-shoes-data-generated-traction-lightlock-upper-propulsion-plate"><img alt="adidas-adult-d-o-n-issue-4-black-basketball-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adidas-adult-d-o-n-issue-4-black-basketball-shoes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=adidas-d-o-n-issue-4-black-basketball-shoes-data-generated-traction-lightlock-upper-propulsion-plate"><img alt="adidas-adult-d-o-n-issue-4-black-basketball-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/adidas-adult-d-o-n-issue-4-black-basketball-shoes-1/h=540,fit=pad,background=black"/></a></div>
 
 The Adidas D. O. N. Issue 4 basketball shoes offer a stylish and affordable option for those who want to support their team on the court. With a regular fit, a Lightstrike midsole for lightweight cushioning, and a data-generated traction outsole, these shoes provide the necessary grip for players to outperform their opponents. 
 
 The LIGHTLOCK upper ensures a secure fit, and the Propulsion plate enhances responsiveness during high-impact movements. While the quality of materials could be improved, the price makes up for it, making these a must-have addition to any sneaker enthusiast's collection. 
 
 
-### [Nike LeBron 18 Empire Jade: The Joel Embiid Signature Shoe](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=nike-lebron-18-empire-jade-the-joel-embiid-signature-shoe)
+### [Nike LeBron 18 Empire Jade: The Joel Embiid Signature Shoe](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=nike-lebron-18-empire-jade-the-joel-embiid-signature-shoe)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=nike-lebron-18-empire-jade-the-joel-embiid-signature-shoe"><img alt="nike-lebron-18-ep-empire-jade-db7644-002-us-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-lebron-18-ep-empire-jade-db7644-002-us-10-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=nike-lebron-18-empire-jade-the-joel-embiid-signature-shoe"><img alt="nike-lebron-18-ep-empire-jade-db7644-002-us-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-lebron-18-ep-empire-jade-db7644-002-us-10-1/h=540,fit=pad,background=black"/></a></div>
 
 Sometimes, comfort in a sneaker can feel like a far-off dream, but not with the Nike LeBron 18 EP 'Empire Jade'. This shoe's fusion of materials made my feet feel like they were walking on clouds. The unique blend of high-tech Knitposite 2.0 fabric, ballistic nylon, and rubber overlays created a snug yet breathable fit. I particularly loved the semi-translucent bubbles on the geometric tongue – they added a touch of style to my look without compromising on comfort. 
 
@@ -134,9 +134,9 @@ The Empire Jade's design, inspired by a jade seal, was a beautiful sight to beho
 Overall, the Nike LeBron 18 EP 'Empire Jade' was a game-changer in my daily routine. Its blend of style, comfort, and performance made it an essential addition to my shoe collection. 
 
 
-### [New Balance Embiid Signature Basketball Shoes](https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-embiid-signature-basketball-shoes)
+### [New Balance Embiid Signature Basketball Shoes](https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm\_term=new-balance-embiid-signature-basketball-shoes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes?utm_term=new-balance-embiid-signature-basketball-shoes"><img alt="new-balance-two-wxy-v3-basketball-shoes-mens-white-blue-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-two-wxy-v3-basketball-shoes-mens-white-blue-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes?utm_term=new-balance-embiid-signature-basketball-shoes"><img alt="new-balance-two-wxy-v3-basketball-shoes-mens-white-blue-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/new-balance-two-wxy-v3-basketball-shoes-mens-white-blue-green-1/h=540,fit=pad,background=black"/></a></div>
 
 The New Balance Two WXY V3 Men's Basketball Shoes in white/blue/green are a game-changer for any basketball enthusiast. The unique design was inspired by the human brain's firing synapses, making them perfect for quick actions and quick landings on the court. 
 
@@ -158,7 +158,7 @@ Welcome to the Joel Embiid Shoes Buyer's Guide. In this section, we will discuss
 
 When purchasing Joel Embiid-inspired shoes, consider the design and style features that appeal to you. Embiid's shoes often include bold graphics, bright colors, and unique patterns that stand out on the court. Make sure the shoes you choose align with your preferred aesthetic and align with your personal style. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-2/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-2/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-2" height="540"></a></div>
 
 
 ### Performance and Comfort
@@ -170,7 +170,7 @@ One of the most important aspects of buying a basketball shoe is its performance
 
 Basketball shoes can range in price depending on the brand, features, and style. When shopping for Joel Embiid-inspired shoes, set a budget and stick to it. Be mindful of sales, promotions, and discounts that can help you save money while still getting a quality item. Additionally, consider what other expenses you may incur, such as customization or additional pairings. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-3/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-3/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-3" height="540"></a></div>
 
 
 ### Brand Reputation and Reviews
@@ -180,7 +180,7 @@ Do your research before making a purchase. Look for brand reputation and read re
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-4/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-4/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-4" height="540"></a></div>
 
 
 ### What are Joel Embiid shoes?
@@ -196,7 +196,7 @@ There are several reasons to consider purchasing Joel Embiid shoes. Firstly, the
 
 Secondly, Embiid shoes are not only functional and practical but also stylish. Their bold and fashionable designs appeal to fans and basketball enthusiasts, making them a fashionable choice for off-court wear. Lastly, by purchasing Joel Embiid shoes, fans can show their support for their favorite player and contribute to the popularity and success of his brand. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-5/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-5/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-5" height="540"></a></div>
 
 
 ### Which size should I buy for Joel Embiid shoes?
@@ -212,7 +212,7 @@ The cost of Joel Embiid shoes varies depending on models, colorways, and release
 
 When purchasing shoes online, be sure to check for promotions or discount codes that may save you money on your purchase. Additionally, many NBA teams or shoe brands offer loyalty rewards or membership programs that may provide cost savings benefits for purchasing Joel Embiid shoes or other merchandise. Always compare prices across multiple retailers to ensure you get the best deal for your money. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-6/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Joel+Embiid+Shoes"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Joel-Embiid-Shoes-6/h=540,fit=pad,background=black" alt="Joel-Embiid-Shoes-6" height="540"></a></div>
 
 
 ### Are Joel Embiid shoes suitable for everyday wear?

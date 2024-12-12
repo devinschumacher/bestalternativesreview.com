@@ -15,27 +15,27 @@ Discover the enchanting world of Elie Saab Perfumes, where every aroma tells a s
 ## Reviews
 
 
-### [Elie Saab Women's Eau de Parfum Spray (3oz)](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-womens-eau-de-parfum-spray-3oz)
+### [Elie Saab Women's Eau de Parfum Spray (3oz)](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-womens-eau-de-parfum-spray-3oz)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-womens-eau-de-parfum-spray-3oz"><img alt="women-eau-de-parfum-spray-3-oz-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/women-eau-de-parfum-spray-3-oz-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-womens-eau-de-parfum-spray-3oz"><img alt="women-eau-de-parfum-spray-3-oz-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/women-eau-de-parfum-spray-3-oz-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
 
 The Women Eau de Parfum Spray stands out among Elie Saab's offerings, with its bold and feminine scent designed for the modern woman. The scent is reminiscent of a refined yet powerful perfume, perfect for a variety of occasions. 
 
 Made with high-quality ingredients, the Women Eau de Parfum Spray features a top note of zesty mandarin orange and base notes of sandalwood and vanilla, all working together to create a warm and irresistible fragrance. With a strong presence and character, the Women Eau de Parfum Spray is an excellent choice for those looking for a long-lasting and luxurious scent. 
 
 
-### [Elie Saab Le Parfum Body Cream - Luxurious Scent Enhancer](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-body-cream-luxurious-scent-enhancer)
+### [Elie Saab Le Parfum Body Cream - Luxurious Scent Enhancer](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-body-cream-luxurious-scent-enhancer)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-body-cream-luxurious-scent-enhancer"><img alt="elie-saab-le-parfum-body-cream-5-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-body-cream-5-1-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-body-cream-luxurious-scent-enhancer"><img alt="elie-saab-le-parfum-body-cream-5-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-body-cream-5-1-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Elie Saab Le Parfum Body Cream is an exquisite addition to your skincare routine. Its luxurious cream form glides smoothly on the skin, leaving you with a refreshing and subtle scent of jasmine and patchouli. 
 
 The moisturizing formula of this cream is deeply nourishing, giving your skin a soft and smooth texture. The product, which comes in a sleek glass jar, is a perfect blend of scent and hydration. It's versatile, suitable for all types of skin, and a delightful choice for anyone looking to add a touch of luxury to their daily routine. 
 
 
-### [Elie Saab Le Parfum Essentiel Eau de Parfum: Refreshing and Long-Lasting Fragrance for Daily Use](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-essentiel-eau-de-parfum-refreshing-and-long-lasting-fragrance-for-daily-use)
+### [Elie Saab Le Parfum Essentiel Eau de Parfum: Refreshing and Long-Lasting Fragrance for Daily Use](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-essentiel-eau-de-parfum-refreshing-and-long-lasting-fragrance-for-daily-use)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-essentiel-eau-de-parfum-refreshing-and-long-lasting-fragrance-for-daily-use"><img alt="le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-3-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-3-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-essentiel-eau-de-parfum-refreshing-and-long-lasting-fragrance-for-daily-use"><img alt="le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-3-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-3-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the essence of Elie Saab with his Le Parfum Essentiel Eau de Parfum Spray, a refreshing and long-lasting scent that's perfect for daily use. Launched by the renowned fashion house, this perfume is an excellent addition for those looking to add a touch of luxury to their daily routine. 
 
@@ -48,9 +48,9 @@ With a 4.6 rating from 312 reviews, this fragrance has garnered a significant fa
 Overall, Elie Saab's Le Parfum Essentiel Eau de Parfum Spray is a must-try for those who appreciate a luxurious and classic fragrance with a modern twist. Its long-lasting and refreshing nature makes it an ideal choice for day-to-day wear and perfect for those seeking to return to the essentials in their lives. 
 
 
-### [Elie Saab Essence No. 1 Rose Women's Perfume Spray (3.4 oz)](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-essence-no-1-rose-womens-perfume-spray-3-4-oz)
+### [Elie Saab Essence No. 1 Rose Women's Perfume Spray (3.4 oz)](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-essence-no-1-rose-womens-perfume-spray-3-4-oz)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-essence-no-1-rose-womens-perfume-spray-3-4-oz"><img alt="elie-saab-essence-no-1-rose-women-3-4-oz-eau-de-parfum-spray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-essence-no-1-rose-women-3-4-oz-eau-de-parfum-spray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-essence-no-1-rose-womens-perfume-spray-3-4-oz"><img alt="elie-saab-essence-no-1-rose-women-3-4-oz-eau-de-parfum-spray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-essence-no-1-rose-women-3-4-oz-eau-de-parfum-spray-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Elie Saab Essence No. 1 Rose Women Eau de Parfum Spray, and let me tell you, it's a game-changer! I've never had a women's perfume that smells so distinctively floral yet not overly sweet, and it has been surprisingly versatile in my everyday life. 
 
@@ -59,18 +59,18 @@ The unique combination of rose notes and a touch of vanilla creates a divine sce
 However, a downside for me was that it didn't last as long as I'd hoped. But overall, the Elie Saab Essence No. 1 Rose Women Eau de Parfum Spray added a touch of elegance to my daily life that was truly worth it. 
 
 
-### [Elie Saab Le Parfum Bridal Eau de Parfum, 50ml](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-bridal-eau-de-parfum-50ml)
+### [Elie Saab Le Parfum Bridal Eau de Parfum, 50ml](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-bridal-eau-de-parfum-50ml)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-bridal-eau-de-parfum-50ml"><img alt="elie-saab-le-parfum-bridal-50ml-edp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-bridal-50ml-edp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-bridal-eau-de-parfum-50ml"><img alt="elie-saab-le-parfum-bridal-50ml-edp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-bridal-50ml-edp-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum Bridal EDP is an enchanting fragrance that brings to life the essence of a bridal bouquet. This delicately sophisticated scent exudes radiance and positivity, making it perfect for special occasions. The interplay of white florals like gardenia and creamy notes of vanilla, ylang-ylang, and benzoin, create a warm and embracing finish. 
 
 The bottle's design, featuring precise facets reminiscent of a diamond, adds an elegant touch to this romantic fragrance. While using this perfume, I truly felt like I was embracing life's most precious moments. 
 
 
-### [Elie Saab Le Parfum 3-Piece Gift Set: Radiant, Voluptuous, and Addictive](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-3-piece-gift-set-radiant-voluptuous-and-addictive)
+### [Elie Saab Le Parfum 3-Piece Gift Set: Radiant, Voluptuous, and Addictive](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-3-piece-gift-set-radiant-voluptuous-and-addictive)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-3-piece-gift-set-radiant-voluptuous-and-addictive"><img alt="elie-saab-le-parfum-women-3-pc-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-women-3-pc-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-3-piece-gift-set-radiant-voluptuous-and-addictive"><img alt="elie-saab-le-parfum-women-3-pc-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-women-3-pc-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum is the perfect gift for any woman who aims to bring a touch of magic and elegance into her everyday life. This 3 PC set not only looks stunning with its sleek packaging, but it also boasts a captivating fragrance that lingers throughout the day. The top note, a radiant and sun-kissed orange blossom, immediately captures your attention and sets the stage for the rich blend of jasmine absolute, patchouli, and cedar woody accords. 
 
@@ -79,18 +79,18 @@ What truly shines in the Le Parfum set, however, is the attention to detail when
 However, one might find the scent to be a bit too strong for their personal taste, and it might be overpowering to some. Despite this minor drawback, the overall experience with Elie Saab Le Parfum 3 PC set is truly exceptional, providing the perfect aromatic experience for anyone in search of a classic yet unconventional fragrance. 
 
 
-### [Elie Saab Le Parfum in White: A Classic Elie Saab Perfume](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-in-white-a-classic-elie-saab-perfume)
+### [Elie Saab Le Parfum in White: A Classic Elie Saab Perfume](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-in-white-a-classic-elie-saab-perfume)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-in-white-a-classic-elie-saab-perfume"><img alt="elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-spray-vial-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-spray-vial-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-in-white-a-classic-elie-saab-perfume"><img alt="elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-spray-vial-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-spray-vial-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum in White is a captivating addition to the Bridal Collection, offering a modern take on the iconic Le Parfum scent. Enriched with high-strength fragrance, this Eau de Parfum boasts an impressive longevity of up to 9 hours, making it a perfect choice for special occasions like weddings. 
 
 The symphony of whites in this chic perfume is a harmonious blend of Orange Blossom and Jasmine, wrapped in the mesmerizing veil of White Musks and Patchouli. A blend of the signature Elie Saab scents, this fragrance evokes a radiant aura that's both feminine and elegant, making it a standout for those who appreciate the art of perfumery. 
 
 
-### [Elie Saab Le Parfum Lumiere Eau de Parfum Spray for Women](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-lumiere-eau-de-parfum-spray-for-women)
+### [Elie Saab Le Parfum Lumiere Eau de Parfum Spray for Women](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-lumiere-eau-de-parfum-spray-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-lumiere-eau-de-parfum-spray-for-women"><img alt="elie-saab-441446-3-oz-le-parfum-lumiere-eau-de-parfum-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-441446-3-oz-le-parfum-lumiere-eau-de-parfum-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-lumiere-eau-de-parfum-spray-for-women"><img alt="elie-saab-441446-3-oz-le-parfum-lumiere-eau-de-parfum-spray-for-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-441446-3-oz-le-parfum-lumiere-eau-de-parfum-spray-for-women-1/h=540,fit=pad,background=black"/></a></div>
 
 As I walked into the store, the alluring scent of Elie Saab's Le Parfum Lumiere captured me. The perfume's beautiful glow was the perfect encapsulation of the scent that follows me wherever I go. The moment I put on the light spray, I knew it was something unique - the blend of powdery florals and hints of musk were both sophisticated and delightfully feminine, yet not overpowering. 
 
@@ -101,25 +101,25 @@ The only downside for me was the price. Despite its high quality, it can be quit
 Overall, Le Parfum Lumiere is a beautiful and versatile perfume that I couldn't live without. It's the perfect blend of elegance, sophistication, and confidence, and it's become an indispensable part of my daily life. 
 
 
-### [Elie Saab Le Parfum Mini - White Eau de Parfum](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-mini-white-eau-de-parfum)
+### [Elie Saab Le Parfum Mini - White Eau de Parfum](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-mini-white-eau-de-parfum)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-mini-white-eau-de-parfum"><img alt="elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-mini-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-mini-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-mini-white-eau-de-parfum"><img alt="elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-mini-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-by-elie-saab-eau-de-parfum-mini-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience a modern love story with a sartorial twist through Elie Saab's Le Parfum in White. This Eau de Parfum mini captivated me with its addictive symphony of whites. Opening with a dazzling flight of mandarin essence and Blackcurrant Bud, it seamlessly transitions to a heart of Jasmine Sambac and Orange Blossom, bringing a perfect balance of femininity and softness. 
 
 The base lingers with a hint of white musk and patchouli, ensuring a deliciously addictive trail that leaves you wanting more. While the 0.01 oz size might be a tad small, the scent truly makes up for it. 
 
 
-### [Elie Saab Rose Couture Eau de Toilette Spray for Women](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-rose-couture-eau-de-toilette-spray-for-women)
+### [Elie Saab Rose Couture Eau de Toilette Spray for Women](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-rose-couture-eau-de-toilette-spray-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-rose-couture-eau-de-toilette-spray-for-women"><img alt="elie-saab-le-parfum-rose-couture-eau-de-toilette-spray-for-women-3-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-rose-couture-eau-de-toilette-spray-for-women-3-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-rose-couture-eau-de-toilette-spray-for-women"><img alt="elie-saab-le-parfum-rose-couture-eau-de-toilette-spray-for-women-3-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-rose-couture-eau-de-toilette-spray-for-women-3-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab's Le Parfum Rose Couture is a luxurious and versatile fragrance that exudes elegance and allure. Its enchanting blend of orange blossom, silky rose petals, peony, rose nectar, fruity nuances, jasmine, vanilla, woody, patchouli, and sandalwood captivates the senses and leaves a lasting impression. This captivating scent is suitable for all skin types and is available in various sizes, making it a perfect choice for everyday wear or special occasions. 
 
 
-### [Elie Saab Forever Eau de Parfum Spray for Women](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-forever-eau-de-parfum-spray-for-women)
+### [Elie Saab Forever Eau de Parfum Spray for Women](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-forever-eau-de-parfum-spray-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-forever-eau-de-parfum-spray-for-women"><img alt="girl-of-now-forever-eau-de-parfum-spray-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girl-of-now-forever-eau-de-parfum-spray-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-forever-eau-de-parfum-spray-for-women"><img alt="girl-of-now-forever-eau-de-parfum-spray-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girl-of-now-forever-eau-de-parfum-spray-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab's Girl of Now Forever Eau de Parfum Spray is a delightful, fruity-floral fragrance that captures my senses every time I spritz it on. As the first notes of citrus meld with the raspberry, I feel like I'm transported to a summer garden. The base notes of patchouli, cashmeran, and vanilla give the scent a touch of warmth and depth, making it perfect for both day and night. 
 
@@ -128,9 +128,9 @@ One thing that's undeniably feminine about this perfume is its floral heart, whi
 That being said, I have noticed that it can be a bit overpowering for some people, and might not be the best choice for those who prefer lighter scents. However, if you're looking for a summer fragrance with a bold and captivating personality, Girl of Now Forever Eau de Parfum Spray is a perfect pick. It's definitely become a staple in my daily routine, making me feel confident and feminine at every turn. 
 
 
-### [Elie Saab Le Parfum White - 50ml Perfume Bottle](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-white-50ml-perfume-bottle)
+### [Elie Saab Le Parfum White - 50ml Perfume Bottle](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-white-50ml-perfume-bottle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-white-50ml-perfume-bottle"><img alt="elie-saab-le-parfum-in-white-50ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-50ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-white-50ml-perfume-bottle"><img alt="elie-saab-le-parfum-in-white-50ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-in-white-50ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to try Elie Saab's White Le Parfum. The moment I opened the elegant bottle, I was drawn into a world of sweet fragrances. The top notes of red fruits and mandarin created such a refreshing experience. As the day unfolded, the scent took me on a journey of white flowers, jasmine, and patchouli. The warm, comforting base of white musk left a lasting impression. 
 
@@ -141,18 +141,18 @@ However, there was one thing that left me slightly disappointed. After about fou
 Despite this drawback, I couldn't help but fall in love with Elie Saab's White Le Parfum. Its captivating aroma and elegant packaging made it a part of my daily routine. If you're in the market for a versatile perfume that exudes both beauty and sophistication, you should definitely give this one a try. 
 
 
-### [Elie Saab Shine - Chic Women's Perfume](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-shine-chic-womens-perfume)
+### [Elie Saab Shine - Chic Women's Perfume](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-shine-chic-womens-perfume)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-shine-chic-womens-perfume"><img alt="girl-of-now-shine-by-elie-saab-1-6-oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girl-of-now-shine-by-elie-saab-1-6-oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-shine-chic-womens-perfume"><img alt="girl-of-now-shine-by-elie-saab-1-6-oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/girl-of-now-shine-by-elie-saab-1-6-oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Elie Saab Shine for a while now, and it's my go-to fragrance for a night out. As soon as I spray it, I'm reminded of the warm, fresh scent of roasted almonds and the freshness of ylang-ylang. The top notes make me excited to put the fragrance on, and the base notes of jasmine, vanilla, and patchouli add depth and a lingering sweetness. 
 
 One thing I love about this fragrance is that it's versatile – it's perfect for a casual day or a fun night out. People always compliment me when I wear it, and the gold bottle is both classy and eye-catching. However, one thing to note is the price point – it's a bit high compared to other fragrances in the market. But for me, it's worth the splurge for a unique scent and pretty bottle. 
 
 
-### [Elie Saab Variety: A Collection of Exquisite Fragrances](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-variety-a-collection-of-exquisite-fragrances)
+### [Elie Saab Variety: A Collection of Exquisite Fragrances](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-variety-a-collection-of-exquisite-fragrances)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-variety-a-collection-of-exquisite-fragrances"><img alt="elie-saab-variety-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-variety-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-variety-a-collection-of-exquisite-fragrances"><img alt="elie-saab-variety-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-variety-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab's Variety by Elie Saab is a delightful miniature eau de parfum set that offers a wonderful selection of scents to suit various occasions. I recently received this set as a gift, and I was absolutely thrilled to try each fragrance. 
 
@@ -167,18 +167,18 @@ However, the Le Parfum in White Eau de Parfum was a bit too subtle for my taste,
 Overall, the Elie Saab Variety by Elie Saab miniature eau de parfum set provides a great way to sample a variety of scents from the brand. While I adored some scents more than others, this set offers a delightful array of options for any perfume lover. 
 
 
-### [Elie Saab Le Parfum: Delicate Floral Fragrance for Women](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-delicate-floral-fragrance-for-women)
+### [Elie Saab Le Parfum: Delicate Floral Fragrance for Women](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-delicate-floral-fragrance-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-delicate-floral-fragrance-for-women"><img alt="elie-saab-le-parfum-3-0oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-3-0oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-delicate-floral-fragrance-for-women"><img alt="elie-saab-le-parfum-3-0oz-eau-de-parfum-spray-women-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-3-0oz-eau-de-parfum-spray-women-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum, a radiant haute couture fragrance, captures the essence of femininity in every spritz. The perfume, housed within a bottle that shines as brightly as its golden honeyed notes, boasts the delicate and intoxicating scents of orange blossom, jasmine, and grandiflorum. 
 
 The middles and base notes weave a tale of luxury, with cedar, patchouli, and rose honey accord creating a harmonious blend perfect for special occasions. Priced at a premium, it is more than worth the investment for this stunning and unforgettable scent. 
 
 
-### [Le Parfum Elie Saab: Luxurious White Eau de Parfum Spray](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=le-parfum-elie-saab-luxurious-white-eau-de-parfum-spray)
+### [Le Parfum Elie Saab: Luxurious White Eau de Parfum Spray](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=le-parfum-elie-saab-luxurious-white-eau-de-parfum-spray)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=le-parfum-elie-saab-luxurious-white-eau-de-parfum-spray"><img alt="le-parfum-elie-saab-in-white-eau-de-parfum-spray-1-7-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-elie-saab-in-white-eau-de-parfum-spray-1-7-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=le-parfum-elie-saab-luxurious-white-eau-de-parfum-spray"><img alt="le-parfum-elie-saab-in-white-eau-de-parfum-spray-1-7-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-elie-saab-in-white-eau-de-parfum-spray-1-7-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum In White is a chic, modern, and floral fragrance. Upon opening the bottle, the luminous union of orange blossom notes makes its presence known. With a slightly fruity and chypre character, the scent feels more feminine than overwhelming, making it ideal for everyday use. The addition of white musk creates a softer and more sensual experience. 
 
@@ -189,9 +189,9 @@ Though primarily considered a romantic and elegant fragrance, it's worth mention
 Overall, Elie Saab Le Parfum In White is a lovely option for those seeking a chic, yet unique floral scent with a touch of sweetness. 
 
 
-### [Elie Saab Le Parfum Essentiel Eau de Parfum - Limited Edition](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-essentiel-eau-de-parfum-limited-edition)
+### [Elie Saab Le Parfum Essentiel Eau de Parfum - Limited Edition](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-essentiel-eau-de-parfum-limited-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-essentiel-eau-de-parfum-limited-edition"><img alt="le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-1-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-1-6-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-essentiel-eau-de-parfum-limited-edition"><img alt="le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-1-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-parfum-essentiel-eau-de-parfum-spray-by-elie-saab-1-6-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in the luxurious scent of Elie Saab's Le Parfum Essentiel Eau de Parfum Spray, featuring a captivating blend of citrus, floral, and woody notes. This lightweight fragrance exudes a charming freshness, making it the perfect choice for all occasions. 
 
@@ -204,18 +204,18 @@ Many customers have praised the longevity of this fragrance on their skin, with 
 Le Parfum Essentiel by Elie Saab is a must-try for those looking for a fresh, sophisticated scent that is bound to turn heads. 
 
 
-### [Elie Saab Girl of Now Fragrance Set](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-girl-of-now-fragrance-set)
+### [Elie Saab Girl of Now Fragrance Set](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-girl-of-now-fragrance-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-girl-of-now-fragrance-set"><img alt="elie-saab-girl-of-now-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-girl-of-now-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-girl-of-now-fragrance-set"><img alt="elie-saab-girl-of-now-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-girl-of-now-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Savor the allure of Elie Saab Girl of Now, a delightful gift set with a mesmerizing 50ml Eau de Parfum and a convenient 10ml travel size. This exquisite fragrance is an ode to a dynamic, magnetic woman who embraces life with undeniable positivity and flair. 
 
 Inhale its playful, spontaneous scent - the perfect accompaniment to the modern woman's zest for life. 
 
 
-### [Elie Saab Elixir Perfume Set](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-elixir-perfume-set)
+### [Elie Saab Elixir Perfume Set](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-elixir-perfume-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-elixir-perfume-set"><img alt="elie-saab-elixir-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-elixir-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-elixir-perfume-set"><img alt="elie-saab-elixir-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-elixir-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in the sophisticated world of Elie Saab's Elixir set, a perfect gift for the women in your life. This exquisite set features two delightful fragrances - a Perfumed water of 50 ml and a mini perfume of 10 ml Elie Saab Elixir. As an oriental floral scent, this set is perfect for those seeking a blend of femininity and depth in their fragrances. 
 
@@ -224,9 +224,9 @@ With its elegant and sleek packaging, this Elie Saab Elixir set is bound to impr
 Embrace the charm of Elie Saab's luxurious fragrances and gift the enchanting scent of Elixir. 
 
 
-### [Elie Saab Le Parfum L'eau Couture for Women: Mini Perfume by Elie Saab](https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-leau-couture-for-women-mini-perfume-by-elie-saab)
+### [Elie Saab Le Parfum L'eau Couture for Women: Mini Perfume by Elie Saab](https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm\_term=elie-saab-le-parfum-leau-couture-for-women-mini-perfume-by-elie-saab)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-leau-couture-for-women-mini-perfume-by-elie-saab"><img alt="elie-saab-le-parfum-leau-couture-for-women-edt-spray-33-oz-mini-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-leau-couture-for-women-edt-spray-33-oz-mini-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume?utm_term=elie-saab-le-parfum-leau-couture-for-women-mini-perfume-by-elie-saab"><img alt="elie-saab-le-parfum-leau-couture-for-women-edt-spray-33-oz-mini-by-elie-saab-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/elie-saab-le-parfum-leau-couture-for-women-edt-spray-33-oz-mini-by-elie-saab-1/h=540,fit=pad,background=black"/></a></div>
 
 Elie Saab Le Parfum L'eau Couture is a decadent and rich perfume that captures the luxurious essence of opulence. Featuring notes of Bergamot, Green Almond, Magnolia, Orange Blossom, and Vanilla, this fragrance is a delight for those seeking a medley of sweet and floral scents. 
 
@@ -242,7 +242,7 @@ Welcome to our comprehensive buyer's guide for Elie Saab perfume. This section w
 
 Elie Saab fragrances are classified into different categories, each offering a diverse range of scents designed to cater to various preferences. The key collections include: Le Parfum, Elle a Tout Ete, and Le Parfum de Soie Intense. Consider the different fragrance types to narrow down your search and find what resonates with you the most. Take note that these collections may often feature special editions or limited-edition collaborations. Stay updated with the latest releases to explore new scents and elevate your olfactory experience. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-2/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-2/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-2" height="540"></a></div>
 
 
 ### Notes That Create Masterpieces
@@ -254,7 +254,7 @@ A fragrance's notes are the fundamental components that give it a unique aroma. 
 
 Elie Saab perfumes are known for their elegant and sophisticated designs, both in the bottle and the packaging. The bottles often showcase a luxurious crystal finish, reflecting light and showcasing the essence of the fragrance inside. The packaging is usually minimalistic and classy, which may include a premium box or an adorned bottle cap. When choosing an Elie Saab perfume, consider how the design will complement your style and the style of the room where it'll be displayed. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-3/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-3/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-3" height="540"></a></div>
 
 
 ### Price and Value for Money
@@ -264,7 +264,7 @@ The price of Elie Saab perfumes can vary depending on the collection and bottle 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-4/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-4/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-4" height="540"></a></div>
 
 
 ### What are the key features of Elie Saab Perfume?
@@ -280,7 +280,7 @@ Elie Saab Perfume offers a diverse array of scents, so it's essential to conside
 
 If your taste leans more towards fresh, woody scents, consider Elie Saab's “La Princess” perfume, which evokes a sense of enchantment with its blend of citrus, amber, and pink pepper. No matter your preferences, you can find an Elie Saab Perfume scent that will delight your senses and capture the mood you wish to portray. Ultimately, it's essential to give each scent a try to find the perfect match for your individual taste. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-5/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-5/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-5" height="540"></a></div>
 
 
 ### Who is the target audience for Elie Saab Perfume?
@@ -296,7 +296,7 @@ Elie Saab Perfume sets itself apart from the competition through its dedication 
 
 Elie Saab Perfume's commitment to quality extends beyond its fragrance formulas as well. Each product in the collection boasts intricate, artfully crafted bottle designs that complement the luxurious aromas of the scents contained within. The brand's dedication to innovation, quality, and creativity leaves a lasting impression on the wearer, making Elie Saab Perfume a truly unique and special choice among fragrance enthusiasts. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-6/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Elie+Saab+Perfume"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Elie-Saab-Perfume-6/h=540,fit=pad,background=black" alt="Elie-Saab-Perfume-6" height="540"></a></div>
 
 
 ### Are Elie Saab Perfume products affordable?

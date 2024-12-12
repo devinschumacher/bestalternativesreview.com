@@ -15,9 +15,9 @@ Hey there, comic book fans! If you're a lover of Batman, you're in luck. We've p
 ## Reviews
 
 
-### [Batman's Grave #4: Thrilling Comic Book Adventure](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batmans-grave-4-thrilling-comic-book-adventure)
+### [Batman's Grave #4: Thrilling Comic Book Adventure](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batmans-grave-4-thrilling-comic-book-adventure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batmans-grave-4-thrilling-comic-book-adventure"><img alt="batmans-grave-4of-12-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batmans-grave-4of-12-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batmans-grave-4-thrilling-comic-book-adventure"><img alt="batmans-grave-4of-12-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batmans-grave-4of-12-1/h=540,fit=pad,background=black"/></a></div>
 
 In this gripping comic book series, readers are introduced to a dark mystery that Batman must solve. Warren Ellis and Bryan Hitch, a renowned duo, take us on an emotional rollercoaster. 
 
@@ -26,45 +26,45 @@ This thrilling adventure, set in the DC Universe, is a must-read for comic book 
 The World's Greatest Detective faces his deepest fears and uncovers the truth behind the murder, leaving a memorable impact on the reader. 
 
 
-### [Batman Ninja Volume 1 - Anime Adventure Comic Book](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-ninja-volume-1-anime-adventure-comic-book)
+### [Batman Ninja Volume 1 - Anime Adventure Comic Book](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-ninja-volume-1-anime-adventure-comic-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-ninja-volume-1-anime-adventure-comic-book"><img alt="batman-ninja-tome-1-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-ninja-tome-1-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-ninja-volume-1-anime-adventure-comic-book"><img alt="batman-ninja-tome-1-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-ninja-tome-1-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Le premier volume de Batman Ninja mêle les intrigantes histoires du bien-aimé héros de Gotham City à la culture fascinante du Japon féodal. Ce volume délivre un dévoilement intense à travers les personnages les plus détestés de la ville - Grodd le Gorille, le fameux Joker et surtout, les séduisantes Amazones. 
 
 La présence éloquente de ces dernières et de l'action à la base de cette série ne fait qu'ajouter une épice intemporelle à l'ensemble. Alors si vous êtes fan de Batman et vous êtes toujours à la recherche d'une aventure unique, cette collection sera une grande réussite pour vous. 
 
 
-### [Batman #1 Off-World Cover by David Finch Card Stock Variant](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-1-off-world-cover-by-david-finch-card-stock-variant)
+### [Batman #1 Off-World Cover by David Finch Card Stock Variant](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-1-off-world-cover-by-david-finch-card-stock-variant)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-1-off-world-cover-by-david-finch-card-stock-variant"><img alt="batman-off-world-1-cover-c-david-finch-card-stock-var-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-off-world-1-cover-c-david-finch-card-stock-var-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-1-off-world-cover-by-david-finch-card-stock-variant"><img alt="batman-off-world-1-cover-c-david-finch-card-stock-var-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-off-world-1-cover-c-david-finch-card-stock-var-1/h=540,fit=pad,background=black"/></a></div>
 
 Batman fans, get ready for an out-of-this-world adventure! With Jason Aaron and Doug Mahnke at the helm, this cosmic-themed tale brings Batman into the depths of space to face off against the War Storm, a city-sized spaceship filled with ruthless alien killing machines. As our young hero embarks on this brutal quest, he'll encounter unexpected cosmic challenges and unimaginable foes. 
 
 This unique take on the Dark Knight is sure to keep you on the edge of your seat. 
 
 
-### [One Bad Day: Penguin #1 (DC Comics Batman Series)](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=one-bad-day-penguin-1-dc-comics-batman-series)
+### [One Bad Day: Penguin #1 (DC Comics Batman Series)](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=one-bad-day-penguin-1-dc-comics-batman-series)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=one-bad-day-penguin-1-dc-comics-batman-series"><img alt="2022-dc-comics-batman-one-bad-day-penguin-1-batman-one-bad-day-penguin-2022-series-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/2022-dc-comics-batman-one-bad-day-penguin-1-batman-one-bad-day-penguin-2022-series-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=one-bad-day-penguin-1-dc-comics-batman-series"><img alt="2022-dc-comics-batman-one-bad-day-penguin-1-batman-one-bad-day-penguin-2022-series-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/2022-dc-comics-batman-one-bad-day-penguin-1-batman-one-bad-day-penguin-2022-series-1/h=540,fit=pad,background=black"/></a></div>
 
 One Bad Day: Penguin #1" takes us deep into the chaotic world of Gotham City, where the Penguin's criminal empire has been taken over by the sinister Umbrella Man. As the city spirals into disarray, the Penguin must reassemble his crew and regain control with the help of Batman. 
 
 This thrilling comic book showcases the twisted world of crime and the intricate dynamics between the characters, with John Ridley and Giuseppe Camuncoli crafting a gripping tale. Fans of Batman and intriguing crime narratives will not want to miss this heart-pounding adventure. 
 
 
-### [Batman: The Killing Joke Collector Set](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-the-killing-joke-collector-set)
+### [Batman: The Killing Joke Collector Set](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-the-killing-joke-collector-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-the-killing-joke-collector-set"><img alt="batman-dc-direct-batman-the-killing-joke-collector-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-dc-direct-batman-the-killing-joke-collector-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-the-killing-joke-collector-set"><img alt="batman-dc-direct-batman-the-killing-joke-collector-set-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-dc-direct-batman-the-killing-joke-collector-set-1/h=540,fit=pad,background=black"/></a></div>
 
 This unopened Batman The Killing Joke Collector Set from DC Direct is a must-have for any true Batman fan. The box houses a hardcover 48-page publication of the famous graphic novel by Alan Moore, accompanied by captivating artwork from Brian Bolland and John Higgins. The set also includes a Batman and Joker figure duo, with display bases for both, that adds a touch of authenticity to the collection. 
 
 Additionally, the box comes equipped with a camera and a gun, enhancing the overall experience. Although the retail box shows some minor shelf wear, it remains sealed, ensuring the collectible's pristine condition. This set is a unique blend of art, storytelling, and action, providing a delightful addition to any Batman enthusiast's library. 
 
 
-### [Batman Year One: The Dark Knight's Origin](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-year-one-the-dark-knights-origin)
+### [Batman Year One: The Dark Knight's Origin](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-year-one-the-dark-knights-origin)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-year-one-the-dark-knights-origin"><img alt="batman-year-one-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-year-one-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-year-one-the-dark-knights-origin"><img alt="batman-year-one-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-year-one-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first picked up Batman Year One, I could feel the weight of the comic book in my hands. The packaging was secure, and the text was easy to read, making it a pleasure to read. Frank Miller's gritty and dark take on Batman's origin story was a refreshing change from traditional storylines. 
 
@@ -75,9 +75,9 @@ However, the comic was not without its drawbacks. The language was sometimes har
 In conclusion, Batman Year One was an intriguing addition to my comic book collection, offering a unique view of Batman's origin. Despite the graphic nature of the content, the story was well-crafted, and the artwork was captivating. Overall, I would recommend this comic book to those who are up for an edgy take on the iconic Dark Knight. 
 
 
-### [Batman: Earth One Complete Collection - Dark Knight Adventures](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-earth-one-complete-collection-dark-knight-adventures)
+### [Batman: Earth One Complete Collection - Dark Knight Adventures](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-earth-one-complete-collection-dark-knight-adventures)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-earth-one-complete-collection-dark-knight-adventures"><img alt="batman-earth-one-complete-collection-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-earth-one-complete-collection-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-earth-one-complete-collection-dark-knight-adventures"><img alt="batman-earth-one-complete-collection-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-earth-one-complete-collection-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in the world of Batman like never before with the Earth One Complete Collection. Written by the talented Geoff Johns and Gary Frank, this comic book series retells the story of the Dark Knight, with a twist that makes the familiar anything but the expected. 
 
@@ -86,9 +86,9 @@ In this Gotham City, friend and foe blur together, making Bruce Wayne's journey 
 At 464 pages, this paperback edition will keep you engrossed for hours, making it the perfect addition to your comic book collection. 
 
 
-### [Gotham's Dark Beginnings: Batman: Year One](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=gothams-dark-beginnings-batman-year-one)
+### [Gotham's Dark Beginnings: Batman: Year One](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=gothams-dark-beginnings-batman-year-one)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=gothams-dark-beginnings-batman-year-one"><img alt="batman-year-one-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-year-one-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=gothams-dark-beginnings-batman-year-one"><img alt="batman-year-one-book-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-year-one-book-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fan of Batman, diving into the world of "Batman: Year One" truly was like entering a new realm of Gotham. The unique storyline, combining Bruce Wayne's emergence as Batman and Lieutenant Jim Gordon's struggle against the city's corruption, is both gripping and engaging from start to finish. The dark, gritty theme of the story is wonderfully brought to life with Frank Miller's sharp writing and the stunningly realistic artwork by David Mazzucchelli. 
 
@@ -99,18 +99,18 @@ However, one potential drawback for some readers might be the mature themes and 
 In conclusion, "Batman: Year One" is an excellent addition to any comic book lover's collection, offering a unique and compelling take on the Dark Knight's origins. It's well worth the investment for those who enjoy a more mature, character-driven narrative and are ready to delve into the complexities of Batman's world. 
 
 
-### [Batman Returns: The Official Comic Adaptation - A Thrilling Comic Experience](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-returns-the-official-comic-adaptation-a-thrilling-comic-experience)
+### [Batman Returns: The Official Comic Adaptation - A Thrilling Comic Experience](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-returns-the-official-comic-adaptation-a-thrilling-comic-experience)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-returns-the-official-comic-adaptation-a-thrilling-comic-experience"><img alt="batman-returns-the-official-comic-adaptation-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-returns-the-official-comic-adaptation-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-returns-the-official-comic-adaptation-a-thrilling-comic-experience"><img alt="batman-returns-the-official-comic-adaptation-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/batman-returns-the-official-comic-adaptation-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in the captivating world of Batman Returns with this official comic adaptation. Written by the talented duo of Sam Hamm & Dennis O'Neil, and beautifully illustrated by artists Steve Erwin and inked by Jose Luis Garcia-Lopez, this adaptation brings Tim Burton's visionary 1992 film to life. The sinister Penguin and enigmatic Catwoman wreak havoc on Gotham City, but can Batman save the day? 
 
 This comic keeps you on the edge of your seat with the thrilling storylines and remarkable illustrations. A must-read for Batman fans and comic enthusiasts alike! 
 
 
-### [Batman/Teenage Mutant Ninja Turtles Deluxe Edition: Crossover Comic Book Adventure](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-teenage-mutant-ninja-turtles-deluxe-edition-crossover-comic-book-adventure)
+### [Batman/Teenage Mutant Ninja Turtles Deluxe Edition: Crossover Comic Book Adventure](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-teenage-mutant-ninja-turtles-deluxe-edition-crossover-comic-book-adventure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-teenage-mutant-ninja-turtles-deluxe-edition-crossover-comic-book-adventure"><img alt="batman-teenage-mutant-ninja-turtles-deluxe-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-teenage-mutant-ninja-turtles-deluxe-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-teenage-mutant-ninja-turtles-deluxe-edition-crossover-comic-book-adventure"><img alt="batman-teenage-mutant-ninja-turtles-deluxe-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-teenage-mutant-ninja-turtles-deluxe-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in a thrilling crossover adventure with Batman/Teenage Mutant Ninja Turtles Deluxe Edition. This hardback book collects six captivating issues that meld two iconic universes - Gotham City and New York City. Witness Batman's epic battle against the Shredder and his ninja followers, alongside the Teenage Mutant Ninja Turtles. 
 
@@ -119,9 +119,9 @@ The story unfolds with a unique blend of characters and a stunning collab betwee
 Weighing in at 224 pages, this is a must-read for fans of both Batman and the Ninja Turtles. 
 
 
-### [Batman Who Laughs #1: Dark Knight's New Quest](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-who-laughs-1-dark-knights-new-quest)
+### [Batman Who Laughs #1: Dark Knight's New Quest](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-who-laughs-1-dark-knights-new-quest)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-who-laughs-1-dark-knights-new-quest"><img alt="batman-who-laughs-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-who-laughs-1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-who-laughs-1-dark-knights-new-quest"><img alt="batman-who-laughs-1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-who-laughs-1-1/h=540,fit=pad,background=black"/></a></div>
 
 Diving into the world of comic books, I was thrilled to find "Batman Who Laughs #1" in my possession. The storyline is a fierce battle between Batman and the Grim Knight, with the dark villain trying to turn Batman into pure evil. As an avid fan of the comic book genre, this issue stood out for its intriguing story by Scott Snyder, accompanied by the captivating artwork of Jock. 
 
@@ -132,9 +132,9 @@ However, the one aspect that could hold the experience back was the packaging. I
 Despite a minor setback, "Batman Who Laughs #1" is an excellent addition to a comic book enthusiast's collection, thanks to its immersive and action-packed storyline, coupled with enticing artwork. It's a must-read for fans of Batman, and a great starting point for anyone venturing into the world of comic books. 
 
 
-### [Batman Chronicles Vol. 1: Exciting Superhero Adventures Await](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-chronicles-vol-1-exciting-superhero-adventures-await)
+### [Batman Chronicles Vol. 1: Exciting Superhero Adventures Await](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-chronicles-vol-1-exciting-superhero-adventures-await)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-chronicles-vol-1-exciting-superhero-adventures-await"><img alt="batman-chronicles-vol-1-by-finger-bill-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-chronicles-vol-1-by-finger-bill-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-chronicles-vol-1-exciting-superhero-adventures-await"><img alt="batman-chronicles-vol-1-by-finger-bill-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-chronicles-vol-1-by-finger-bill-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Batman Chronicles Vol. 1 by the famous duo, Bill Finger and Bob Kane. 
 
@@ -143,9 +143,9 @@ This compilation of the Dark Knight's earliest adventures is a collector's dream
 However, some parts of the book felt rushed, with dialogues often taking priority over the art. Despite this minor flaw, it's an essential addition to every Batman aficionado's collection. 
 
 
-### [Batman: Scar of the Bat - A Gripping Comic Book Adventure](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-scar-of-the-bat-a-gripping-comic-book-adventure)
+### [Batman: Scar of the Bat - A Gripping Comic Book Adventure](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-scar-of-the-bat-a-gripping-comic-book-adventure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-scar-of-the-bat-a-gripping-comic-book-adventure"><img alt="batman-scar-of-the-bat-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-scar-of-the-bat-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-scar-of-the-bat-a-gripping-comic-book-adventure"><img alt="batman-scar-of-the-bat-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-scar-of-the-bat-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently picked up the Batman: Scar of the Bat graphic novel, and I must say, it's a refreshing take on the Dark Knight. The story has our beloved vigilante transported to the 1930s, where he teams up with a young Eliot Ness to take down Al Capone. The unique setting adds a layer of intrigue to the classic narrative, and the dynamic between Batman and Ness makes for an interesting combo. 
 
@@ -154,9 +154,9 @@ One thing that stood out to me was the captivating artwork, which adds depth and
 Overall, Batman: Scar of the Bat was a thrilling read, and I appreciate the spin on the Batman universe. Fans of the character and newcomers alike will find this book a great addition to their collection. 
 
 
-### [The Classic Collection: Batman & Spawn Cross-Over](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=the-classic-collection-batman-spawn-cross-over)
+### [The Classic Collection: Batman & Spawn Cross-Over](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=the-classic-collection-batman-spawn-cross-over)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=the-classic-collection-batman-spawn-cross-over"><img alt="batman-spawn-the-classic-collection-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-spawn-the-classic-collection-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=the-classic-collection-batman-spawn-cross-over"><img alt="batman-spawn-the-classic-collection-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-spawn-the-classic-collection-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience an epic collaboration between two of the world's most iconic superheroes in the brand-new, hardcover edition of Batman/Spawn: The Classic Collection. This thrilling book takes readers back three decades for the ultimate showdown between Batman and Spawn. Unravel the mystery behind the ancient evil known as Croatoan, which threatens Gotham City and the entire world. 
 
@@ -165,9 +165,9 @@ Batman and Spawn, two heroes with vastly different methods, team up in an unforg
 The beautifully presented hardcover format, boasting pages full of vivid color and detailed artwork, adds an extra layer of intrigue and excitement. Don't miss this opportunity to revisit the momentous meeting between these two powerhouse heroes. 
 
 
-### [Absolute Batman: the Court of Owls (2023 Edition) - Graphic Novel collection](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=absolute-batman-the-court-of-owls-2023-edition-graphic-novel-collection)
+### [Absolute Batman: the Court of Owls (2023 Edition) - Graphic Novel collection](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=absolute-batman-the-court-of-owls-2023-edition-graphic-novel-collection)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=absolute-batman-the-court-of-owls-2023-edition-graphic-novel-collection"><img alt="absolute-batman-the-court-of-owls-2023-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/absolute-batman-the-court-of-owls-2023-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=absolute-batman-the-court-of-owls-2023-edition-graphic-novel-collection"><img alt="absolute-batman-the-court-of-owls-2023-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/absolute-batman-the-court-of-owls-2023-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrilling return of the Court of Owls in this stunning 2023 edition of Absolute Batman! Dive into the dark depths of Gotham City's sinister world as Batman faces off against a powerful conspiracy that spans across generations and threatens the city he has solemnly sworn to protect. 
 
@@ -178,18 +178,18 @@ With high-quality paper, durable bindings, and minimal gutter loss, this Absolut
 Join the ranks of the countless fans who have expressed their enthusiasm with glowing reviews, praising the storyline, artwork, and overall quality of this remarkable graphic novel. Embrace the darkness and embark on an unforgettable journey through Gotham City's most chilling mysteries with Absolute Batman: The Court of Owls. 
 
 
-### [Batman: Dark Victory (New Edition) - Epic Superhero Adventure](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-dark-victory-new-edition-epic-superhero-adventure)
+### [Batman: Dark Victory (New Edition) - Epic Superhero Adventure](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-dark-victory-new-edition-epic-superhero-adventure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-dark-victory-new-edition-epic-superhero-adventure"><img alt="batman-dark-victory-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-dark-victory-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-dark-victory-new-edition-epic-superhero-adventure"><img alt="batman-dark-victory-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-dark-victory-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrilling world of Gotham City in Batman: Dark Victory, a gripping and suspenseful tale from the powerhouse creative team of Jeph Loeb and Tim Sale. In this New Edition, readers are taken on a journey through the life of the Dark Knight as he uncovers the sinister secrets of the city's most dangerous criminals, like the Joker, Poison Ivy, and Mr. Freeze. 
 
 With over 390 pages of enthralling comic book action, Batman: Dark Victory masterfully follows up on the incredible story of The Long Halloween, inviting readers to embark on an exciting superhero adventure. The vivid and detailed illustrations by Tim Sale, coupled with the captivating storytelling by Jeph Loeb, make this graphic novel an essential addition to any Batman fan's collection. 
 
 
-### [Bane's One Bad Day - DC Comics Batman One Shot - Pre-Order](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=banes-one-bad-day-dc-comics-batman-one-shot-pre-order)
+### [Bane's One Bad Day - DC Comics Batman One Shot - Pre-Order](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=banes-one-bad-day-dc-comics-batman-one-shot-pre-order)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=banes-one-bad-day-dc-comics-batman-one-shot-pre-order"><img alt="dc-comics-batman-one-bad-day-bane-1-one-shot-comic-book-williams-sinclair-variant-b-pre-order-ships--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-batman-one-bad-day-bane-1-one-shot-comic-book-williams-sinclair-variant-b-pre-order-ships--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=banes-one-bad-day-dc-comics-batman-one-shot-pre-order"><img alt="dc-comics-batman-one-bad-day-bane-1-one-shot-comic-book-williams-sinclair-variant-b-pre-order-ships--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-batman-one-bad-day-bane-1-one-shot-comic-book-williams-sinclair-variant-b-pre-order-ships--1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into the compelling world of DC Comics' Batman: One Bad Day - Bane #1 One Shot Comic Book. Follow the epic journey of the infamous villain, Bane, as he goes from a destructive force to a washed-up wrestler reliving his past. 
 
@@ -198,9 +198,9 @@ With an all-new source of Venom threatening the world, Bane's life takes an unex
 Pre-order your copy and brace yourself for a thrilling comic experience when it ships in January. 
 
 
-### [Batman: The Killing Joke New Edition](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-the-killing-joke-new-edition)
+### [Batman: The Killing Joke New Edition](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-the-killing-joke-new-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-the-killing-joke-new-edition"><img alt="batman-the-killing-joke-deluxe-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-the-killing-joke-deluxe-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-the-killing-joke-new-edition"><img alt="batman-the-killing-joke-deluxe-new-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-the-killing-joke-deluxe-new-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Batman: The Killing Joke, a new deluxe edition of the graphic novel, is a must-read for fans of the Dark Knight. The story, written by critically acclaimed author Alan Moore, explores the origin of the Joker and its profound impact on Batman's world. The deluxe edition features stunning illustrations by artist Brian Bolland, providing a captivating visual experience. It also includes bonus material from previous comic issues and covers. 
 
@@ -215,27 +215,27 @@ Despite offering bonus material and an exclusive recoloring, the book's dimensio
 One of the main reasons this deluxe edition is so appealing, however, is not only the high-quality storytelling and artwork but also the positive reviews from fans. With 43 reviews and an average rating of 4.8 out of five, it's clear that Batman: The Killing Joke Deluxe has left a lasting impression on its readers. 
 
 
-### [Batman: The Court of Owls Saga - DC Compact Comic Book Edition](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-the-court-of-owls-saga-dc-compact-comic-book-edition)
+### [Batman: The Court of Owls Saga - DC Compact Comic Book Edition](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-the-court-of-owls-saga-dc-compact-comic-book-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-the-court-of-owls-saga-dc-compact-comic-book-edition"><img alt="batman-the-court-of-owls-saga-dc-compact-comics-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-the-court-of-owls-saga-dc-compact-comics-edition-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-the-court-of-owls-saga-dc-compact-comic-book-edition"><img alt="batman-the-court-of-owls-saga-dc-compact-comics-edition-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-the-court-of-owls-saga-dc-compact-comics-edition-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into the intriguing world of Batman with the "Batman: The Court of Owls Saga" graphic novel, now available in a compact size for on-the-go reading. Featuring the stunning storytelling skills of two renowned comic book creators, this captivating tale follows Batman as he uncovers a sinister conspiracy dating back to the city's founding. 
 
 Perfect for fans of the Dark Knight, this collectible edition includes 304 pages of action-packed adventure, providing an enthralling escape. Grab your copy today and be a part of Gotham City's most thrilling secrets! 
 
 
-### [Batman: Fear State Saga - Superhero Adventure Comic Book](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=batman-fear-state-saga-superhero-adventure-comic-book)
+### [Batman: Fear State Saga - Superhero Adventure Comic Book](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=batman-fear-state-saga-superhero-adventure-comic-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=batman-fear-state-saga-superhero-adventure-comic-book"><img alt="batman-fear-state-saga-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-fear-state-saga-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=batman-fear-state-saga-superhero-adventure-comic-book"><img alt="batman-fear-state-saga-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/batman-fear-state-saga-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Fans of the Dark Knight, get ready to dive into the twisted tale of Gotham City in the Batman: Fear State Saga! This collection has all the thrilling action you expect from DC Comics - imagine, the Scarecrow unleashing chaos alongside the Magistrate's reign of terror. With proper binding covers to ensure durability, you can savor each turn of the page. 
 
 The language is simple and easy to understand, making this an accessible adventure for both newcomers and long-time fans. As you flip through the pages, you'll follow the Dark Knight as he faces his two-front battle, and the stakes just keep getting higher. Prepare yourself for a wild ride through the Fear State with this breathtaking collection from DC Comics. 
 
 
-### [DC Comics Batman: Vengeance of Bane #1 Facsimile Edition Comic Book](https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm\_term=dc-comics-batman-vengeance-of-bane-1-facsimile-edition-comic-book)
+### [DC Comics Batman: Vengeance of Bane #1 Facsimile Edition Comic Book](https://serp.ly/@bar/amazon/Batman+Comic+Books?utm\_term=dc-comics-batman-vengeance-of-bane-1-facsimile-edition-comic-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books?utm_term=dc-comics-batman-vengeance-of-bane-1-facsimile-edition-comic-book"><img alt="dc-comics-batman-vengeance-of-bane-1-oneshot-facsimile-edition-comic-book-fabry-cover-a-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-batman-vengeance-of-bane-1-oneshot-facsimile-edition-comic-book-fabry-cover-a-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books?utm_term=dc-comics-batman-vengeance-of-bane-1-facsimile-edition-comic-book"><img alt="dc-comics-batman-vengeance-of-bane-1-oneshot-facsimile-edition-comic-book-fabry-cover-a-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-batman-vengeance-of-bane-1-oneshot-facsimile-edition-comic-book-fabry-cover-a-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently picked up the DC Comics Batman: Vengeance of Bane #1 Oneshot Facsimile Edition, and let me tell you, it was quite the ride. The story dives right into the origin of Bane, a character I found intriguing in my younger days. The comic begins with Bane sentenced from birth due to his father's crimes, and his determination to rise above his circumstances. 
 
@@ -254,7 +254,7 @@ Welcome to our comprehensive buyer's guide for Batman comic books! If you're a f
 There are several types of Batman comic books available, catering to different reader preferences and interests. These include: 
 1) Main Series Comics - ongoing monthly series that follow the adventures of Batman and other Gotham City characters, 2) Graphic Novels - longer, collected editions that tell complete stories, 3) Elseworlds Stories - alternate-universe tales that explore unique interpretations of Batman and Gotham City, and 4) Limited Series Comics - short runs with a particular theme or story arc. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-2/h=540,fit=pad,background=black" alt="Batman-Comic-Books-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-2/h=540,fit=pad,background=black" alt="Batman-Comic-Books-2" height="540"></a></div>
 
 
 ### Important Considerations
@@ -266,7 +266,7 @@ When choosing Batman comic books, consider factors such as storylines, artwork, 
 
 To properly store and display your Batman comic books, invest in archival-quality Mylar sleeves, acid-free backing boards, and storage boxes. These will protect your comics from dirt, dust, and damage while maintaining their value for future collectors. Remember to handle your comics by the edges to avoid creasing or damaging the pages. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-3/h=540,fit=pad,background=black" alt="Batman-Comic-Books-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-3/h=540,fit=pad,background=black" alt="Batman-Comic-Books-3" height="540"></a></div>
 
 
 ### Joining the Batman Comic Book Community
@@ -276,7 +276,7 @@ Connect with other Batman comic book enthusiasts online or at local comic book s
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-4/h=540,fit=pad,background=black" alt="Batman-Comic-Books-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-4/h=540,fit=pad,background=black" alt="Batman-Comic-Books-4" height="540"></a></div>
 
 
 ### What are the top Batman comic books recommended for fans?
@@ -292,7 +292,7 @@ Trade paperbacks and hardcover editions of comic books serve similar purposes bu
 
 Hardcover editions, on the other hand, are higher-quality, more durable than trade paperbacks. They feature larger page sizes and more substantial, sturdy materials. Hardcover editions can include extra content, such as bonus artwork, sketches, or cover galleries, making them attractive options for collectors. These editions are more expensive than trade paperbacks, but they provide a premium reading experience and often serve as impressive centerpieces in a fan's collection. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-5/h=540,fit=pad,background=black" alt="Batman-Comic-Books-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-5/h=540,fit=pad,background=black" alt="Batman-Comic-Books-5" height="540"></a></div>
 
 
 ### How can I tell if a Batman comic book is a first edition?
@@ -308,7 +308,7 @@ Yes, there are several limited edition Batman comic books that have been release
 
 Limited edition comic books usually have a lower print run than standard editions, making them more sought after by collectors. The rarity and demand for limited edition comic books can significantly impact their value over time. Some limited edition Batman comic books have become valuable investments for collectors, and their prices continue to rise as the supply dwindles. As limited editions become harder to find, their value and appeal may continue to grow in the coming years. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-6/h=540,fit=pad,background=black" alt="Batman-Comic-Books-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Batman+Comic+Books"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Batman-Comic-Books-6/h=540,fit=pad,background=black" alt="Batman-Comic-Books-6" height="540"></a></div>
 
 
 ### Where can I purchase Batman comic books and related merchandise?

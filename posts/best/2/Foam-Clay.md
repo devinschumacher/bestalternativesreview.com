@@ -15,9 +15,9 @@ Are you ready to unleash your creative instincts? Our latest roundup is all abou
 ## Reviews
 
 
-### [BOHS Orange Modeling Clay: Soft, Air Dry, Versatile Crafting Tool](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=bohs-orange-modeling-clay-soft-air-dry-versatile-crafting-tool)
+### [BOHS Orange Modeling Clay: Soft, Air Dry, Versatile Crafting Tool](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=bohs-orange-modeling-clay-soft-air-dry-versatile-crafting-tool)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=bohs-orange-modeling-clay-soft-air-dry-versatile-crafting-tool"><img alt="bohs-orange-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supplies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-orange-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supplies-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=bohs-orange-modeling-clay-soft-air-dry-versatile-crafting-tool"><img alt="bohs-orange-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supplies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-orange-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supplies-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the BOHS Orange Modeling Foam Clay and let me tell you, it was quite an experience! This clay is perfect for all sorts of creative projects, from butter slime to cosplay masks, decorative items, and even sculpted figures. It's sticky but surprisingly easy to work with, making it a breeze to mold, sculpt, and paint. 
 
@@ -28,9 +28,9 @@ The BOHS Foam Clay also comes in a convenient resealable zip bag, which helps ke
 Despite its numerous benefits, there are a couple of minor downsides. First, it can be a bit messy to work with, and second, it does take a bit of time to air-dry completely. But overall, the BOHS Orange Modeling Foam Clay is a fantastic product for anyone looking to tap into their creative side and unleash their inner artist. 
 
 
-### [BOHS Peach Skin Sculpting Foam Clay for Creative Projects](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=bohs-peach-skin-sculpting-foam-clay-for-creative-projects)
+### [BOHS Peach Skin Sculpting Foam Clay for Creative Projects](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=bohs-peach-skin-sculpting-foam-clay-for-creative-projects)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=bohs-peach-skin-sculpting-foam-clay-for-creative-projects"><img alt="bohs-peach-skin-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-peach-skin-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=bohs-peach-skin-sculpting-foam-clay-for-creative-projects"><img alt="bohs-peach-skin-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-peach-skin-modeling-foam-clay-squishysoft-air-dry-for-school-projectcosplayfake-bake-slime-supp-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the BOHS Peach Skin Modeling Foam Clay – a versatile and easy-to-use crafting essential that's perfect for creating a variety of projects. Whether you're into slime, costuming, or simply exploring your creative side, this soft, squishy clay is here to help! 
 
@@ -45,18 +45,18 @@ However, as with any crafting tool, there are a few drawbacks to consider. For e
 Overall, the BOHS Peach Skin Modeling Foam Clay is an excellent choice for anyone looking to explore their creative side or expand their crafting skills. Its versatility and user-friendly nature make it a must-have addition to any crafter's toolbox. 
 
 
-### [Maddie Rae's Non-Toxic Foam Clay for Arts and Crafts](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=maddie-raes-non-toxic-foam-clay-for-arts-and-crafts)
+### [Maddie Rae's Non-Toxic Foam Clay for Arts and Crafts](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=maddie-raes-non-toxic-foam-clay-for-arts-and-crafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=maddie-raes-non-toxic-foam-clay-for-arts-and-crafts"><img alt="maddie-raes-slime-clay-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-great-fo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maddie-raes-slime-clay-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-great-fo-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=maddie-raes-non-toxic-foam-clay-for-arts-and-crafts"><img alt="maddie-raes-slime-clay-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-great-fo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maddie-raes-slime-clay-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-great-fo-1/h=540,fit=pad,background=black"/></a></div>
 
 Maddie Rae's Slime Clay offers an exceptional slime making experience, with its non-toxic formula that leaves no mess behind. The clay comes in a 2oz bag, boasting a soft and not sticky texture, making it perfect for arts and crafts enthusiasts of all ages. This unique creation produces creamy butter effects, adding a touch of magic to slime projects. 
 
 Ideal for gifting, Maddie Rae's Slime Clay will surely be cherished by girls, boys, and teens alike, who love unleashing their creative spirit through crafting. 
 
 
-### [Premium Black Foam Clay for Cosplay and Crafts](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=premium-black-foam-clay-for-cosplay-and-crafts)
+### [Premium Black Foam Clay for Cosplay and Crafts](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=premium-black-foam-clay-for-cosplay-and-crafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=premium-black-foam-clay-for-cosplay-and-crafts"><img alt="pixiss-black-modeling-foam-clay-premium-black-foam-air-dry-clay-cosplay-foam-for-costumes-1500-gram--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pixiss-black-modeling-foam-clay-premium-black-foam-air-dry-clay-cosplay-foam-for-costumes-1500-gram--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=premium-black-foam-clay-for-cosplay-and-crafts"><img alt="pixiss-black-modeling-foam-clay-premium-black-foam-air-dry-clay-cosplay-foam-for-costumes-1500-gram--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pixiss-black-modeling-foam-clay-premium-black-foam-air-dry-clay-cosplay-foam-for-costumes-1500-gram--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Pixiss Black Modeling Foam Clay and decided to give it a try for my latest cosplay project. The clay is perfect in size, giving me plenty of material to work with. Its lightweight yet sturdy nature made it easy to handle while sculpting and carving. 
 
@@ -69,9 +69,9 @@ However, I did notice that the clay took a bit longer than expected to dry, even
 Overall, I would highly recommend the Pixiss Black Modeling Foam Clay to anyone looking for a lightweight, versatile, and highly detailed carving clay. It was perfect for my cosplay project and I'm sure many other artisans and crafters could benefit from using it too. 
 
 
-### [36-Color Magic Air Dry Foam Clay Kit for Kids and Adults](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=36-color-magic-air-dry-foam-clay-kit-for-kids-and-adults)
+### [36-Color Magic Air Dry Foam Clay Kit for Kids and Adults](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=36-color-magic-air-dry-foam-clay-kit-for-kids-and-adults)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=36-color-magic-air-dry-foam-clay-kit-for-kids-and-adults"><img alt="air-dry-clay-36-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/air-dry-clay-36-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=36-color-magic-air-dry-foam-clay-kit-for-kids-and-adults"><img alt="air-dry-clay-36-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/air-dry-clay-36-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon the Exptolii air dry clay set, and it has become a staple in my household. The 36 colors modeling clay comes with a variety of sculpting tools, making it perfect for both children and adults to let their imagination run wild. The clay is easy to work with and dries completely in just 24 hours, no need for baking in the oven. 
 
@@ -80,18 +80,18 @@ One of the standout features of this clay set is its safety and eco-friendliness
 The air dry clay kit is perfect for creating a wide range of shapes and designs, from simple objects like animals and food to more complex creations like flowers and donuts. As a gift, it's an ideal choice for birthdays, holidays, or even just as a surprise for someone in need of a creative outlet. The Exptolii air dry clay set has become a favorite in my home, providing hours of fun and endless possibilities for creativity. 
 
 
-### [24 Colors Air Dry Clay Set for Kids' Imaginative Play](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=24-colors-air-dry-clay-set-for-kids-imaginative-play)
+### [24 Colors Air Dry Clay Set for Kids' Imaginative Play](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=24-colors-air-dry-clay-set-for-kids-imaginative-play)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=24-colors-air-dry-clay-set-for-kids-imaginative-play"><img alt="air-dry-clay-24-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/air-dry-clay-24-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=24-colors-air-dry-clay-set-for-kids-imaginative-play"><img alt="air-dry-clay-24-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/air-dry-clay-24-colors-modeling-clay-kit-with-3-sculpting-tools-magic-foam-clay-for-kids-and-adults--1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the joy of crafting with the 24 Colors Super Light DIY Molding Clay Set for both kids and adults. This versatile air dry clay allows you to effortlessly shape, bend, and stretch your creativity into a wide array of artisan creations. 
 
 Each set comes complete with 24 vibrant colors, 3 sculpting tools, and easy instructions to guide you through your artistic journey. Suitable for children aged over 3, this clay encourages imaginative play, hand-eye coordination, and fosters a love for arts and crafts while keeping them away from screens. 
 
 
-### [TUFFCRAFTS Premium Foam Clay - Lightweight, High Density, Ready for Air Drying in 24-48 Hours](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=tuffcrafts-premium-foam-clay-lightweight-high-density-ready-for-air-drying-in-24-48-hours)
+### [TUFFCRAFTS Premium Foam Clay - Lightweight, High Density, Ready for Air Drying in 24-48 Hours](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=tuffcrafts-premium-foam-clay-lightweight-high-density-ready-for-air-drying-in-24-48-hours)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=tuffcrafts-premium-foam-clay-lightweight-high-density-ready-for-air-drying-in-24-48-hours"><img alt="tuffcrafts-premium-foam-clay-300g-black-premiun-quality-high-density-lightweight-air-dries-within-25" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tuffcrafts-premium-foam-clay-300g-black-premiun-quality-high-density-lightweight-air-dries-within-25/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=tuffcrafts-premium-foam-clay-lightweight-high-density-ready-for-air-drying-in-24-48-hours"><img alt="tuffcrafts-premium-foam-clay-300g-black-premiun-quality-high-density-lightweight-air-dries-within-25" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tuffcrafts-premium-foam-clay-300g-black-premiun-quality-high-density-lightweight-air-dries-within-25/h=540,fit=pad,background=black"/></a></div>
 
 TUFFCRAFTS Premium Foam Clay is the ideal choice for those seeking an exceptional crafting experience. Its premium quality and high density make it easy to work with and lightweight, allowing artists to bring their creative visions to life without any major challenges. The clay air dries within 24 to 48 hours, providing a stress-free and efficient experience. 
 
@@ -102,27 +102,27 @@ In addition to its versatility, TUFFCRAFTS Foam Clay boasts durability and relia
 In summary, TUFFCRAFTS Premium Foam Clay is an outstanding choice for artists of all levels seeking a lightweight, flexible, and reliable material for their projects. Its high-quality construction and versatility make it a must-have in any crafting arsenal. 
 
 
-### [Foam-Mo Air Dry Moldable Foam Clay for Creative Cosplay](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=foam-mo-air-dry-moldable-foam-clay-for-creative-cosplay)
+### [Foam-Mo Air Dry Moldable Foam Clay for Creative Cosplay](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=foam-mo-air-dry-moldable-foam-clay-for-creative-cosplay)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=foam-mo-air-dry-moldable-foam-clay-for-creative-cosplay"><img alt="foam-mo-air-dry-moldable-foam-clay-for-cosplay-300-gram-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/foam-mo-air-dry-moldable-foam-clay-for-cosplay-300-gram-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=foam-mo-air-dry-moldable-foam-clay-for-creative-cosplay"><img alt="foam-mo-air-dry-moldable-foam-clay-for-cosplay-300-gram-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/foam-mo-air-dry-moldable-foam-clay-for-cosplay-300-gram-1/h=540,fit=pad,background=black"/></a></div>
 
 Foam-Mo is an air-dry moldable foam clay perfect for cosplay and crafting enthusiasts. Its lightweight and flexible nature makes it easier than ever to create intricate, high-detail pieces without the need for extensive sanding or dremeling. Simply press the foam into a silicone mold and capture even the finest of details. 
 
 Foam-Mo can be stretched, sculpted, or pressed into molds, and once dried, can be cut and sanded just like EVA foam. After drying, apply a coat of primer, and you're ready for a stunning finish surface to paint on. 
 
 
-### [Maddie Rae's Non-Toxic, Mess-Free Foam Clay for Unique Creamy Butter Effects](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=maddie-raes-non-toxic-mess-free-foam-clay-for-unique-creamy-butter-effects)
+### [Maddie Rae's Non-Toxic, Mess-Free Foam Clay for Unique Creamy Butter Effects](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=maddie-raes-non-toxic-mess-free-foam-clay-for-unique-creamy-butter-effects)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=maddie-raes-non-toxic-mess-free-foam-clay-for-unique-creamy-butter-effects"><img alt="maddie-raes-slime-clay-2pk-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-comp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maddie-raes-slime-clay-2pk-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-comp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=maddie-raes-non-toxic-mess-free-foam-clay-for-unique-creamy-butter-effects"><img alt="maddie-raes-slime-clay-2pk-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-comp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/maddie-raes-slime-clay-2pk-non-toxic-no-mess-clay-foam-formula-for-unique-creamy-butter-effects-comp-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Maddie Rae's Slime Clay - White and was pleasantly surprised by the softness and non-sticky texture it added to my slime. Compared to Daiso, the clay foam formula creates a sizzly, butter-like slime that feels perfect in my hands. The two 2 oz bags of soft clay provided in the pack were ideal for my slime-making needs. 
 
 However, I did notice that adding too much clay made my slime a bit too soft and required the use of an activator to reactivate it. Overall, Maddie Rae's Slime Clay - White is a game-changer for those looking to elevate their slime creations with an unparalleled buttery texture. 
 
 
-### [Craft Smart White Whipped Foam Clay Kit (8 Pieces) with Spiral Decorating Tip](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=craft-smart-white-whipped-foam-clay-kit-8-pieces-with-spiral-decorating-tip)
+### [Craft Smart White Whipped Foam Clay Kit (8 Pieces) with Spiral Decorating Tip](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=craft-smart-white-whipped-foam-clay-kit-8-pieces-with-spiral-decorating-tip)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=craft-smart-white-whipped-foam-clay-kit-8-pieces-with-spiral-decorating-tip"><img alt="white-whipped-clay-kit-by-craft-smart-michaels-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-whipped-clay-kit-by-craft-smart-michaels-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=craft-smart-white-whipped-foam-clay-kit-8-pieces-with-spiral-decorating-tip"><img alt="white-whipped-clay-kit-by-craft-smart-michaels-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/white-whipped-clay-kit-by-craft-smart-michaels-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the White Whipped Clay Kit from Craft Smart - Michaels, and I must say, it's a game-changer for creating fun and detailed designs. The clay dries quickly within 24 hours, and the decorative tip is perfect for creating intricate spirals, swirls, and circles. I used it to decorate a glass lid for a collage art project, and it turned out amazing! 
 
@@ -131,9 +131,9 @@ The product comes with 8 pieces of clay in various colors, which is great for ad
 One downside I noticed is that the tips can be a bit difficult to attach, but other than that, it's a fantastic product. I highly recommend the White Whipped Clay Kit by Craft Smart - Michaels for anyone looking to add a creative touch to their projects. 
 
 
-### [Lightweight Foam Clay by SKS Props](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=lightweight-foam-clay-by-sks-props)
+### [Lightweight Foam Clay by SKS Props](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=lightweight-foam-clay-by-sks-props)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=lightweight-foam-clay-by-sks-props"><img alt="sks-props-lightweight-foam-clay-300-g-tub-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sks-props-lightweight-foam-clay-300-g-tub-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=lightweight-foam-clay-by-sks-props"><img alt="sks-props-lightweight-foam-clay-300-g-tub-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sks-props-lightweight-foam-clay-300-g-tub-1/h=540,fit=pad,background=black"/></a></div>
 
 The SKS Props Lightweight Foam Clay is a versatile and easy-to-use material that allows you to add depth and texture to your cosplay costumes, props, craft projects, and models. With its lightweight foam consistency, it can be pressed into molds or sculpted by hand for intricate designs. 
 
@@ -142,9 +142,9 @@ After drying for 24-48 hours, it can be cut, sanded, glued, primed, or painted a
 Although some users have mentioned that the clay doesn't hold its shape well when drying, others praise its convenience and affordability. Give this lightweight foam clay a try to expand your creative possibilities! 
 
 
-### [The Foamory's Moldable Cosplay Foam Clay for Easier Character Creation](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=the-foamorys-moldable-cosplay-foam-clay-for-easier-character-creation)
+### [The Foamory's Moldable Cosplay Foam Clay for Easier Character Creation](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=the-foamorys-moldable-cosplay-foam-clay-for-easier-character-creation)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=the-foamorys-moldable-cosplay-foam-clay-for-easier-character-creation"><img alt="moldable-cosplay-foam-clay-white-300g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moldable-cosplay-foam-clay-white-300g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=the-foamorys-moldable-cosplay-foam-clay-for-easier-character-creation"><img alt="moldable-cosplay-foam-clay-white-300g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moldable-cosplay-foam-clay-white-300g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently started using The Foamory's Moldable Cosplay Foam Clay, and let me tell you, it's been a game-changer for my crafting projects. The white, 300g clay is incredibly versatile, offering intricate detail work and allowing me to easily press it into silicon molds. 
 
@@ -157,9 +157,9 @@ However, I will say that this clay can be a bit tricky to work with at first, as
 Overall, I highly recommend The Foamory's Moldable Cosplay Foam Clay to anyone looking for a versatile, easy-to-use clay. It's definitely become a staple in my crafting toolbox, and I can't wait to see what other projects I'll be able to tackle with it in the future. 
 
 
-### [BOHS Squishy Soft Air Dry Modeling Foam Clay for DIY Projects and Cosplay](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=bohs-squishy-soft-air-dry-modeling-foam-clay-for-diy-projects-and-cosplay)
+### [BOHS Squishy Soft Air Dry Modeling Foam Clay for DIY Projects and Cosplay](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=bohs-squishy-soft-air-dry-modeling-foam-clay-for-diy-projects-and-cosplay)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=bohs-squishy-soft-air-dry-modeling-foam-clay-for-diy-projects-and-cosplay"><img alt="bohs-white-modeling-foam-clay-squishy-soft-air-dry-for-school-project-cosplay-fake-bake-slime-suppli-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-white-modeling-foam-clay-squishy-soft-air-dry-for-school-project-cosplay-fake-bake-slime-suppli-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=bohs-squishy-soft-air-dry-modeling-foam-clay-for-diy-projects-and-cosplay"><img alt="bohs-white-modeling-foam-clay-squishy-soft-air-dry-for-school-project-cosplay-fake-bake-slime-suppli-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bohs-white-modeling-foam-clay-squishy-soft-air-dry-for-school-project-cosplay-fake-bake-slime-suppli-1/h=540,fit=pad,background=black"/></a></div>
 
 Say hello to your new best friend in the art world, the BOHS white modeling foam clay. This squishy soft air dry clay is perfect for a multitude of craft projects, from butter slime to cosplay masks and everything in between. It's not just clean and easy to use, but also non-toxic, making it a safe choice for kids to play with. 
 
@@ -170,9 +170,9 @@ But that's not all. The BOHS white modeling foam clay also helps relieve tension
 Comes with a resealable zip bag for easy storage and reuse, this popular clay is a must-have for any art lover. So why wait? Dive into the versatility and joy of air dry clay for both adults and children alike with the BOHS white modeling foam clay. 
 
 
-### [Moldable Non-Toxic Cosplay Clay for Intricate Projects](https://serp.ly/@outrun/amazon/Foam+Clay?utm\_term=moldable-non-toxic-cosplay-clay-for-intricate-projects)
+### [Moldable Non-Toxic Cosplay Clay for Intricate Projects](https://serp.ly/@bar/amazon/Foam+Clay?utm\_term=moldable-non-toxic-cosplay-clay-for-intricate-projects)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Foam+Clay?utm_term=moldable-non-toxic-cosplay-clay-for-intricate-projects"><img alt="moldable-cosplay-foam-clay-black-900g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moldable-cosplay-foam-clay-black-900g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Foam+Clay?utm_term=moldable-non-toxic-cosplay-clay-for-intricate-projects"><img alt="moldable-cosplay-foam-clay-black-900g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moldable-cosplay-foam-clay-black-900g-by-the-foamory-high-density-air-dries-like-eva-foam-light-weig-1/h=540,fit=pad,background=black"/></a></div>
 
 The Moldable Cosplay Clay by The Foamory is a versatile and high-quality crafting tool, perfect for those looking to explore their creative potential. With its ease of use and non-toxic properties, this clay allows for intricate detail work and the ability to press into silicon molds with minimal effort. 
 
@@ -190,7 +190,7 @@ Welcome to the Foam Clay Buyer's Guide - your go-to resource for understanding t
 
 There are several types of foam clay available in the market, each with its unique characteristics. The two primary types are air-dry and oven-dry foam clay. Air-dry clays are ideal for projects requiring more flexibility, like sculptural work or mold making. Oven-dry clays, on the other hand, are best suited for projects that require precision and more realistic finish, such as jewelry or intricate wall decorations. Depending on your needs, choose the appropriate type of foam clay that aligns with your project goals. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-2/h=540,fit=pad,background=black" alt="Foam-Clay-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-2/h=540,fit=pad,background=black" alt="Foam-Clay-2" height="540"></a></div>
 
 
 ### Durability and Longevity
@@ -202,7 +202,7 @@ When selecting foam clay, consider its durability and how long it will last. Som
 
 While foam clay is generally considered safe for most users, certain individuals may have specific health concerns. Some foam clay can produce dust that may cause irritation or allergies for sensitive individuals. When purchasing foam clay, check the manufacturer's warning labels or instructions for any potential safety risks. Ensure that your chosen clay is non-toxic, lead-free, and safe for handling, especially for children. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-3/h=540,fit=pad,background=black" alt="Foam-Clay-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-3/h=540,fit=pad,background=black" alt="Foam-Clay-3" height="540"></a></div>
 
 
 ### Versatility and Creativity Options
@@ -212,7 +212,7 @@ Foam clay offers endless possibilities for artistic expression and creativity. H
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-4/h=540,fit=pad,background=black" alt="Foam-Clay-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-4/h=540,fit=pad,background=black" alt="Foam-Clay-4" height="540"></a></div>
 
 
 ### What is foam clay?
@@ -228,7 +228,7 @@ Foam clay has a wide range of applications, making it a versatile and practical 
 
 Additionally, foam clay is a popular material in art therapy sessions. Its soft, moldable nature makes it accessible for individuals with physical or cognitive limitations, while its non-toxic properties ensure that it is safe for all users, regardless of age or ability. Overall, foam clay is a versatile and affordable art supply that can be used in a variety of creative endeavors. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-5/h=540,fit=pad,background=black" alt="Foam-Clay-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-5/h=540,fit=pad,background=black" alt="Foam-Clay-5" height="540"></a></div>
 
 
 ### Is foam clay safe for children to use?
@@ -244,7 +244,7 @@ To maintain the quality and consistency of foam clay, it is essential to store i
 
 If the foam clay container has become compromised, it is best to transfer the clay to a new airtight container, ensuring that the existing clay is not exposed to air and that any leftover pieces are kept dry and separate from the fresh clay. Storing foam clay properly will help to maintain its integrity and ease of use, ensuring that it remains a valuable art supply for creativity and self-expression. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-6/h=540,fit=pad,background=black" alt="Foam-Clay-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Foam+Clay"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Foam-Clay-6/h=540,fit=pad,background=black" alt="Foam-Clay-6" height="540"></a></div>
 
 
 ### Can foam clay be mixed with other materials to create custom colors?

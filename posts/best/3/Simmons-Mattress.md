@@ -15,9 +15,9 @@ Are you on the hunt for the perfect mattress? Look no further! In this comprehen
 ## Reviews
 
 
-### [Beautyrest Silver Medium Pillow Top Cal. King Mattress for Ultimate Comfort](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-medium-pillow-top-cal-king-mattress-for-ultimate-comfort)
+### [Beautyrest Silver Medium Pillow Top Cal. King Mattress for Ultimate Comfort](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-medium-pillow-top-cal-king-mattress-for-ultimate-comfort)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=beautyrest-silver-medium-pillow-top-cal-king-mattress-for-ultimate-comfort"><img alt="beautyrest-silver-brs900-c-medium-pillow-top-cal-king-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-c-medium-pillow-top-cal-king-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=beautyrest-silver-medium-pillow-top-cal-king-mattress-for-ultimate-comfort"><img alt="beautyrest-silver-brs900-c-medium-pillow-top-cal-king-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-c-medium-pillow-top-cal-king-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently started using the Beautyrest Silver Medium Pillow Top Cal King Mattress in my bedroom, and let me tell you, it might just be the most comfortable mattress I've ever slept on. The first thing that stands out to me is the pillow top - it's made of a soft, plush fabric that's incredibly comfortable to the touch. 
 
@@ -32,9 +32,9 @@ However, there are a couple of downsides to the mattress as well. For one, it's 
 Overall, I highly recommend the Beautyrest Silver Medium Pillow Top Cal King Mattress to anyone looking for a comfortable, supportive, and all-around great mattress. It's certainly made a difference in my sleep, and I'm sure it will for you too! 
 
 
-### [Simmons Deep Sleep 12" Plush Hybrid Queen Mattress - Medium to Soft Support](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=simmons-deep-sleep-12-plush-hybrid-queen-mattress-medium-to-soft-support)
+### [Simmons Deep Sleep 12" Plush Hybrid Queen Mattress - Medium to Soft Support](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=simmons-deep-sleep-12-plush-hybrid-queen-mattress-medium-to-soft-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=simmons-deep-sleep-12-plush-hybrid-queen-mattress-medium-to-soft-support"><img alt="simmons-deep-sleep-12-plush-hybrid-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-deep-sleep-12-plush-hybrid-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=simmons-deep-sleep-12-plush-hybrid-queen-mattress-medium-to-soft-support"><img alt="simmons-deep-sleep-12-plush-hybrid-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-deep-sleep-12-plush-hybrid-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
 
 The Simmons Deep Sleep 12" Plush Hybrid Mattress provides top-notch comfort and support for a great night's sleep. With its unique blend of traditional quilted top panel and individually wrapped coils, this mattress ensures undisturbed sleep while providing the perfect balance of softness and firmness to meet your comfort needs. The hybrid design offers the benefits of both innerspring and memory foam, making it an excellent choice for those who prefer a medium-soft support level. 
 
@@ -43,9 +43,9 @@ One of the standout features of this mattress is its sink-free support, thanks t
 The Simmons Deep Sleep Plush Hybrid Mattress is an excellent choice for anyone seeking a comfortable and supportive mattress without breaking the bank. With its high customer satisfaction rate and numerous positive reviews, this product can help you enjoy a restful and pain-free sleep experience. 
 
 
-### [Simmons PeacefulSleep Collection - White 12" Medium Pillow Top Mattress - Twin](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin)
+### [Simmons PeacefulSleep Collection - White 12" Medium Pillow Top Mattress - Twin](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin"><img alt="simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin"><img alt="simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-peacefulsleep-collection-white-12-medium-pillow-top-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the chance to try out the Simmons PeacefulSleep Collection - White 12" Medium Pillow Top Mattress. And let me tell you, it was a game-changer. From the moment I laid down on it, I felt a sense of deep comfort that was hard to find in other mattresses I've tried. 
 
@@ -58,9 +58,9 @@ Another feature that I really liked was the foam encased edge. It provided maxim
 All in all, the Simmons PeacefulSleep Collection - White 12" Medium Pillow Top Mattress was a fantastic addition to my bedroom. It's not often that you come across a product that can truly make a difference in the quality of your sleep. But with this mattress, I can honestly say that I'm getting the restful nights I've been craving for. 
 
 
-### [Simmons Beautyrest Dreamwell Vacay Firm Mattress - Twin, White](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-dreamwell-vacay-firm-mattress-twin-white)
+### [Simmons Beautyrest Dreamwell Vacay Firm Mattress - Twin, White](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-dreamwell-vacay-firm-mattress-twin-white)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-dreamwell-vacay-firm-mattress-twin-white"><img alt="simmons-beautyrest-dreamwell-vacay-firm-tight-top-mattress-twin-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-beautyrest-dreamwell-vacay-firm-tight-top-mattress-twin-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-dreamwell-vacay-firm-mattress-twin-white"><img alt="simmons-beautyrest-dreamwell-vacay-firm-tight-top-mattress-twin-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-beautyrest-dreamwell-vacay-firm-tight-top-mattress-twin-white-1/h=540,fit=pad,background=black"/></a></div>
 
 The Simmons Beautyrest Dreamwell Vacay mattress promises a luxurious sleep experience with its premium features, including Premium Gel Memory Foam and Soft Gel Foam for ultimate pressure relief and a cool sleeping environment provided by AirCool foam. The mattress features individually wrapped coils that promote airflow and motion separation, ensuring undisturbed sleep. 
 
@@ -69,9 +69,9 @@ A sturdy layer of base foam ensures added stability and uninterrupted rest. The 
 Simmons Beautyrest Dreamwell Vacay mattress provides the perfect combination of support, comfort, and breathability, elevating your sleep experience to new levels of luxury and rejuvenation. 
 
 
-### [Beautyrest Silver 900-C Plush Pillow Top Mattress: Experience Ultimate Comfort and Support](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-900-c-plush-pillow-top-mattress-experience-ultimate-comfort-and-support)
+### [Beautyrest Silver 900-C Plush Pillow Top Mattress: Experience Ultimate Comfort and Support](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-900-c-plush-pillow-top-mattress-experience-ultimate-comfort-and-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=beautyrest-silver-900-c-plush-pillow-top-mattress-experience-ultimate-comfort-and-support"><img alt="beautyrest-silver-brs900-c-plush-pillow-top-twin-size-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-c-plush-pillow-top-twin-size-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=beautyrest-silver-900-c-plush-pillow-top-mattress-experience-ultimate-comfort-and-support"><img alt="beautyrest-silver-brs900-c-plush-pillow-top-twin-size-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-c-plush-pillow-top-twin-size-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 The Silver BRS900-C Plush Pillow Top from Beautyrest collection is a dream come true for those seeking a comfortable and supportive night's sleep. I was eager to try this mattress after hearing rave reviews from fellow sleep enthusiasts, all praising its luxurious feel and advanced features. 
 
@@ -86,9 +86,9 @@ However, I have encountered a few minor issues with this mattress. Firstly, I fo
 Despite these minor concerns, I have overall been very pleased with the Beautyrest Silver BRS900-C Plush Pillow Top Twin Size Mattress. It lives up to its name, offering unparalleled comfort and support for a restful night's sleep. 
 
 
-### [Luxury Firm Mattress by Simmons Beautyrest Silver Hybrid](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=luxury-firm-mattress-by-simmons-beautyrest-silver-hybrid)
+### [Luxury Firm Mattress by Simmons Beautyrest Silver Hybrid](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=luxury-firm-mattress-by-simmons-beautyrest-silver-hybrid)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=luxury-firm-mattress-by-simmons-beautyrest-silver-hybrid"><img alt="simmons-beautyrest-silver-hybrid-manuel-luxury-firm-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-beautyrest-silver-hybrid-manuel-luxury-firm-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=luxury-firm-mattress-by-simmons-beautyrest-silver-hybrid"><img alt="simmons-beautyrest-silver-hybrid-manuel-luxury-firm-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-beautyrest-silver-hybrid-manuel-luxury-firm-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
 
 The Simmons Beautyrest Silver Hybrid Manuel Luxury Firm Mattress, Queen brings a perfect combination of support and comfort to your sleep experience. This mattress features a unique hybrid design that incorporates the newest mattress technologies, providing better support, comfort, and temperature management than traditional mattresses. The DualCool Technology Memory Foam with antimicrobial properties helps regulate your body temperature and prevent the growth of odor-causing bacteria, mold, and mildew. 
 
@@ -97,9 +97,9 @@ The mattress is composed of multiple layers, including a fire-resistant stretch 
 This Queen-size mattress has a height of 13 inches and offers a medium firm comfort rating, making it an ideal choice for those who prefer a balance between softness and support. With a delivery time of 10 days, the mattress arrives ready to use and includes convenient set-up services. The Simmons Beautyrest Silver Hybrid Manuel Luxury Firm Mattress, Queen is an excellent investment for those seeking a comfortable and supportive mattress without the high price tag, earning high praise from reviewers for its performance and value. 
 
 
-### [Beautyrest Black Hybrid Queen Mattress: Luxurious Plush Simmons Support](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=beautyrest-black-hybrid-queen-mattress-luxurious-plush-simmons-support)
+### [Beautyrest Black Hybrid Queen Mattress: Luxurious Plush Simmons Support](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=beautyrest-black-hybrid-queen-mattress-luxurious-plush-simmons-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=beautyrest-black-hybrid-queen-mattress-luxurious-plush-simmons-support"><img alt="beautyrest-black-hybrid-bx-class-12-5-plush-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-hybrid-bx-class-12-5-plush-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=beautyrest-black-hybrid-queen-mattress-luxurious-plush-simmons-support"><img alt="beautyrest-black-hybrid-bx-class-12-5-plush-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-hybrid-bx-class-12-5-plush-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
 
 Diving into the world of Beautyrest Black BX-Class, I was initially drawn to the T3 Pocketed coil technology that promised targeted support. My experience confirmed that this wasn't just marketing hype: the nightly comfort and back support was undeniably noticeable after just a week. As someone who has struggled to find a mattress that accommodated both my back and side sleeping preferences, this one struck the perfect balance. 
 
@@ -110,9 +110,9 @@ However, the odor from the mattress was quite noticeable when unpacking, and it 
 In conclusion, the Beautyrest Black BX-Class 12.5" Plush Mattress has become a solid addition to my nightly routine. From targeted support and pressure relief, to cooling technology and luxury craftsmanship, this mattress has exceeded my expectations. Despite the initial odor, the overall comfort has been worth it. 
 
 
-### [Ultra-Comfortable Simmons Euro Top Mattress - Channeled AirCool Foam and Supportive Coils](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=ultra-comfortable-simmons-euro-top-mattress-channeled-aircool-foam-and-supportive-coils)
+### [Ultra-Comfortable Simmons Euro Top Mattress - Channeled AirCool Foam and Supportive Coils](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=ultra-comfortable-simmons-euro-top-mattress-channeled-aircool-foam-and-supportive-coils)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=ultra-comfortable-simmons-euro-top-mattress-channeled-aircool-foam-and-supportive-coils"><img alt="simmons-alexandria-11-5-medium-euro-top-mattress-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-alexandria-11-5-medium-euro-top-mattress-full-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=ultra-comfortable-simmons-euro-top-mattress-channeled-aircool-foam-and-supportive-coils"><img alt="simmons-alexandria-11-5-medium-euro-top-mattress-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simmons-alexandria-11-5-medium-euro-top-mattress-full-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in a luxurious sleep experience with the Simmons Alexandria 11.5" Medium Euro Top Mattress - Full. Kick off your shoes and sink into the plush comfort of AirCool foam, designed with a channeled pattern to promote airflow, keeping you cool and comfortable all night long. This mattress is more than just something to sleep on - it's a sanctuary where you can rest, rejuvenate, and wake up feeling refreshed every morning. The soft gel foam cradles you in a supportive, cooling cocoon, ensuring that your sleep quality remains uninterrupted, even when your partner fidgets or wakes you up. 
 
@@ -121,9 +121,9 @@ Elevate your sleep game with the unique support provided by the individually wra
 But don't just take our word for it! With over 80 reviews boasting a staggering 4.8-star rating, you can rest assured that this mattress is designed to meet the needs of sleep enthusiasts everywhere. Experience the comfort, support, and durability for yourself, and say goodbye to sleepless nights. 
 
 
-### [Simmons Beautyrest BR800 Plush Pillow Top Queen Mattress](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-br800-plush-pillow-top-queen-mattress)
+### [Simmons Beautyrest BR800 Plush Pillow Top Queen Mattress](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-br800-plush-pillow-top-queen-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-br800-plush-pillow-top-queen-mattress"><img alt="beautyrest-br800-plush-pillow-top-queen-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-br800-plush-pillow-top-queen-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-br800-plush-pillow-top-queen-mattress"><img alt="beautyrest-br800-plush-pillow-top-queen-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-br800-plush-pillow-top-queen-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 Our experience with the Beautyrest BR800 Plush Pillowtop Queen Mattress has been nothing short of exceptional. From the first moment we unboxed the mattress, we could feel its luxurious comfort. The 0.5" Plush Comfort Foam and 2" GelTouch Foam create an ideal balance of support and comfort, providing a restful night's sleep without any pressure points. 
 
@@ -134,9 +134,9 @@ However, one downside we've noticed is a slight unpleasant odor that emerged the
 Overall, the Simmons Beautyrest BR800 Plush Pillowtop Queen Mattress has exceeded our expectations and we believe it is worth every penny. Its durability, comfort, and design have all contributed to a significant improvement in the quality of our sleep. We highly recommend this mattress for anyone looking for a luxurious, supportive, and breathable sleeping experience. 
 
 
-### [Luxury Beautyrest Black Hybrid Medium Mattress - Enhanced Comfort and Support for Optimal Sleep](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=luxury-beautyrest-black-hybrid-medium-mattress-enhanced-comfort-and-support-for-optimal-sleep)
+### [Luxury Beautyrest Black Hybrid Medium Mattress - Enhanced Comfort and Support for Optimal Sleep](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=luxury-beautyrest-black-hybrid-medium-mattress-enhanced-comfort-and-support-for-optimal-sleep)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=luxury-beautyrest-black-hybrid-medium-mattress-enhanced-comfort-and-support-for-optimal-sleep"><img alt="beautyrest-black-hybrid-lx-class-medium-mattress-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-hybrid-lx-class-medium-mattress-full-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=luxury-beautyrest-black-hybrid-medium-mattress-enhanced-comfort-and-support-for-optimal-sleep"><img alt="beautyrest-black-hybrid-lx-class-medium-mattress-full-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-hybrid-lx-class-medium-mattress-full-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first tried the Beautyrest Black Hybrid Medium full mattress, I was genuinely impressed. Its luxurious design and soft-yet-supportive comfort took me aback. I loved the attention to detail in the mattress's construction, from its plant-based cooling technology to the zoned T3 Pocketed Coil Technology designed specifically for top-notch support. 
 
@@ -145,9 +145,9 @@ However, there was a minor drawback to this otherwise fantastic mattress. Its th
 So, if you're someone who wants to elevate their sleep game to the ultimate luxury level, this mattress is a must-try. It's comfortable, durable, provides excellent sleep quality, and is a breeze to set up. Experience the heavenly embrace of the Beautyrest Black Hybrid and get ready to say goodbye to those restless nights. 
 
 
-### [Beautyrest Silver BRS900 Plush Queen Mattress with Pocketed Coil Technology](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-brs900-plush-queen-mattress-with-pocketed-coil-technology)
+### [Beautyrest Silver BRS900 Plush Queen Mattress with Pocketed Coil Technology](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=beautyrest-silver-brs900-plush-queen-mattress-with-pocketed-coil-technology)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=beautyrest-silver-brs900-plush-queen-mattress-with-pocketed-coil-technology"><img alt="beautyrest-silver-brs900-plush-queen-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-plush-queen-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=beautyrest-silver-brs900-plush-queen-mattress-with-pocketed-coil-technology"><img alt="beautyrest-silver-brs900-plush-queen-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-plush-queen-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 The Beautyrest Silver BRS900 Plush Queen Mattress is a top-notch choice for those seeking a comfortable and supportive sleeping experience. With its unique blend of comfort and support, the mattress provides a perfect balance for sleepers of all positions. 
 
@@ -156,9 +156,9 @@ The 900 series pocketed coil technology ensures flexible support precisely where
 The Beautyrest Silver mattress is not only easy to set up but also comes with a range of features that cater to the most discerning of sleepers. However, some users have reported an unpleasant odor, which may be a consideration for some prospective buyers. Overall, the Beautyrest Silver BRS900 Plush Queen Mattress offers a luxurious sleeping experience that is worth considering for anyone in the market for a new mattress. 
 
 
-### [Simmons Beautyrest Silver Extra Firm King Mattress](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-silver-extra-firm-king-mattress)
+### [Simmons Beautyrest Silver Extra Firm King Mattress](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=simmons-beautyrest-silver-extra-firm-king-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-silver-extra-firm-king-mattress"><img alt="beautyrest-silver-brs900-extra-firm-mattress-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-extra-firm-mattress-king-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=simmons-beautyrest-silver-extra-firm-king-mattress"><img alt="beautyrest-silver-brs900-extra-firm-mattress-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-silver-brs900-extra-firm-mattress-king-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of trying the Beautyrest Silver BRS900 Extra Firm Mattress in King size at home. The first thing that stood out was the mattress's sleek and modern design, which would look great in any contemporary bedroom setting. Its plush gray and white hue added to the beauty of the overall aesthetic. 
 
@@ -169,9 +169,9 @@ However, I noticed one minor downside during the first few nights of using the m
 Despite this one minor issue, I'm overall quite pleased with the Beautyrest Silver BRS900 Extra Firm Mattress. It's comfortable, supportive, stylish, and durable, making it a solid choice for anyone in the market for a high-quality mattress. 
 
 
-### [Extra Firm Queen Mattress by Beautyrest Black C-Class](https://serp.ly/@outrun/amazon/Simmons+Mattress?utm\_term=extra-firm-queen-mattress-by-beautyrest-black-c-class)
+### [Extra Firm Queen Mattress by Beautyrest Black C-Class](https://serp.ly/@bar/amazon/Simmons+Mattress?utm\_term=extra-firm-queen-mattress-by-beautyrest-black-c-class)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress?utm_term=extra-firm-queen-mattress-by-beautyrest-black-c-class"><img alt="beautyrest-black-c-class-13-75-extra-firm-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-c-class-13-75-extra-firm-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Simmons+Mattress?utm_term=extra-firm-queen-mattress-by-beautyrest-black-c-class"><img alt="beautyrest-black-c-class-13-75-extra-firm-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/beautyrest-black-c-class-13-75-extra-firm-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
 
 The Beautyrest Black C-Class Extra Firm Mattress is a top-notch sleeping companion designed to cater to those who prefer a firmer, more supportive mattress. With its advanced technologies like T3 Pocketed Coil Technology and BlackICE 4.0 Technology, this mattress promises exceptional support and cooling throughout the night. The elegant design and premium materials not only make it a stylish addition to any bedroom but also ensure comfort, support, and durability. 
 
@@ -197,7 +197,7 @@ Welcome to our comprehensive buyer's guide for Simmons Mattress! This guide will
 
 Simmons Mattress offers a variety of mattress types to cater to different preferences and sleeping styles. Some of the popular options include innerspring, memory foam, and hybrid mattresses. Innerspring mattresses provide traditional support with coils, while memory foam mattresses contour to the body for pressure relief. Hybrid mattresses combine both for a balanced sleep experience. Consider your needs and preferences before making a decision. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-2/h=540,fit=pad,background=black" alt="Simmons-Mattress-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-2/h=540,fit=pad,background=black" alt="Simmons-Mattress-2" height="540"></a></div>
 
 
 ### Firmness Levels
@@ -209,7 +209,7 @@ Simmons Mattresses come in various firmness levels, ranging from soft to firm. A
 
 A sleep trial and warranty are crucial factors to consider when purchasing a Simmons Mattress. A sleep trial allows you to test the mattress at home for a specific period (usually 100-365 days) and return it if it doesn't meet your expectations. A warranty covers defects in materials and workmanship for a specified time. These features ensure you make a well-informed purchase and have peace of mind. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-3/h=540,fit=pad,background=black" alt="Simmons-Mattress-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-3/h=540,fit=pad,background=black" alt="Simmons-Mattress-3" height="540"></a></div>
 
 
 ### Motion Isolation and Edge Support
@@ -219,7 +219,7 @@ Motion isolation is essential for couples or individuals sharing a bed. It measu
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-4/h=540,fit=pad,background=black" alt="Simmons-Mattress-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-4/h=540,fit=pad,background=black" alt="Simmons-Mattress-4" height="540"></a></div>
 
 
 ### Why choose a Simmons mattress?
@@ -236,7 +236,7 @@ Simmons offers a variety of mattress types to cater to different sleeping prefer
 
 Simmons also offers customizable options like the Beautyrest Black or Hybrid Select lines, which allow customers to choose between various firmness levels and additional features such as temperature regulation. It's essential to do some research and consider personal preferences before making a final decision. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-5/h=540,fit=pad,background=black" alt="Simmons-Mattress-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-5/h=540,fit=pad,background=black" alt="Simmons-Mattress-5" height="540"></a></div>
 
 
 ### What are the warranty and return policies for Simmons mattresses?
@@ -252,7 +252,7 @@ Choosing the right Simmons mattress depends on various factors such as your pref
 
 In general, side sleepers may prefer a medium or soft mattress, while back and stomach sleepers might need a firmer mattress for support. Additionally, individuals who experience back pain or pressure points may benefit from a mattress with memory foam, which conforms to the body's shape. Be sure to do your research, read reviews, and test mattresses in person if possible before making a purchase. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-6/h=540,fit=pad,background=black" alt="Simmons-Mattress-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Simmons+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Simmons-Mattress-6/h=540,fit=pad,background=black" alt="Simmons-Mattress-6" height="540"></a></div>
 
 
 ### What are the benefits of purchasing a Simmons mattress?

@@ -15,9 +15,9 @@ Delve into the world of fragrant and inviting tea candles as we present a handpi
 ## Reviews
 
 
-### [White Unscented Tealight Candles: Durable, Long-Lasting, and Versatile](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=white-unscented-tealight-candles-durable-long-lasting-and-versatile)
+### [White Unscented Tealight Candles: Durable, Long-Lasting, and Versatile](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=white-unscented-tealight-candles-durable-long-lasting-and-versatile)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=white-unscented-tealight-candles-durable-long-lasting-and-versatile"><img alt="mainstays-white-unscented-indoor-outdoor-tealight-candles-50-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mainstays-white-unscented-indoor-outdoor-tealight-candles-50-count-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=white-unscented-tealight-candles-durable-long-lasting-and-versatile"><img alt="mainstays-white-unscented-indoor-outdoor-tealight-candles-50-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mainstays-white-unscented-indoor-outdoor-tealight-candles-50-count-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mainstays White Unscented Indoor/Outdoor Tealight Candles have become my go-to choice for adding a warm glow to any room. The 50-candle pack provides plenty of options for decorating, whether you're lighting up a winter night or enhancing a summer outdoor gathering. The tealights fit perfectly in most tealight holders, making them versatile and easy to use. 
 
@@ -30,27 +30,27 @@ Another downside is that the candles are not refillable, so once the wax has bur
 Overall, the Mainstays White Unscented Indoor/Outdoor Tealight Candles are a reliable and affordable choice for anyone looking to add a touch of warmth and coziness to their home. The long burn time, unscented scent, and ease of use make these candles a worthwhile investment. 
 
 
-### [Luminessence Unscented White Tealight Candles: 20-Piece Pack](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=luminessence-unscented-white-tealight-candles-20-piece-pack)
+### [Luminessence Unscented White Tealight Candles: 20-Piece Pack](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=luminessence-unscented-white-tealight-candles-20-piece-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=luminessence-unscented-white-tealight-candles-20-piece-pack"><img alt="luminessence-unscented-white-tealight-candles-20-ct-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luminessence-unscented-white-tealight-candles-20-ct-packs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=luminessence-unscented-white-tealight-candles-20-piece-pack"><img alt="luminessence-unscented-white-tealight-candles-20-ct-packs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/luminessence-unscented-white-tealight-candles-20-ct-packs-1/h=540,fit=pad,background=black"/></a></div>
 
 Luminessence's unscented white tealight candles are a versatile addition to any home or event. Their neutral white color beautifully complements any decor, while their unscented nature ensures they won't clash with other fragrances. 
 
 These little candles offer endless possibilities for decoration and can make a perfect addition to any space. Be sure to check out their tea-light shaped candles that bring a warm, inviting atmosphere to any setting. 
 
 
-### [Stonebriar Long Burning Unscented Tealight Candles - 8 Hour Extended Burn Time (100 Pack)](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=stonebriar-long-burning-unscented-tealight-candles-8-hour-extended-burn-time-100-pack)
+### [Stonebriar Long Burning Unscented Tealight Candles - 8 Hour Extended Burn Time (100 Pack)](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=stonebriar-long-burning-unscented-tealight-candles-8-hour-extended-burn-time-100-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=stonebriar-long-burning-unscented-tealight-candles-8-hour-extended-burn-time-100-pack"><img alt="stonebriar-long-burning-tealight-candles-8-hours-white-unscented-100-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stonebriar-long-burning-tealight-candles-8-hours-white-unscented-100-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=stonebriar-long-burning-unscented-tealight-candles-8-hour-extended-burn-time-100-pack"><img alt="stonebriar-long-burning-tealight-candles-8-hours-white-unscented-100-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stonebriar-long-burning-tealight-candles-8-hours-white-unscented-100-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 These Stonebriar long-burning tealight candles offer a tranquil atmosphere to your home with their 8-hour extended burn time and unscented aroma. Made from lead-free 100% cotton wicks, the white tealight candles are crafted with care, ensuring a smokeless and warm glow. Packed into secure, protective boxes, these candles come with 100 tealight tins, perfectly fitting any standard votive holder for various occasions such as birthday parties, anniversaries, or spa settings. 
 
 Ideal for creating beautiful centerpieces or potpourri burners, these European-made tealight candles are a versatile and practical choice for your decorative needs. 
 
 
-### [12-Pack Tealight Ashwood and Palo Santo Threshold Candles](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=12-pack-tealight-ashwood-and-palo-santo-threshold-candles)
+### [12-Pack Tealight Ashwood and Palo Santo Threshold Candles](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=12-pack-tealight-ashwood-and-palo-santo-threshold-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=12-pack-tealight-ashwood-and-palo-santo-threshold-candles"><img alt="12pk-tealight-ashwood-and-palo-santo-candle-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12pk-tealight-ashwood-and-palo-santo-candle-threshold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=12-pack-tealight-ashwood-and-palo-santo-threshold-candles"><img alt="12pk-tealight-ashwood-and-palo-santo-candle-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12pk-tealight-ashwood-and-palo-santo-candle-threshold-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Threshold 12Pk Tealight Ashwood and Palo Santo Candle set, and I have to say, I'm quite impressed. This pack of tealights is perfect for daily use or special occasions, thanks to its earthy brown hue that adds a warm touch to any space. 
 
@@ -63,18 +63,18 @@ However, I do have to mention one downside: some users have reported that the sc
 Overall, the Threshold 12Pk Tealight Ashwood and Palo Santo Candle set is a great addition to any home. Its earthy color, delightful scents, and long burn time make it a worthwhile purchase. Just be aware that the scent might not be as strong as you'd expect, but for me, the pros definitely outweigh the cons. 
 
 
-### [General Wax Unscented White Tea Light Candles - 12 pc Long Burning](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=general-wax-unscented-white-tea-light-candles-12-pc-long-burning)
+### [General Wax Unscented White Tea Light Candles - 12 pc Long Burning](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=general-wax-unscented-white-tea-light-candles-12-pc-long-burning)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=general-wax-unscented-white-tea-light-candles-12-pc-long-burning"><img alt="general-wax-candle-tea-lights-white-12pc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/general-wax-candle-tea-lights-white-12pc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=general-wax-unscented-white-tea-light-candles-12-pc-long-burning"><img alt="general-wax-candle-tea-lights-white-12pc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/general-wax-candle-tea-lights-white-12pc-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the General Wax Candle Tea Lights set in white, and let me tell you, they made a big difference in setting the perfect mood during my dinner party. With a 100% cotton wick and self-contained design, these little guys are super easy to clean up after, and their long burn time is a definite plus. However, they're unscented, so if you're looking for a fragrance, these might not be the best choice for you. 
 
 Overall, these tea lights are a great bang for your buck, especially since there's a 12-piece set. 
 
 
-### [Lily Scented Tea Candle 30-Pack for Home Decor & Gifting](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=lily-scented-tea-candle-30-pack-for-home-decor-gifting)
+### [Lily Scented Tea Candle 30-Pack for Home Decor & Gifting](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=lily-scented-tea-candle-30-pack-for-home-decor-gifting)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=lily-scented-tea-candle-30-pack-for-home-decor-gifting"><img alt="scented-tea-light-candles-lily-30-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scented-tea-light-candles-lily-30-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=lily-scented-tea-candle-30-pack-for-home-decor-gifting"><img alt="scented-tea-light-candles-lily-30-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scented-tea-light-candles-lily-30-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently found myself in need of some ambiance while working from home, and these Lily scented tea light candles came to the rescue. The packaging was simple but effective, making them perfect for a last-minute gift or for gifting to myself (I won't judge). 
 
@@ -83,16 +83,16 @@ The three dozen Lily-scented candles filled my living room with a refreshing sce
 Overall, these scented tea light candles were the perfect addition to my daily life and made a great gift option for friends and family. 
 
 
-### [12Pk Luxurious Tealight Cotton Candles by Threshold](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=12pk-luxurious-tealight-cotton-candles-by-threshold)
+### [12Pk Luxurious Tealight Cotton Candles by Threshold](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=12pk-luxurious-tealight-cotton-candles-by-threshold)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=12pk-luxurious-tealight-cotton-candles-by-threshold"><img alt="12pk-tealight-cotton-candles-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12pk-tealight-cotton-candles-threshold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=12pk-luxurious-tealight-cotton-candles-by-threshold"><img alt="12pk-tealight-cotton-candles-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/12pk-tealight-cotton-candles-threshold-1/h=540,fit=pad,background=black"/></a></div>
 
 These exquisite 12-pack tealight candles from Threshold have the power to transform any space into a warm and inviting haven. The delightful fragrance emanating from these candles has the capacity to lift your mood and bring a sense of coziness to any room. Their versatility, with various sizes and easy-to-display options, makes them an elegant addition to any home. These candles burn for an impressive duration of 4 hours, showcasing their efficiency. Some users have noticed a marginally simple scent, but overall, these tealight candles have won the hearts and homes of countless individuals. 
 
 
-### [Zest 50-Piece Yellow Tealight Candles](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=zest-50-piece-yellow-tealight-candles)
+### [Zest 50-Piece Yellow Tealight Candles](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=zest-50-piece-yellow-tealight-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=zest-50-piece-yellow-tealight-candles"><img alt="zest-candle-50-piece-tealight-candles-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zest-candle-50-piece-tealight-candles-yellow-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=zest-50-piece-yellow-tealight-candles"><img alt="zest-candle-50-piece-tealight-candles-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zest-candle-50-piece-tealight-candles-yellow-1/h=540,fit=pad,background=black"/></a></div>
 
 The Zest Candle 50-Piece Tealight Candles offer a versatile assortment of colors for both practical and decorative use. With a variety of hues, these candles can be customized to suit any room or occasion. 
 
@@ -101,9 +101,9 @@ The tealights' long burn time makes them an economical choice for those who enjo
 Additionally, their unscented nature ensures a purer burn, making them an excellent choice for those with fragrance sensitivities. While some users have reported difficulties with the packaging, the overall positive reviews and high rating suggest that the Zest Candle Tealight Candles remain a popular and attractive option for those seeking a wide selection of high-quality, budget-friendly tealights. 
 
 
-### [Travel-Friendly Mini Tea Lights for Shabbat Celebrations](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=travel-friendly-mini-tea-lights-for-shabbat-celebrations)
+### [Travel-Friendly Mini Tea Lights for Shabbat Celebrations](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=travel-friendly-mini-tea-lights-for-shabbat-celebrations)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=travel-friendly-mini-tea-lights-for-shabbat-celebrations"><img alt="mini-tea-light-candles-bulk-tea-candles-50-mini-tea-lights-tiny-tea-lights-white-unscented-mini-trav-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-tea-light-candles-bulk-tea-candles-50-mini-tea-lights-tiny-tea-lights-white-unscented-mini-trav-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=travel-friendly-mini-tea-lights-for-shabbat-celebrations"><img alt="mini-tea-light-candles-bulk-tea-candles-50-mini-tea-lights-tiny-tea-lights-white-unscented-mini-trav-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mini-tea-light-candles-bulk-tea-candles-50-mini-tea-lights-tiny-tea-lights-white-unscented-mini-trav-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using these Mini Tea Light Candles for some time now, and I have to say they're a game-changer. Not only are they perfect for a candle-lover, but they provide a practical solution for any situation. 
 
@@ -116,9 +116,9 @@ However, the downside of being so small is that they only burn for an hour. It's
 Overall, these tea lights are an excellent investment for any candle enthusiast. Their petite size makes them a versatile choice for various occasions. However, the limited burn time might be a downer for some. 
 
 
-### [Threshold's 24pk Tealight Charcoal Black Teak Candles with Peony & Cherry Blossom Scents](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=thresholds-24pk-tealight-charcoal-black-teak-candles-with-peony-cherry-blossom-scents)
+### [Threshold's 24pk Tealight Charcoal Black Teak Candles with Peony & Cherry Blossom Scents](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=thresholds-24pk-tealight-charcoal-black-teak-candles-with-peony-cherry-blossom-scents)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=thresholds-24pk-tealight-charcoal-black-teak-candles-with-peony-cherry-blossom-scents"><img alt="24pk-tealight-charcoal-black-teak-with-soft-cotton-peony-and-cherry-blossom-candles-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/24pk-tealight-charcoal-black-teak-with-soft-cotton-peony-and-cherry-blossom-candles-threshold-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=thresholds-24pk-tealight-charcoal-black-teak-candles-with-peony-cherry-blossom-scents"><img alt="24pk-tealight-charcoal-black-teak-with-soft-cotton-peony-and-cherry-blossom-candles-threshold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/24pk-tealight-charcoal-black-teak-with-soft-cotton-peony-and-cherry-blossom-candles-threshold-1/h=540,fit=pad,background=black"/></a></div>
 
 These Threshold tea lights are a delightful addition to any space. Crafted from a blend of palm and paraffin wax, these candles provide a cozy ambiance with their soft candlelight. 
 
@@ -127,9 +127,9 @@ With a burn time of approximately 4 hours, you can enjoy the scents of peony and
 Threshold promises to make you feel like you're right at home, and with this impressive selection of scented tea lights, they're certainly living up to it. 
 
 
-### [Brighten Your Space with 8 Hour Long-Burning Tealight Candles](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=brighten-your-space-with-8-hour-long-burning-tealight-candles)
+### [Brighten Your Space with 8 Hour Long-Burning Tealight Candles](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=brighten-your-space-with-8-hour-long-burning-tealight-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=brighten-your-space-with-8-hour-long-burning-tealight-candles"><img alt="tealight-candles-8-hour-long-time-burning-adamsbargainshop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tealight-candles-8-hour-long-time-burning-adamsbargainshop-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=brighten-your-space-with-8-hour-long-burning-tealight-candles"><img alt="tealight-candles-8-hour-long-time-burning-adamsbargainshop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tealight-candles-8-hour-long-time-burning-adamsbargainshop-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried these Tealight Candles from Adam's Bargain Shop and they have definitely added a warm and soothing touch to my home. The highlight of these candles is their 8-hour burn time, which means you can enjoy their calming glow without constantly having to replace them. 
 
@@ -140,9 +140,9 @@ The metal holder that comes with the candles is a great addition too. It collect
 However, one downside is that they are only meant for indoor use, so if you're someone who likes to enjoy candles outside, you might need to look for an alternative. Overall, I'm very satisfied with these Tealight Candles and would definitely recommend them for anyone looking to add a cozy touch to their home. 
 
 
-### [Zest Candle 50-Piece Tealight Candles Orange with Traditional Style and Handpoured](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=zest-candle-50-piece-tealight-candles-orange-with-traditional-style-and-handpoured)
+### [Zest Candle 50-Piece Tealight Candles Orange with Traditional Style and Handpoured](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=zest-candle-50-piece-tealight-candles-orange-with-traditional-style-and-handpoured)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=zest-candle-50-piece-tealight-candles-orange-with-traditional-style-and-handpoured"><img alt="zest-candle-50-piece-tealight-candles-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zest-candle-50-piece-tealight-candles-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=zest-candle-50-piece-tealight-candles-orange-with-traditional-style-and-handpoured"><img alt="zest-candle-50-piece-tealight-candles-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zest-candle-50-piece-tealight-candles-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 Say hello to the Zest Candle 50-Piece Tealight Candles Orange - the ultimate addition to your dinner or party setup! These tealights come in a traditional style, hand-poured with love for maximum scent release. With a size of 1.5" diameter and 0.75" height, these candles are a perfect fit for any tealight holder. The package weighs a reasonable 1.899 pounds, making it a breeze to carry around. 
 
@@ -157,9 +157,9 @@ However, users did report a minor issue with the color variation, with some rece
 If you're a fan of tealights and are always on the lookout for new colors to add to your collection, these Zest Candle Orange Tealights should definitely be on your list. Their traditional style, hand-poured nature, and long-lasting burn time make them a must-have addition to any home. So, go ahead, give your home a warm, inviting glow with the Zest Candle 50-Piece Tealight Candles Orange! 
 
 
-### [Decorrack 30 Apple Cinnamon Tealight Candles](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=decorrack-30-apple-cinnamon-tealight-candles)
+### [Decorrack 30 Apple Cinnamon Tealight Candles](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=decorrack-30-apple-cinnamon-tealight-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=decorrack-30-apple-cinnamon-tealight-candles"><img alt="decorrack-30-apple-cinnamon-scented-tealight-candles-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/decorrack-30-apple-cinnamon-scented-tealight-candles-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=decorrack-30-apple-cinnamon-tealight-candles"><img alt="decorrack-30-apple-cinnamon-scented-tealight-candles-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/decorrack-30-apple-cinnamon-scented-tealight-candles-1/h=540,fit=pad,background=black"/></a></div>
 
 For anyone looking to add a touch of warmth and comfort to their surroundings, the Decorrack 30 Apple Cinnamon Scented Tealight Candles are a perfect solution. These classically designed, 1.5-inch round silver-tinned candles make for a versatile addition to any room. Whether used as table centerpieces, floating decorations, or even as emergency lights, these candles are sure to create a cozy atmosphere wherever they're placed. 
 
@@ -168,9 +168,9 @@ Each candle boasts a burn time of approximately 2.5 hours and features a long-la
 Although some users have noted concerns about the candles' packaging and scent quality, the majority agree that these apple cinnamon tea light candles offer great value for their price. By providing a warm and inviting aroma, these candles are sure to uplift anyone's mood, making them a worthwhile addition to any home or event space. 
 
 
-### [Premium Battery Powered Warm White Tea Light Candles for Decorations & Celebrations](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=premium-battery-powered-warm-white-tea-light-candles-for-decorations-celebrations)
+### [Premium Battery Powered Warm White Tea Light Candles for Decorations & Celebrations](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=premium-battery-powered-warm-white-tea-light-candles-for-decorations-celebrations)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=premium-battery-powered-warm-white-tea-light-candles-for-decorations-celebrations"><img alt="brigle-led-tea-lights-battery-powered-tea-lights-flameless-candles-warm-white-24-pack-wedding-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brigle-led-tea-lights-battery-powered-tea-lights-flameless-candles-warm-white-24-pack-wedding-lights-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=premium-battery-powered-warm-white-tea-light-candles-for-decorations-celebrations"><img alt="brigle-led-tea-lights-battery-powered-tea-lights-flameless-candles-warm-white-24-pack-wedding-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/brigle-led-tea-lights-battery-powered-tea-lights-flameless-candles-warm-white-24-pack-wedding-lights-1/h=540,fit=pad,background=black"/></a></div>
 
 Illuminate your celebrations with the warm glow of the Brigle LED Tea Lights. With their flameless, flickering LED candles, these battery-powered lights add a touch of elegance to any event or space. 
 
@@ -179,9 +179,9 @@ Each pack of 24 features a Warm White Tea Light Candle, designed to look and fee
 These premium quality and durable lights are a perfect, safe addition to any occasion or décor. 
 
 
-### [TAG Jumbo Tealight Candles Set - Classic White in Silver Cups](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=tag-jumbo-tealight-candles-set-classic-white-in-silver-cups)
+### [TAG Jumbo Tealight Candles Set - Classic White in Silver Cups](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=tag-jumbo-tealight-candles-set-classic-white-in-silver-cups)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=tag-jumbo-tealight-candles-set-classic-white-in-silver-cups"><img alt="tag-jumbo-tealight-candles-set-of-4-410009" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tag-jumbo-tealight-candles-set-of-4-410009/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=tag-jumbo-tealight-candles-set-classic-white-in-silver-cups"><img alt="tag-jumbo-tealight-candles-set-of-4-410009" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tag-jumbo-tealight-candles-set-of-4-410009/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I came across these Tag Jumbo Tealight Candles in a set of four, and I must admit they have revolutionized the elegance in my home decor. The timeless white color and silver metal cups harmonize beautifully with my larger candleholders and stand out even more when paired with my tealight holders. 
 
@@ -192,9 +192,9 @@ The only downside? The tag on the bottom does catch the eye and detracts a bit f
 If you're in search of a stylish and hassle-free tealight option that will elevate your home's aesthetic, these candles are the ideal choice. Trust me, you won't regret it.
 
 
-### [Unscented 100-Count Tealight Candle Set](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=unscented-100-count-tealight-candle-set)
+### [Unscented 100-Count Tealight Candle Set](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=unscented-100-count-tealight-candle-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=unscented-100-count-tealight-candle-set"><img alt="cocodor-unscented-tealight-candles-100pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cocodor-unscented-tealight-candles-100pcs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=unscented-100-count-tealight-candle-set"><img alt="cocodor-unscented-tealight-candles-100pcs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cocodor-unscented-tealight-candles-100pcs-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried these Cocodor Unscented Tealight Candles, and I must say, they're quite the little powerhouses. Each teeny 3.8cm diameter candle burns for a solid 4 to 5 hours, making them perfect for those special occasions you want to keep lit all night. 
 
@@ -207,9 +207,9 @@ However, there's one thing to note: These candles are strictly for indoor use. S
 Overall, I'm quite impressed with these Cocodor Tealight Candles. They're well-made, long-lasting, and they really do have a candle for every occasion. The unscented option is a nice touch, too. Just remember to keep them indoors! 
 
 
-### [L'ner Unscented Tea Light Candles - Set of 100 for Parties and Home Decor](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=lner-unscented-tea-light-candles-set-of-100-for-parties-and-home-decor)
+### [L'ner Unscented Tea Light Candles - Set of 100 for Parties and Home Decor](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=lner-unscented-tea-light-candles-set-of-100-for-parties-and-home-decor)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=lner-unscented-tea-light-candles-set-of-100-for-parties-and-home-decor"><img alt="lner-tea-light-candles-set-of-100-unscented-candles-burns-aprx-3-5-hour-party-candles-tea-light-ambi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lner-tea-light-candles-set-of-100-unscented-candles-burns-aprx-3-5-hour-party-candles-tea-light-ambi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=lner-unscented-tea-light-candles-set-of-100-for-parties-and-home-decor"><img alt="lner-tea-light-candles-set-of-100-unscented-candles-burns-aprx-3-5-hour-party-candles-tea-light-ambi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lner-tea-light-candles-set-of-100-unscented-candles-burns-aprx-3-5-hour-party-candles-tea-light-ambi-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the captivating ambiance created by L'ner's Indonesian White Unscented Tealight Candles, offering a touch of elegance wherever they're lit. Crafted with high-quality materials, these mini candles feature a natural wax body and a lead-free cotton wick, ensuring durability and a clean, smokeless burn. The unscented scent allows the captivating scent of your surroundings to take center stage while adding a warm, cozy atmosphere to any room. 
 
@@ -218,9 +218,9 @@ Effortlessly creating a party or dinner setting, these tea lights come in a pack
 L'ner offers a fantastic selection of home decor and illumination accessories, and these Indonesian White Unscented Tealight Candles are no exception. If you're looking to elevate your event or simply create a comforting atmosphere, these charming tea light candles are a perfect choice. 
 
 
-### [Elegant Highly Scented Luxury Tealight Candle Gift Set](https://serp.ly/@outrun/amazon/Tea+Candles?utm\_term=elegant-highly-scented-luxury-tealight-candle-gift-set)
+### [Elegant Highly Scented Luxury Tealight Candle Gift Set](https://serp.ly/@bar/amazon/Tea+Candles?utm\_term=elegant-highly-scented-luxury-tealight-candle-gift-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tea+Candles?utm_term=elegant-highly-scented-luxury-tealight-candle-gift-set"><img alt="exquizite-variety-collection-highly-scented-luxury-tealight-candles-gift-set-90-pcs-set-of-15-tealig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/exquizite-variety-collection-highly-scented-luxury-tealight-candles-gift-set-90-pcs-set-of-15-tealig-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tea+Candles?utm_term=elegant-highly-scented-luxury-tealight-candle-gift-set"><img alt="exquizite-variety-collection-highly-scented-luxury-tealight-candles-gift-set-90-pcs-set-of-15-tealig-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/exquizite-variety-collection-highly-scented-luxury-tealight-candles-gift-set-90-pcs-set-of-15-tealig-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I've been using the delightful Exquizite Variety Collection tealight candles for a while now. The gift set of 15 tealights offers six different scents, which are just perfect for freshening up any room or creating a cozy atmosphere. The tealights themselves are of high quality, with a generous amount of fragrance to fill the air. 
 
@@ -238,7 +238,7 @@ In this buyer's guide for tea candles, we will discuss the important features to
 
 When it comes to tea candles, there are two main types: container and votive. Container candles are designed to be burned in a container or holder, while votive candles have a wider base and are designed to be placed in a votive holder. Each type has its own benefits, so consider your needs and preferences when making your selection. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-2/h=540,fit=pad,background=black" alt="Tea-Candles-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-2/h=540,fit=pad,background=black" alt="Tea-Candles-2" height="540"></a></div>
 
 
 ### Fragrance and Strength
@@ -250,7 +250,7 @@ Tea candles come in a wide variety of fragrances, so it's essential to choose on
 
 The quality of the wax used in tea candles can impact the overall performance and longevity of the candle. High-quality wax burns cleaner and provides a longer burn time, ensuring your candle lasts longer. Look for tea candles made from natural waxes, such as soy or beeswax, which are environmentally friendly and provide a cleaner burn. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-3/h=540,fit=pad,background=black" alt="Tea-Candles-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-3/h=540,fit=pad,background=black" alt="Tea-Candles-3" height="540"></a></div>
 
 
 ### Safety Considerations
@@ -260,7 +260,7 @@ When purchasing tea candles, always consider safety. Make sure the candles come 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-4/h=540,fit=pad,background=black" alt="Tea-Candles-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-4/h=540,fit=pad,background=black" alt="Tea-Candles-4" height="540"></a></div>
 
 
 ### What are tea candles?
@@ -276,7 +276,7 @@ Tea candles offer several benefits, including their versatility, safety, and lon
 
 In addition, they provide a more extended burn time compared to traditional candles. Some tea candles can burn for up to 20 hours or even more, depending on the specific brand and size. They are also available in different fragrances, allowing you to choose the scent that best suits your preferences. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-5/h=540,fit=pad,background=black" alt="Tea-Candles-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-5/h=540,fit=pad,background=black" alt="Tea-Candles-5" height="540"></a></div>
 
 
 ### Are tea candles safe to use?
@@ -292,7 +292,7 @@ Tea candles come in various sizes, ranging from small votive size to larger, spe
 
 Another common size is the large tea candle, often used in multi-wick configurations. These can have a diameter of around 95mm (3.8 inches) and a height of about 25mm (1 inch). They typically provide longer burn times, often up to 20 hours, depending on the specific brand. Size can greatly impact the scent throw and burn time, so it's essential to choose the right size for your needs. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-6/h=540,fit=pad,background=black" alt="Tea-Candles-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-6/h=540,fit=pad,background=black" alt="Tea-Candles-6" height="540"></a></div>
 
 
 ### What are the top brands for tea candles?

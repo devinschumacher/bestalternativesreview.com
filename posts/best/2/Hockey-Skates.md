@@ -15,9 +15,9 @@ Prepare to glide onto the ice with the ultimate hockey skates! This article feat
 ## Reviews
 
 
-### [Versatile Indoor and Outdoor Hockey Skates for Beginner to Intermediate Skaters](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=versatile-indoor-and-outdoor-hockey-skates-for-beginner-to-intermediate-skaters)
+### [Versatile Indoor and Outdoor Hockey Skates for Beginner to Intermediate Skaters](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=versatile-indoor-and-outdoor-hockey-skates-for-beginner-to-intermediate-skaters)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=versatile-indoor-and-outdoor-hockey-skates-for-beginner-to-intermediate-skaters"><img alt="american-ice-force-2-0-hockey-skate-black-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-ice-force-2-0-hockey-skate-black-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=versatile-indoor-and-outdoor-hockey-skates-for-beginner-to-intermediate-skaters"><img alt="american-ice-force-2-0-hockey-skate-black-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-ice-force-2-0-hockey-skate-black-12/h=540,fit=pad,background=black"/></a></div>
 
 When I first tried on the American Ice Force 2.0 Hockey Skate, I was greeted with a lightweight feeling that made me confident I'd be gliding across the ice in no time. The blades provided a robust grip on the surface, giving me a sense of stability while I mastered my skating skills. 
 
@@ -26,18 +26,18 @@ There were some not-so-positive aspects, too. I noticed that the fit was quite n
 Overall, these Ice Force 2.0 Hockey Skates by American Athletic proved to be a great choice for everyday skaters like me. They were fairly priced, sturdy, and provided a decent skating experience. Just make sure to take the sizing chart into account and be prepared for the snug fit, especially if you have wider feet. 
 
 
-### [CCM Tacks Vector Senior Hockey Skates: Excellent Performance and Stylish Design](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=ccm-tacks-vector-senior-hockey-skates-excellent-performance-and-stylish-design)
+### [CCM Tacks Vector Senior Hockey Skates: Excellent Performance and Stylish Design](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=ccm-tacks-vector-senior-hockey-skates-excellent-performance-and-stylish-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=ccm-tacks-vector-senior-hockey-skates-excellent-performance-and-stylish-design"><img alt="ccm-tacks-vector-senior-hockey-skates-23" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-tacks-vector-senior-hockey-skates-23/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=ccm-tacks-vector-senior-hockey-skates-excellent-performance-and-stylish-design"><img alt="ccm-tacks-vector-senior-hockey-skates-23" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-tacks-vector-senior-hockey-skates-23/h=540,fit=pad,background=black"/></a></div>
 
 The CCM Tacks Vector Senior Hockey Skates '22 offer impressive performance for their price point. Built with the same strong base as the Tacks AS-570 model, these skates provide exceptional value. The striking black, chrome, and silver graphics set them apart from the rest of the 2022 Tacks lineup, making them a unique choice for competitive hockey players. 
 
 The skate also features CCM's innovative one-piece boot construction, ensuring a comfortable fit and efficient energy transfer. Despite being lightweight, they are sturdy and ready for high-performance action on the ice. 
 
 
-### [Bauer Lil Rookie Youth Adjustable Hockey Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=bauer-lil-rookie-youth-adjustable-hockey-skates)
+### [Bauer Lil Rookie Youth Adjustable Hockey Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=bauer-lil-rookie-youth-adjustable-hockey-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=bauer-lil-rookie-youth-adjustable-hockey-skates"><img alt="bauer-lil-rookie-adjustable-youth-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-lil-rookie-adjustable-youth-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=bauer-lil-rookie-youth-adjustable-hockey-skates"><img alt="bauer-lil-rookie-adjustable-youth-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-lil-rookie-adjustable-youth-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Bauer Lil' Rookie Adjustable Youth Hockey Skates a try, and I must say, they truly live up to their reputation. As a beginner in the world of ice hockey, these skates were the perfect fit for me. They were incredibly comfortable and offered the right amount of support without feeling too stiff. 
 
@@ -48,18 +48,18 @@ However, there were a few minor drawbacks. The skates did require a bit of break
 Overall, the Bauer Lil' Rookie Adjustable Youth Hockey Skates are an excellent choice for anyone looking to dip their toes into the world of ice hockey. Their adjustable feature, flexible construction, and ideal support for new skaters make them a winner in my book. 
 
 
-### [Bauer Senior RS Roller Hockey Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=bauer-senior-rs-roller-hockey-skates)
+### [Bauer Senior RS Roller Hockey Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=bauer-senior-rs-roller-hockey-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=bauer-senior-rs-roller-hockey-skates"><img alt="bauer-senior-rs-roller-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-senior-rs-roller-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=bauer-senior-rs-roller-hockey-skates"><img alt="bauer-senior-rs-roller-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-senior-rs-roller-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bauer RS Senior Street Hockey Skates offer a great balance of performance and affordability for both new and experienced roller hockey players. Featuring an injected composite weave quarter for flexibility and support, these skates provide a high-level of protection without adding unnecessary weight. The anatomical-fit tongue, microfiber liner, and HI-LO Ventilator steel chassis ensure optimal mobility, comfort, and balance. 
 
 The Hi-LO Street wheels, along with the ABEC 5 bearings, provide a smooth and durable striding experience. Overall, the Bauer RS Senior Street Hockey Skates are an excellent choice for those looking to make the most of their roller hockey playing experience. 
 
 
-### [Lightweight Bauer Vapor X4 Hockey Skates for Enhanced Performance](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=lightweight-bauer-vapor-x4-hockey-skates-for-enhanced-performance)
+### [Lightweight Bauer Vapor X4 Hockey Skates for Enhanced Performance](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=lightweight-bauer-vapor-x4-hockey-skates-for-enhanced-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=lightweight-bauer-vapor-x4-hockey-skates-for-enhanced-performance"><img alt="bauer-vapor-x4-hockey-skates-intermediate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-vapor-x4-hockey-skates-intermediate-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=lightweight-bauer-vapor-x4-hockey-skates-for-enhanced-performance"><img alt="bauer-vapor-x4-hockey-skates-intermediate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-vapor-x4-hockey-skates-intermediate-1/h=540,fit=pad,background=black"/></a></div>
 
 As an avid hockey player, I've always been on the lookout for the perfect pair of skates. When I recently tried the Bauer Vapor X4 skates, I was impressed by the lightweight feel that allowed me to perform better on the ice. With its high-quality construction and support, this skate made every shift and practice more enjoyable. 
 
@@ -70,9 +70,9 @@ Another feature that I appreciated was the high-boot design, which offered even 
 While the X4 skates might not be as affordable as some less expensive models, I believe the increased performance and support they provide make them a worthwhile investment for any serious hockey player. Overall, the Bauer Vapor X4 skates have easily become my go-to choice for every game and practice, and I have no regrets about upgrading to this high-performance pair. 
 
 
-### [Soft Boot Hockey Skate for Recreation and Non-Competitive Play](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=soft-boot-hockey-skate-for-recreation-and-non-competitive-play)
+### [Soft Boot Hockey Skate for Recreation and Non-Competitive Play](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=soft-boot-hockey-skate-for-recreation-and-non-competitive-play)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=soft-boot-hockey-skate-for-recreation-and-non-competitive-play"><img alt="american-athletic-senior-cougar-soft-boot-hockey-skate-size-13-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-senior-cougar-soft-boot-hockey-skate-size-13-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=soft-boot-hockey-skate-for-recreation-and-non-competitive-play"><img alt="american-athletic-senior-cougar-soft-boot-hockey-skate-size-13-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-senior-cougar-soft-boot-hockey-skate-size-13-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Are you ready to step up your non-competitive ice hockey game? Say hello to the American Athletic Senior Cougar Soft Boot Hockey Skate in size 13, presented in a classy black finish. This skate is an excellent choice for anyone who wants to enjoy the thrill of skating without the high-stakes pressure of competition. 
 
@@ -83,9 +83,9 @@ Another great feature of this skate is the multiple layers of ankle support, mea
 And don't forget - the sizing of this skate is true to shoe size, so you can rest assured that you will get the perfect fit. So, if you're searching for a comfortable recreational skate for your next ice hockey excursion, the American Athletic Senior Cougar Soft Boot Hockey Skate is the answer you've been looking for. 
 
 
-### [Lake Placid Vortex Medium Ice Hockey Skates for 3-6 (Adjustable)](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=lake-placid-vortex-medium-ice-hockey-skates-for-3-6-adjustable)
+### [Lake Placid Vortex Medium Ice Hockey Skates for 3-6 (Adjustable)](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=lake-placid-vortex-medium-ice-hockey-skates-for-3-6-adjustable)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=lake-placid-vortex-medium-ice-hockey-skates-for-3-6-adjustable"><img alt="lake-placid-vortex-adjustable-ice-hockey-skates-medium-3-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lake-placid-vortex-adjustable-ice-hockey-skates-medium-3-7/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=lake-placid-vortex-medium-ice-hockey-skates-for-3-6-adjustable"><img alt="lake-placid-vortex-adjustable-ice-hockey-skates-medium-3-7" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lake-placid-vortex-adjustable-ice-hockey-skates-medium-3-7/h=540,fit=pad,background=black"/></a></div>
 
 The Lake Placid Vortex ice skates provide optimal comfort and endurance for ice hockey enthusiasts of all skill levels. The conveniently adjustable twist mechanism located at the back of the boot guarantees a customized and perfect fit, making them an ideal option for those with growing feet. 
 
@@ -94,9 +94,9 @@ The composite quarter panels offer both robustness and flexibility, while the pl
 Despite their durability, these skates maintain an admirable lightness and maneuverability, making them a top pick for beginners embarking on their ice hockey adventure. 
 
 
-### [Lake Placid Nitro Boys Adjustable Hockey Skates - Cool on the Ice](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=lake-placid-nitro-boys-adjustable-hockey-skates-cool-on-the-ice)
+### [Lake Placid Nitro Boys Adjustable Hockey Skates - Cool on the Ice](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=lake-placid-nitro-boys-adjustable-hockey-skates-cool-on-the-ice)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=lake-placid-nitro-boys-adjustable-hockey-skates-cool-on-the-ice"><img alt="lake-placid-nitro-boys-adjustable-ice-skates-black-1-5" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lake-placid-nitro-boys-adjustable-ice-skates-black-1-5/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=lake-placid-nitro-boys-adjustable-hockey-skates-cool-on-the-ice"><img alt="lake-placid-nitro-boys-adjustable-ice-skates-black-1-5" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lake-placid-nitro-boys-adjustable-ice-skates-black-1-5/h=540,fit=pad,background=black"/></a></div>
 
 The Lake Placid Nitro Boys ice skates are an attractive and affordable option for young skaters. With easy adjustability, these skates ensure a proper fit as your child grows. The quick fit buckles make it simple for kids to put on and take off the skates. 
 
@@ -107,9 +107,9 @@ However, there are a few drawbacks. The tongue might be a bit too firm for some 
 Overall, the Lake Placid Nitro Boys ice skates offer a good balance of performance, style, and affordability. With proper care and maintenance, they may last for a few seasons, making them a worthwhile investment for parents of growing kids. 
 
 
-### [CCM Jetspeed FT4 Intermediate Hockey Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=ccm-jetspeed-ft4-intermediate-hockey-skates)
+### [CCM Jetspeed FT4 Intermediate Hockey Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=ccm-jetspeed-ft4-intermediate-hockey-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=ccm-jetspeed-ft4-intermediate-hockey-skates"><img alt="ccm-jetspeed-ft4-intermediate-hockey-skates-4-0-regular-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-jetspeed-ft4-intermediate-hockey-skates-4-0-regular-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=ccm-jetspeed-ft4-intermediate-hockey-skates"><img alt="ccm-jetspeed-ft4-intermediate-hockey-skates-4-0-regular-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-jetspeed-ft4-intermediate-hockey-skates-4-0-regular-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate on-ice performance with the CCM Jetspeed FT4 hockey skates. Built using advanced materials, these skates prioritize comfort, support, and durability. The RFM composite provides an NHL caliber lightweight build, while the 180 thermo-formable core guarantees responsive and swift strides. 
 
@@ -120,9 +120,9 @@ The included Speedblade XS holder features a quick-release mechanism and a relia
 Through my experience with these skates, the light and sturdy build has made a significant difference in my skating performance, and the added protection against wear and tear has been a welcome addition. The comfortable fit and support have been my constant companions on the ice, and the speedblade xs holder ensure a dependable and convenient connection. Though there is a brief learning curve when it comes to breaking in these skates and adjusting to the slightly heavier weight compared to previous models, the investment in the Jetspeed FT4 skates has certainly been worth it for me. 
 
 
-### [Bauer Vapor X5 Pro Elite Hockey Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=bauer-vapor-x5-pro-elite-hockey-skates)
+### [Bauer Vapor X5 Pro Elite Hockey Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=bauer-vapor-x5-pro-elite-hockey-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=bauer-vapor-x5-pro-elite-hockey-skates"><img alt="bauer-vapor-x5-pro-hockey-skates-senior-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-vapor-x5-pro-hockey-skates-senior-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=bauer-vapor-x5-pro-elite-hockey-skates"><img alt="bauer-vapor-x5-pro-hockey-skates-senior-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bauer-vapor-x5-pro-hockey-skates-senior-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bauer Vapor X5 Pro Senior Hockey Skates are a top-tier choice for those seeking elite-level performance on the ice. With lightweight and durable materials, these skates provide a secure fit for quick movements, making them a favorite among experienced players. 
 
@@ -131,9 +131,9 @@ The Vapor X5 Pro skates can be customized with either the Fly-Ti or Fly-X runner
 Overall, the Bauer Vapor X5 Pro Senior Hockey Skates are an excellent choice for those looking to elevate their game on the ice. 
 
 
-### [Mission Inhaler WM03 Jr Hockey Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=mission-inhaler-wm03-jr-hockey-skates)
+### [Mission Inhaler WM03 Jr Hockey Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=mission-inhaler-wm03-jr-hockey-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=mission-inhaler-wm03-jr-hockey-skates"><img alt="mission-inhaler-wm03-skates-jr-5-5-e-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mission-inhaler-wm03-skates-jr-5-5-e-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=mission-inhaler-wm03-jr-hockey-skates"><img alt="mission-inhaler-wm03-skates-jr-5-5-e-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mission-inhaler-wm03-skates-jr-5-5-e-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mission Inhaler WM03 Inline Hockey Skates Junior have been a game-changer for my little skater. The asymmetrical toe cap design was something I never knew I needed until I tried it. It has definitely made a difference in energy transfer and overall performance on the ice. 
 
@@ -146,9 +146,9 @@ However, one thing I wish was different was the quality of the wheels. They seem
 Despite this minor drawback, I'm definitely satisfied with the Mission Inhaler WM03 Inline Hockey Skates Junior. They offer excellent performance features at a reasonable price, making them an excellent choice for competitive inline players like my son. And to top it off, the friendly staff at Pure Hockey in Troy were incredibly helpful throughout the purchasing process. 
 
 
-### [Water-Resistant Girls' Ice Skates with Flower Design](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=water-resistant-girls-ice-skates-with-flower-design)
+### [Water-Resistant Girls' Ice Skates with Flower Design](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=water-resistant-girls-ice-skates-with-flower-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=water-resistant-girls-ice-skates-with-flower-design"><img alt="american-little-rocket-double-runner-ice-skates-girls-11-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-little-rocket-double-runner-ice-skates-girls-11-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=water-resistant-girls-ice-skates-with-flower-design"><img alt="american-little-rocket-double-runner-ice-skates-girls-11-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-little-rocket-double-runner-ice-skates-girls-11-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the American Little Rocket Double Runner Ice Skates for a young child. These skates were a great choice for a beginner, as they provided the needed balance and stability for the child to learn on the ice. The double blades really made a difference in helping her confidently stand and move forward. The water-resistant composite soles were a bonus, keeping the skates dry even after a few falls. One downside was the wipe-dry feature didn't seem to work as well as advertised, but overall it was a small issue. 
 
@@ -157,9 +157,9 @@ The vinyl boot was sturdy and comfortable for the child, offering good ankle sup
 Overall, the Little Rocket Double Runner Ice Skates made for a great first pair of skates for a young learner. The design features were well thought out and the price was reasonable. While there were a few minor drawbacks, they didn't detract from the overall enjoyment and effectiveness of the skates for a beginner. 
 
 
-### [High-Performance CCM Super Tacks 9370 Hockey Roller Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=high-performance-ccm-super-tacks-9370-hockey-roller-skates)
+### [High-Performance CCM Super Tacks 9370 Hockey Roller Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=high-performance-ccm-super-tacks-9370-hockey-roller-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=high-performance-ccm-super-tacks-9370-hockey-roller-skates"><img alt="ccm-super-tacks-9370-senior-roller-hockey-skates-size-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-super-tacks-9370-senior-roller-hockey-skates-size-9-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=high-performance-ccm-super-tacks-9370-hockey-roller-skates"><img alt="ccm-super-tacks-9370-senior-roller-hockey-skates-size-9-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ccm-super-tacks-9370-senior-roller-hockey-skates-size-9-1/h=540,fit=pad,background=black"/></a></div>
 
 As a hockey enthusiast, I was excited to try out the CCM Super Tacks 9370R roller skates in size 9. With their brushed microfibre liner and lightweight chassis, I expected a comfortable and powerful performance on the rink. 
 
@@ -172,18 +172,18 @@ On the downside, I occasionally experienced discomfort due to the pressure point
 Overall, the CCM Super Tacks 9370R roller skates delivered a comfortable and powerful performance, making them a great choice for those seeking a smooth and durable skate. However, the specific fit and pressure point issues may be a concern for some potential buyers. 
 
 
-### [Comfortable Women's Hockey Softboot Skate - Warmth and Mobility Combined](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=comfortable-womens-hockey-softboot-skate-warmth-and-mobility-combined)
+### [Comfortable Women's Hockey Softboot Skate - Warmth and Mobility Combined](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=comfortable-womens-hockey-softboot-skate-warmth-and-mobility-combined)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=comfortable-womens-hockey-softboot-skate-warmth-and-mobility-combined"><img alt="american-athletic-womens-softboot-hockey-skate-gray-plum-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-womens-softboot-hockey-skate-gray-plum-9/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=comfortable-womens-hockey-softboot-skate-warmth-and-mobility-combined"><img alt="american-athletic-womens-softboot-hockey-skate-gray-plum-9" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-womens-softboot-hockey-skate-gray-plum-9/h=540,fit=pad,background=black"/></a></div>
 
 The American Athletic Women's Softboot Hockey Skate grays into the hockey world. These stylish skates offer cushy foam padding with fiber lining to ensure both warmth and comfort while you skate. The skates are designed with a speed lacing system and comfortable strap, multi layered ankle support, and a steel runner hockey blade that provides a smooth glide. 
 
 Perfect for hockey moms and enthusiasts looking for an affordable and fashionable alternative, these skates are a great choice for your next ice skating adventure. While they do not adhere to standard US sizing, the overall design and features make this a standout choice for women who want to enjoy hockey skating without breaking the bank. 
 
 
-### [American Athletic Shoe Cougar Skates](https://serp.ly/@outrun/amazon/Hockey+Skates?utm\_term=american-athletic-shoe-cougar-skates)
+### [American Athletic Shoe Cougar Skates](https://serp.ly/@bar/amazon/Hockey+Skates?utm\_term=american-athletic-shoe-cougar-skates)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Hockey+Skates?utm_term=american-athletic-shoe-cougar-skates"><img alt="american-athletic-shoe-cougar-adjustable-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-shoe-cougar-adjustable-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Hockey+Skates?utm_term=american-athletic-shoe-cougar-skates"><img alt="american-athletic-shoe-cougar-adjustable-hockey-skates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/american-athletic-shoe-cougar-adjustable-hockey-skates-1/h=540,fit=pad,background=black"/></a></div>
 
 These American Athletic Shoe Cougar Adjustable Hockey Skates are designed to provide the perfect fit for growing feet. They adjust between sizes 5 to 8, so they can be used for multiple seasons. The lightweight skates have a black plastic upper with red accents, and the tongue and boot collar are padded for added comfort. An easy buckle closure system makes it quick and simple to put them on. 
 

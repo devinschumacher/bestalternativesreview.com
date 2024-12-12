@@ -15,18 +15,18 @@ Step into the world of rugged footwear with Dirty Laundry Boots, where durabilit
 ## Reviews
 
 
-### [Clean and Stylish Dirty Laundry Chelsea Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=clean-and-stylish-dirty-laundry-chelsea-boots)
+### [Clean and Stylish Dirty Laundry Chelsea Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=clean-and-stylish-dirty-laundry-chelsea-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=clean-and-stylish-dirty-laundry-chelsea-boots"><img alt="dirty-laundry-maps-chelsea-boot-white-white-faux-leather-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-maps-chelsea-boot-white-white-faux-leather-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=clean-and-stylish-dirty-laundry-chelsea-boots"><img alt="dirty-laundry-maps-chelsea-boot-white-white-faux-leather-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-maps-chelsea-boot-white-white-faux-leather-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dirty Laundry Maps Chelsea Boot is a stylish addition to any wardrobe. With its edgy lug sole and back pull-tab, it is sure to make you stand out. Made of manmade materials, these boots are comfortable and lightweight. 
 
 They are available in a variety of colors and sizes, making it easy to find the perfect fit. Some users have reported issues with the durability of the boots, but overall, they are a fashionable and functional choice. 
 
 
-### [Dirty Laundry Taupe Western Bootie - Nordstrom, Size 11](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-taupe-western-bootie-nordstrom-size-11)
+### [Dirty Laundry Taupe Western Bootie - Nordstrom, Size 11](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-taupe-western-bootie-nordstrom-size-11)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-taupe-western-bootie-nordstrom-size-11"><img alt="dirty-laundry-unite-western-bootie-in-taupe-at-nordstrom-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-unite-western-bootie-in-taupe-at-nordstrom-size-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-taupe-western-bootie-nordstrom-size-11"><img alt="dirty-laundry-unite-western-bootie-in-taupe-at-nordstrom-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-unite-western-bootie-in-taupe-at-nordstrom-size-12/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in a world of country charm with Dirty Laundry's Unite Western Bootie in a refreshing Taupe hue, exclusively available at Nordstrom in a stylish Size 11. This bootie has all the Western flair you could ask for, from its stacked block heel and almond toe silhouette exuding effortless sophistication, to the signature distressed upper and short shaft that takes the style to a whole new level. 
 
@@ -35,27 +35,27 @@ Paired perfectly with both jeans and skirts, the Unite Western Bootie showcases 
 Boasting a beautiful boot opening of approximately 10", it wraps snugly around the foot, providing a secure fit. And the 2.5" heel adds the cherry on top, allowing you to confidently stride through whatever adventure you embark upon. Whether you're dancing the night away or making a grand entrance, the Unite from Dirty Laundry is sure to turn heads and keep you comfortable every step of the way. 
 
 
-### [Dirty Laundry Grooves: Stylish Heeled Booties for Women in Bone (Size 9.5)](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-grooves-stylish-heeled-booties-for-women-in-bone-size-9-5)
+### [Dirty Laundry Grooves: Stylish Heeled Booties for Women in Bone (Size 9.5)](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-grooves-stylish-heeled-booties-for-women-in-bone-size-9-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-grooves-stylish-heeled-booties-for-women-in-bone-size-9-5"><img alt="womens-dirty-laundry-grooves-heeled-booties-in-bone-size-9-5-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-grooves-heeled-booties-in-bone-size-9-5-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-grooves-stylish-heeled-booties-for-women-in-bone-size-9-5"><img alt="womens-dirty-laundry-grooves-heeled-booties-in-bone-size-9-5-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-grooves-heeled-booties-in-bone-size-9-5-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 These Booties are truly a sight to behold! I've always been a fan of statement footwear, and my recent discovery of the Grooves Casual Boot by Dirty Laundry just confirmed my love for it. The design is the epitome of grunge-chic, what with its metal zipper, chunky heel, platform, and even a retro-cool name that just screams rebellion. But it's not all about the looks, you know. I put these babies to the test and they did not disappoint. The microsuede upper felt like a dream while I trod on through the day, with the manmade insole and tread back providing the much-needed support. 
 
 However, I must mention a couple of drawbacks that I found to be slightly bothersome. First was the heel height - although it wasn't unbearably tall, it was a bit on the higher side for my comfort preference. Secondly, while I appreciate Dirty Laundry's commitment to Made in the USA or Imported products, the synthetic rubber sole in these boots didn't offer the same level of grip as I would've expected for a product of such stature. Regardless, these are minor concerns that pale in comparison to the sheer vibe you exude when wearing these bad boys. So, if you're looking to make a statement, these Grooves Casual Booties by Dirty Laundry could be your calling card. 
 
 
-### [Dirty Laundry Unite Bootie in Natural - Nordstrom's Size 11](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-unite-bootie-in-natural-nordstroms-size-11)
+### [Dirty Laundry Unite Bootie in Natural - Nordstrom's Size 11](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-unite-bootie-in-natural-nordstroms-size-11)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-unite-bootie-in-natural-nordstroms-size-11"><img alt="dirty-laundry-unite-western-bootie-in-natural-at-nordstrom-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-unite-western-bootie-in-natural-at-nordstrom-size-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-unite-bootie-in-natural-nordstroms-size-11"><img alt="dirty-laundry-unite-western-bootie-in-natural-at-nordstrom-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-unite-western-bootie-in-natural-at-nordstrom-size-12/h=540,fit=pad,background=black"/></a></div>
 
 The Dirty Laundry Unite Western Bootie from Nordstrom is a fashionable and versatile addition to any wardrobe. Crafted with a faux leather upper in a western bootie style, these boots feature an almond toe and zipper closure for a secure fit. 
 
 Comfort is ensured with a padded insole, while durability is provided by a synthetic outsole. Standing at 2.5 inches tall, these boots are perfect for adding a touch of western flair to any outfit. Available in size 11, they are true to size and a guaranteed show-stopper, receiving rave reviews for their style, comfort, and versatility. 
 
 
-### [Dirty Laundry Silver Puffer Metallic Insulated Waterproof Bootie](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-silver-puffer-metallic-insulated-waterproof-bootie)
+### [Dirty Laundry Silver Puffer Metallic Insulated Waterproof Bootie](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-silver-puffer-metallic-insulated-waterproof-bootie)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-silver-puffer-metallic-insulated-waterproof-bootie"><img alt="womens-dirty-laundry-dashh-puffer-boot-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-dashh-puffer-boot-silver-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-silver-puffer-metallic-insulated-waterproof-bootie"><img alt="womens-dirty-laundry-dashh-puffer-boot-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-dashh-puffer-boot-silver-1/h=540,fit=pad,background=black"/></a></div>
 
 Dirty Laundry's Dashh puffer bootie is a must-have for those who want to keep their feet warm and stylish, no matter where they go. With its shimmery silver finish and cozy faux fur lining, this bootie is perfect for running errands or hitting the slopes. The round toe adds a touch of elegance, while the lug tread ensures proper traction in any terrain. 
 
@@ -64,9 +64,9 @@ One of the best things about this bootie is its water-resistant feature, keeping
 However, it's worth mentioning that the bootie might feel a bit snug around the ankle, so make sure to choose the right size so your feet don't feel too constricted. Overall, the Dashh puffer bootie from Dirty Laundry is a great choice for anyone looking for a trendy and functional footwear option. 
 
 
-### [Dirty Laundry Lido Lug Sole Ankle Booties in Gray](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-lido-lug-sole-ankle-booties-in-gray)
+### [Dirty Laundry Lido Lug Sole Ankle Booties in Gray](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-lido-lug-sole-ankle-booties-in-gray)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-lido-lug-sole-ankle-booties-in-gray"><img alt="dirty-laundry-womens-lido-lug-sole-ankle-booties-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-lido-lug-sole-ankle-booties-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-lido-lug-sole-ankle-booties-in-gray"><img alt="dirty-laundry-womens-lido-lug-sole-ankle-booties-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-lido-lug-sole-ankle-booties-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added the Dirty Laundry Women's Lido Lug Sole Ankle Booties in a stylish gray hue to my wardrobe, and I must say, they've become my go-to footwear for casual outings. These ankle booties have a block heel that's just perfect for comfortable wear. 
 
@@ -75,9 +75,9 @@ What I love about them is that they're incredibly versatile and can go with almo
 One slight negative is that they seem to run a bit large, so I needed to size down for a proper fit. Overall, I'm thrilled with my purchase and look forward to wearing these booties for many more casual occasions. They've truly become a staple in my wardrobe! 
 
 
-### [Dirty Laundry Taupe Combat Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-taupe-combat-boots)
+### [Dirty Laundry Taupe Combat Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-taupe-combat-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-taupe-combat-boots"><img alt="dirty-laundry-newz-combat-boot-in-taupe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-newz-combat-boot-in-taupe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-taupe-combat-boots"><img alt="dirty-laundry-newz-combat-boot-in-taupe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-newz-combat-boot-in-taupe-1/h=540,fit=pad,background=black"/></a></div>
 
 There's something about a good pair of combat boots that just screams edgy and fashion-forward, and the Dirty Laundry Newz Bootie is no exception. This taupe beauty has a unique blend of rugged appeal and feminine details that catches your eye instantly. The buckle and strap accents definitely give these boots a distinctive style. 
 
@@ -88,9 +88,9 @@ The cushioned insole provides a great level of comfort and support, making these
 The only downside I noticed was that the heel height is a bit higher than I usually prefer, but it didn't cause any major discomfort. Overall, I'd say these boots are a great blend of style and comfort, which is exactly what I look for in my footwear. 
 
 
-### [Go Girl Boot: Dirty Laundry Women's Black Size 8 Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=go-girl-boot-dirty-laundry-womens-black-size-8-boots)
+### [Go Girl Boot: Dirty Laundry Women's Black Size 8 Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=go-girl-boot-dirty-laundry-womens-black-size-8-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=go-girl-boot-dirty-laundry-womens-black-size-8-boots"><img alt="go-girl-boot-for-women-in-black-size-8-by-dirty-laundry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/go-girl-boot-for-women-in-black-size-8-by-dirty-laundry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=go-girl-boot-dirty-laundry-womens-black-size-8-boots"><img alt="go-girl-boot-for-women-in-black-size-8-by-dirty-laundry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/go-girl-boot-for-women-in-black-size-8-by-dirty-laundry-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Go Girl Boot from Dirty Laundry and was utterly delighted with the way it complimented my outfits. The chunky heel really added an edgy touch to my jeans and skirts, making me feel like I could strut down the street with confidence. The black color was perfect for any outfit, making it a versatile and stylish choice for me. 
 
@@ -103,9 +103,9 @@ Lastly, the sizing was a bit off for me. I usually wear an 8, but the boot felt 
 Overall, my experience with the Go Girl Boot was positive. It was stylish, comfortable, and offered unique features that I appreciated. Despite the minor sizing issue, it was definitely worth a try for anyone looking for a chic, edgy addition to their winter wardrobe. 
 
 
-### [Dirty Laundry Lisbon Ankle Boot for Women: Chunky Heel, Padded Footbed, and Synthetic Upper](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-lisbon-ankle-boot-for-women-chunky-heel-padded-footbed-and-synthetic-upper)
+### [Dirty Laundry Lisbon Ankle Boot for Women: Chunky Heel, Padded Footbed, and Synthetic Upper](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-lisbon-ankle-boot-for-women-chunky-heel-padded-footbed-and-synthetic-upper)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-lisbon-ankle-boot-for-women-chunky-heel-padded-footbed-and-synthetic-upper"><img alt="dirty-laundry-womens-lisbon-ankle-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-lisbon-ankle-boot-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-lisbon-ankle-boot-for-women-chunky-heel-padded-footbed-and-synthetic-upper"><img alt="dirty-laundry-womens-lisbon-ankle-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-lisbon-ankle-boot-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the perfect combination of style and comfort with Dirty Laundry's Women's Lisbon Ankle Boots. Say goodbye to the struggle of finding the right ankle boot and say hello to a footwear that ticks all the right boxes. The 3-inch chunky heel adds a subtle lift to your natural height, while the padded footbed ensures underfoot support during every step. The synthetic material gives the boot a distinctive look, and the stacked heel lug sole provides an extra layer of durability. 
 
@@ -114,9 +114,9 @@ These versatile boots are made to fit perfectly, with a 5-inch shaft and a 9-inc
 While the Dirty Laundry Lisbon Ankle Boots have received numerous positive reviews and a high rating of 4.7, some users have expressed concerns about the quality and the sizing. However, most find the boots to be a great investment, providing both style and comfort. So, if you're in search of an ankle boot that's both stylish and practical, look no further than Dirty Laundry's Women's Lisbon Ankle Boots. 
 
 
-### [Dirty Laundry Stefan Black Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-stefan-black-boots)
+### [Dirty Laundry Stefan Black Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-stefan-black-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-stefan-black-boots"><img alt="dirty-laundry-stefan-booties-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-stefan-booties-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-stefan-black-boots"><img alt="dirty-laundry-stefan-booties-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-stefan-booties-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into a stylish and comfortable world with the Dirty Laundry Stefan Booties in black. These booties are a fantastic addition to any wardrobe, bringing the perfect blend of modern grunge and chic modern elements. Their patent overlay adds a touch of elegance, while the lace-up front allows for a snug fit. 
 
@@ -129,9 +129,9 @@ In terms of sizing, it's recommended to go up a half size to ensure the perfect 
 Overall, the Dirty Laundry Stefan Booties in black are a great investment for anyone looking for stylish and comfortable footwear. While they may not be completely silent, they more than make up for it with their unique blend of fashion and functionality. 
 
 
-### [Dirty Laundry Boost Josea Western Boot - Natural Size 7.5](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-boost-josea-western-boot-natural-size-7-5)
+### [Dirty Laundry Boost Josea Western Boot - Natural Size 7.5](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-boost-josea-western-boot-natural-size-7-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-boost-josea-western-boot-natural-size-7-5"><img alt="womens-dirty-laundry-josea-western-boot-in-natural-size-7-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-josea-western-boot-in-natural-size-7-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-boost-josea-western-boot-natural-size-7-5"><img alt="womens-dirty-laundry-josea-western-boot-in-natural-size-7-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-josea-western-boot-in-natural-size-7-6/h=540,fit=pad,background=black"/></a></div>
 
 The Women's Dirty Laundry Josea Western Boot is a stylish and comfortable choice for any woman looking to make a statement. With its faux leather upper and western boot style, the pointed toe adds a flattering touch to any outfit. The easy pull-on entry ensures a hassle-free experience, while the padded insole provides comfort throughout the day. 
 
@@ -142,9 +142,9 @@ From dancing the night away at a concert to walking non-stop at a long event, th
 In conclusion, the Women's Dirty Laundry Josea Western Boot is a comfortable, stylish, and practical choice for any woman who wants to embrace her inner cowgirl. With its affordable price and wide range of sizes, it's no wonder these boots have received such positive reviews from satisfied customers. 
 
 
-### [Dirty Laundry Women's Gutsy Boots: Natural 6.5B - Medium](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-womens-gutsy-boots-natural-6-5b-medium)
+### [Dirty Laundry Women's Gutsy Boots: Natural 6.5B - Medium](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-womens-gutsy-boots-natural-6-5b-medium)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-womens-gutsy-boots-natural-6-5b-medium"><img alt="dirty-laundry-gutsy-womens-boots-natural-6-5-b-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-gutsy-womens-boots-natural-6-5-b-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-womens-gutsy-boots-natural-6-5b-medium"><img alt="dirty-laundry-gutsy-womens-boots-natural-6-5-b-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-gutsy-womens-boots-natural-6-5-b-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently invested in a pair of Dirty Laundry Gutsy Women's Boots in Natural White, and let me tell you, these stylish booties are a game-changer. I find myself reaching for them every morning to start my day with a burst of confidence. The natural white color adds a touch of elegance to any outfit, while the rubber lug sole and heel provide the much-needed stability and grip. 
 
@@ -153,27 +153,27 @@ The comfort factor is truly impressive, as the padded insole ensures a snug fit.
 While I absolutely adore these boots, I must admit that for those who prefer a strap or closure system, these might not be their cup of tea. However, if you value comfort and style, then the Dirty Laundry Gutsy Women's Boots Natural just might become your new go-to choice. 
 
 
-### [Dirty Laundry Cream Knee High Boots for Women, Size 11](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-cream-knee-high-boots-for-women-size-11)
+### [Dirty Laundry Cream Knee High Boots for Women, Size 11](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-cream-knee-high-boots-for-women-size-11)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-cream-knee-high-boots-for-women-size-11"><img alt="womens-dirty-laundry-veelo-knee-high-boot-in-cream-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-veelo-knee-high-boot-in-cream-size-12/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-cream-knee-high-boots-for-women-size-11"><img alt="womens-dirty-laundry-veelo-knee-high-boot-in-cream-size-12" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-veelo-knee-high-boot-in-cream-size-12/h=540,fit=pad,background=black"/></a></div>
 
 I've been using these Dirty Laundry Veelo Knee High Boots in Cream Size 11, and they've been a total game-changer in my wardrobe. The stretch detail on the upper makes entry effortless, and it's so nice to slip them on and go without any fuss. I love the round toe and how it adds a bit of flair to a classic boot style. The cushioned insole and soft lining are real winners for comfort. 
 
 One of my favorite things about this boot is its durability - I'm constantly on the go, and the rubber outsole has taken quite the beating, but it still holds up. Unfortunately, it doesn't come in half sizes, which can make it a little tricky for some to find the perfect fit. All in all, I'm a huge fan and think these boots are a fantastic addition to any wardrobe. 
 
 
-### [Dirty Laundry Manifest Knee High Boot - Women's Natural Size 5](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-manifest-knee-high-boot-womens-natural-size-5)
+### [Dirty Laundry Manifest Knee High Boot - Women's Natural Size 5](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-manifest-knee-high-boot-womens-natural-size-5)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-manifest-knee-high-boot-womens-natural-size-5"><img alt="womens-dirty-laundry-manifest-knee-high-boot-in-natural-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-manifest-knee-high-boot-in-natural-size-6/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-manifest-knee-high-boot-womens-natural-size-5"><img alt="womens-dirty-laundry-manifest-knee-high-boot-in-natural-size-6" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-dirty-laundry-manifest-knee-high-boot-in-natural-size-6/h=540,fit=pad,background=black"/></a></div>
 
 I've tried on the Women's Dirty Laundry Manifest Knee High Boot in Natural Size 5 and let me tell you, it's a bit of a disappointment. While the leather material gives a classic look, the shoes run quite big and the rubber sole can feel heavy and bulky. 
 
 I was excited to wear them for a cozy winter outfit, but their weight made them difficult to move and walk in comfortably. The stretchy back panel and half-zip closure are a nice feature, but it's not enough to offset the overall discomfort. Although I appreciate the durable rubber outsole for traction and stability, the experience of wearing these boots hasn't been the best. 
 
 
-### [Dirty Laundry Knee High Combat Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-knee-high-combat-boots)
+### [Dirty Laundry Knee High Combat Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-knee-high-combat-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-knee-high-combat-boots"><img alt="dirty-laundry-roset-knee-high-boots-black-8-5-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-roset-knee-high-boots-black-8-5-m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-knee-high-combat-boots"><img alt="dirty-laundry-roset-knee-high-boots-black-8-5-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-roset-knee-high-boots-black-8-5-m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dirty Laundry Boots by Chinese Laundry is a versatile and trendy addition to your wardrobe. These fashion combat boots offer both comfort and style, making them an appealing choice for urban and street-minded individuals. 
 
@@ -182,9 +182,9 @@ Available in black, they feature a knee-high design with lace-up closure and cap
 Overall, the Dirty Laundry Boots make a fun and practical choice for anyone seeking functional footwear with a fashionable edge. 
 
 
-### [Dirty Laundry Mazzy Black Boots](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-mazzy-black-boots)
+### [Dirty Laundry Mazzy Black Boots](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-mazzy-black-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-mazzy-black-boots"><img alt="dirty-laundry-mazzy-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-mazzy-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-mazzy-black-boots"><img alt="dirty-laundry-mazzy-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-mazzy-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I decided to give Dirty Laundry's Mazzy Black boots a try, and let me tell you, I was not disappointed! These boots are perfect for adding a touch of edgy chic to any outfit. First off, the chunky bottom and ankle-high shaft make a statement without being too over-the-top. And the synthetic sole? It's a game-changer, providing both comfort and durability. 
 
@@ -193,9 +193,9 @@ My favorite part, though, might just be the platform. It adds just the right amo
 However, there was one downside: the laces seemed a bit too long for my liking. But overall, I'm really happy with my purchase. The boots are true to size and very comfortable, making them a great addition to my daily wear. I highly recommend giving them a try! 
 
 
-### [Upbeat Cream Bootie by Dirty Laundry for Size 10 Women](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=upbeat-cream-bootie-by-dirty-laundry-for-size-10-women)
+### [Upbeat Cream Bootie by Dirty Laundry for Size 10 Women](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=upbeat-cream-bootie-by-dirty-laundry-for-size-10-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=upbeat-cream-bootie-by-dirty-laundry-for-size-10-women"><img alt="up-beat-western-bootie-for-women-in-cream-size-10-by-dirty-laundry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/up-beat-western-bootie-for-women-in-cream-size-10-by-dirty-laundry-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=upbeat-cream-bootie-by-dirty-laundry-for-size-10-women"><img alt="up-beat-western-bootie-for-women-in-cream-size-10-by-dirty-laundry-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/up-beat-western-bootie-for-women-in-cream-size-10-by-dirty-laundry-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the versatile Dirty Laundry Boots, a fantastic addition to any woman's wardrobe. This western-inspired bootie boasts a soft, synthetic rubber sole that provides comfort and durability. The ankle-length shaft, featuring a breathable stretch material, ensures a comfortable fit. 
 
@@ -206,18 +206,18 @@ The almond-shaped toe, adorned with metallic detail, adds a touch of elegance. T
 Although some users have found these boots to run small, they have praised the added shine on the toe and heel, making them a great choice for a confident and trendy look. Overall, the Dirty Laundry Boots are a stylish and comfortable choice for any woman looking to make a statement. 
 
 
-### [Dirty Laundry Go Girl Knee High Boot for Women](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-go-girl-knee-high-boot-for-women)
+### [Dirty Laundry Go Girl Knee High Boot for Women](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=dirty-laundry-go-girl-knee-high-boot-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-go-girl-knee-high-boot-for-women"><img alt="dirty-laundry-womens-go-girl-knee-high-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-go-girl-knee-high-boot-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=dirty-laundry-go-girl-knee-high-boot-for-women"><img alt="dirty-laundry-womens-go-girl-knee-high-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-womens-go-girl-knee-high-boot-1/h=540,fit=pad,background=black"/></a></div>
 
 The Dirty Laundry Women's Go Girl Boots are a stylish choice for those who love a bit of edginess. The chunky heel adds an appealing touch, while the inside zip allows for easy on and off. 
 
 The rounded square toe gives these boots a modern look. They're built with a thick platform for added comfort and a synthetic upper and lining for durability. These boots are perfect for those who want a balance between classic and contemporary design. 
 
 
-### [Chinese Laundry Upwind Western-Inspired Boots for Women](https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm\_term=chinese-laundry-upwind-western-inspired-boots-for-women)
+### [Chinese Laundry Upwind Western-Inspired Boots for Women](https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm\_term=chinese-laundry-upwind-western-inspired-boots-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Dirty+Laundry+Boots?utm_term=chinese-laundry-upwind-western-inspired-boots-for-women"><img alt="dirty-laundry-upwind-cowboy-boot-womens-gold-metallic-size-6-5-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-upwind-cowboy-boot-womens-gold-metallic-size-6-5-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Dirty+Laundry+Boots?utm_term=chinese-laundry-upwind-western-inspired-boots-for-women"><img alt="dirty-laundry-upwind-cowboy-boot-womens-gold-metallic-size-6-5-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dirty-laundry-upwind-cowboy-boot-womens-gold-metallic-size-6-5-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Asking my girlfriend to help me with this, we were excited to try out the Dirty Laundry "Upwind" cowboy boots in gold metallic. The first thing we noticed was the western-inspired stitching on the shaft, giving a unique and on-trend look. The side zipper and pull-on tabs also added convenience and ease of wear. 
 

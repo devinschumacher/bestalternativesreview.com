@@ -15,9 +15,9 @@ Looking to transform your garage into a bright, inviting space? Look no further 
 ## Reviews
 
 
-### [Feit Electric 4-Light Motion Garage Shop LED Light Pack](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=feit-electric-4-light-motion-garage-shop-led-light-pack)
+### [Feit Electric 4-Light Motion Garage Shop LED Light Pack](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=feit-electric-4-light-motion-garage-shop-led-light-pack)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=feit-electric-4-light-motion-garage-shop-led-light-pack"><img alt="feit-electric-2-ft-23-2-in-55-watt-equivalent-integrated-led-black-gray-4-light-motion-garage-shop-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-2-ft-23-2-in-55-watt-equivalent-integrated-led-black-gray-4-light-motion-garage-shop-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=feit-electric-4-light-motion-garage-shop-led-light-pack"><img alt="feit-electric-2-ft-23-2-in-55-watt-equivalent-integrated-led-black-gray-4-light-motion-garage-shop-l-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feit-electric-2-ft-23-2-in-55-watt-equivalent-integrated-led-black-gray-4-light-motion-garage-shop-l-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer who tested these Feit Electric 2 ft. LED garage lights, I must say they've become my go-to choice for my workspace. The cool white light they emit is incredibly vibrant, making the environment appear bright and clean. I appreciate the ultra-lightweight design, making installation a breeze. I could either hang or mount them without any trouble. The included 5 ft. plug-in cord and two 6 in. hanging wire harnesses ensured a smooth setup process. 
 
@@ -26,27 +26,27 @@ One of my favorite features was the built-in motion sensor that conserves energy
 However, one downside was the humming noise produced by the lights. While not extremely loud, it did make my workspace less peaceful than I would've liked. But overall, I'm satisfied with the product and its performance. 
 
 
-### [Dansny LED Garage Lights: Bright and Adjustable 12000 Lumens Shop Lights for Garage Storage](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=dansny-led-garage-lights-bright-and-adjustable-12000-lumens-shop-lights-for-garage-storage)
+### [Dansny LED Garage Lights: Bright and Adjustable 12000 Lumens Shop Lights for Garage Storage](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=dansny-led-garage-lights-bright-and-adjustable-12000-lumens-shop-lights-for-garage-storage)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=dansny-led-garage-lights-bright-and-adjustable-12000-lumens-shop-lights-for-garage-storage"><img alt="dansny-led-garage-lights-80w-deformable-led-garage-ceiling-lights-12000-lumens-led-shop-lights-for-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dansny-led-garage-lights-80w-deformable-led-garage-ceiling-lights-12000-lumens-led-shop-lights-for-g-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=dansny-led-garage-lights-bright-and-adjustable-12000-lumens-shop-lights-for-garage-storage"><img alt="dansny-led-garage-lights-80w-deformable-led-garage-ceiling-lights-12000-lumens-led-shop-lights-for-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dansny-led-garage-lights-80w-deformable-led-garage-ceiling-lights-12000-lumens-led-shop-lights-for-g-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the chance to try out the Dansny LED Garage Lights, and I must say, they're a game-changer for my garage! The deformable design allowed me to adjust the lighting to exactly where I needed it, and the energy-saving LED light source kept my electricity bill in check. Plus, no flickering meant a brighter, more consistent light. 
 
 One slight downside was the installation process. Although advertised as easy and requiring no wiring, I found it a bit more complicated than anticipated. But I'll definitely keep these lights in mind for future projects, as they're environmentally friendly and offer a great value for the price. 
 
 
-### [DONHUCHEP Deformable LED Garage Ceiling Lights with 5 Adjustable Panels](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=donhuchep-deformable-led-garage-ceiling-lights-with-5-adjustable-panels)
+### [DONHUCHEP Deformable LED Garage Ceiling Lights with 5 Adjustable Panels](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=donhuchep-deformable-led-garage-ceiling-lights-with-5-adjustable-panels)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=donhuchep-deformable-led-garage-ceiling-lights-with-5-adjustable-panels"><img alt="donhuchep-garage-lights-120w-deformable-led-garage-ceiling-lights-with-5-adjustable-panels12000lm-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/donhuchep-garage-lights-120w-deformable-led-garage-ceiling-lights-with-5-adjustable-panels12000lm-le-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=donhuchep-deformable-led-garage-ceiling-lights-with-5-adjustable-panels"><img alt="donhuchep-garage-lights-120w-deformable-led-garage-ceiling-lights-with-5-adjustable-panels12000lm-le-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/donhuchep-garage-lights-120w-deformable-led-garage-ceiling-lights-with-5-adjustable-panels12000lm-le-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Donhuchep Garage Lights in my workshop for a few weeks now, and I must say, they've been a game-changer. These LED lights are incredibly bright, providing me with 12000LM, which is perfect for my garage. The best part is their adjustable feature – I can easily modify the light source to suit my needs. 
 
 However, I have to mention that I noticed a slight concern – the product has a warning label stating it may contain chemicals known to cause cancer by the State of California. Apart from that, these lights are a fantastic addition to any garage or workshop. 
 
 
-### [FAITHSAIL 8ft LED Garage Shop Light](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=faithsail-8ft-led-garage-shop-light)
+### [FAITHSAIL 8ft LED Garage Shop Light](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=faithsail-8ft-led-garage-shop-light)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=faithsail-8ft-led-garage-shop-light"><img alt="faithsail-linkable-8ft-led-shop-light-110w-12000-lumen-5000k-8-foot-led-fixture-for-garage-warehouse-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faithsail-linkable-8ft-led-shop-light-110w-12000-lumen-5000k-8-foot-led-fixture-for-garage-warehouse-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=faithsail-8ft-led-garage-shop-light"><img alt="faithsail-linkable-8ft-led-shop-light-110w-12000-lumen-5000k-8-foot-led-fixture-for-garage-warehouse-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/faithsail-linkable-8ft-led-shop-light-110w-12000-lumen-5000k-8-foot-led-fixture-for-garage-warehouse-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's always on the lookout for a reliable, energy-efficient lighting solution, I was intrigued by the FAITHSAIL Linkable 8ft LED Shop Light. I've been using it in my garage for a few weeks now, and I must say, it has exceeded my expectations in terms of brightness and ease of installation. 
 
@@ -61,9 +61,9 @@ Lastly, the safety and service aspect is in line with what any high-quality prod
 Overall, the FAITHSAIL Linkable 8ft LED Shop Light has proven to be a great investment for my garage. Its energy efficiency, versatility, and robust design make it a top contender for anyone in search of a dependable, all-around light fixture. 
 
 
-### [Brighten Your Workspace: 6 Packs LED Shop Lights for Garage](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=brighten-your-workspace-6-packs-led-shop-lights-for-garage)
+### [Brighten Your Workspace: 6 Packs LED Shop Lights for Garage](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=brighten-your-workspace-6-packs-led-shop-lights-for-garage)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=brighten-your-workspace-6-packs-led-shop-lights-for-garage"><img alt="szhlux-6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-ceiling-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/szhlux-6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-ceiling-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=brighten-your-workspace-6-packs-led-shop-lights-for-garage"><img alt="szhlux-6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-ceiling-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/szhlux-6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-ceiling-1/h=540,fit=pad,background=black"/></a></div>
 
 These SZHLUX LED shop lights are a smart choice for illuminating your garage, basement, or any other indoor area. The trapezoid shape ensures a larger luminous area compared to T5 and T8 LED plant lights, making them perfect for these spaces. They're easy to install thanks to the plug-and-play feature, and you can even connect up to four lights together. 
 
@@ -72,18 +72,18 @@ The 5000K daylight white makes for a superior lighting experience, and with no t
 These SZHLUX LED shop lights, a fantastic option for indoor use, will quickly become your go-to light source. 
 
 
-### [Deformable LED Garage Ceiling Lights by GHUSTAR - 6500K 6000LM Brightness](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=deformable-led-garage-ceiling-lights-by-ghustar-6500k-6000lm-brightness)
+### [Deformable LED Garage Ceiling Lights by GHUSTAR - 6500K 6000LM Brightness](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=deformable-led-garage-ceiling-lights-by-ghustar-6500k-6000lm-brightness)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=deformable-led-garage-ceiling-lights-by-ghustar-6500k-6000lm-brightness"><img alt="ghustar-2-pack-led-garage-light-60w-garage-lighting-6000lm-6500k-led-deformable-garage-ceiling-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ghustar-2-pack-led-garage-light-60w-garage-lighting-6000lm-6500k-led-deformable-garage-ceiling-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=deformable-led-garage-ceiling-lights-by-ghustar-6500k-6000lm-brightness"><img alt="ghustar-2-pack-led-garage-light-60w-garage-lighting-6000lm-6500k-led-deformable-garage-ceiling-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ghustar-2-pack-led-garage-light-60w-garage-lighting-6000lm-6500k-led-deformable-garage-ceiling-light-1/h=540,fit=pad,background=black"/></a></div>
 
 The GHUSTAR 2-Pack LED Garage Light serves as an outstanding complement to any garage, offering an impressive ensemble of robustness and security. The illumination provided by its world-class LED technology is nothing short of stunning, offering a brilliantly bright and clear lighting experience. It boasts an impressive trio of adjustable LED light panels, delivering a whopping 6000 lumens and a daylight brightness of 6500K. The humanized adjustable design grants a distinctive wide-angle garage illumination, ensuring impeccable distribution of light for your specific garage application.
 
 Crafted from a premium, safe PC housing, these premium garage lights are both high-temperature and corrosion resistant, guaranteeing a long-lived performance. The stable and resilient structure of the GHUSTAR 2-Pack LED Garage Light ensures the light stays cool even after prolonged use, making it a safer and more comfortable option. This LED garage light is perfect for a plethora of settings, including garages, basements, storage rooms, and gym spaces. It features a non-detachable fixture and a corded electric power supply, promising dependable and enduring operation. Make an investment in these top-notch LED garage lights and indulge in the perks of a well-lit space for all your garage requirements.
 
 
-### [Hyper Tough 3200 Lumen LED Shop Light for Garages](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=hyper-tough-3200-lumen-led-shop-light-for-garages)
+### [Hyper Tough 3200 Lumen LED Shop Light for Garages](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=hyper-tough-3200-lumen-led-shop-light-for-garages)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=hyper-tough-3200-lumen-led-shop-light-for-garages"><img alt="hyper-tough-4ft-slim-led-shop-light-3200lm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hyper-tough-4ft-slim-led-shop-light-3200lm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=hyper-tough-3200-lumen-led-shop-light-for-garages"><img alt="hyper-tough-4ft-slim-led-shop-light-3200lm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hyper-tough-4ft-slim-led-shop-light-3200lm-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hyper Tough LED Shop Light is a slender, versatile lighting solution perfect for any space that needs an extra boost of brightness. Featuring a sleek white finish that seamlessly blends into any decor, this 4ft light fixture is suitable for both residential and commercial use, and can be easily mounted flush to the surface for a streamlined appearance. 
 
@@ -92,27 +92,27 @@ With only 32 watts of energy consumption, this compact light produces an impress
 The on/off power is controlled by a 6-inch pull chain, eliminating the need for hardwiring. Although some users have reported difficulties with linking the lights together, most are satisfied with the lightweight and bright nature of this LED shop light. 
 
 
-### [AntLux 4FT LED Wraparound Garage Shop Lights](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=antlux-4ft-led-wraparound-garage-shop-lights)
+### [AntLux 4FT LED Wraparound Garage Shop Lights](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=antlux-4ft-led-wraparound-garage-shop-lights)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=antlux-4ft-led-wraparound-garage-shop-lights"><img alt="antlux-4ft-led-wraparound-light-40w-led-garage-shop-lights-40w-4400lm-4000k-4-foot-wrap-around-fixtu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antlux-4ft-led-wraparound-light-40w-led-garage-shop-lights-40w-4400lm-4000k-4-foot-wrap-around-fixtu-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=antlux-4ft-led-wraparound-garage-shop-lights"><img alt="antlux-4ft-led-wraparound-light-40w-led-garage-shop-lights-40w-4400lm-4000k-4-foot-wrap-around-fixtu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/antlux-4ft-led-wraparound-light-40w-led-garage-shop-lights-40w-4400lm-4000k-4-foot-wrap-around-fixtu-1/h=540,fit=pad,background=black"/></a></div>
 
 The AntLux 4ft LED Wraparound Light is a versatile and energy-saving solution for transforming your garage, shop, or workspace into a well-lit area. With a brightness of 4400 lumens and 4000 Kelvin color temperature, it provides an efficient and cost-effective lighting option for both residential and commercial applications. Its powder-coated finish adds a stylish touch, while the acrylic shade with clear diffuser ensures a clear and uniform light distribution. 
 
 The 48-inch linear strip flush mount design ensures easy installation, and with a wattage of 40 watts, it's a perfect energy-saving alternative to traditional lighting sources. However, some users have reported issues with the plug-in connection and linkability of the lights, making it a bit challenging to set up in some cases. Nevertheless, the positive reviews highlight the brightness, energy savings, and stylish design, making it a worthy consideration for your lighting needs. 
 
 
-### [Hykolity 2-Pack 4ft Linkable LED Shop Lights for Garage](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=hykolity-2-pack-4ft-linkable-led-shop-lights-for-garage)
+### [Hykolity 2-Pack 4ft Linkable LED Shop Lights for Garage](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=hykolity-2-pack-4ft-linkable-led-shop-lights-for-garage)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=hykolity-2-pack-4ft-linkable-led-shop-lights-for-garage"><img alt="hykolity-2-pack-4ft-linkable-led-shop-light-for-garage-4400lm-4ft-42w-utility-light-fixture-5000k-da-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hykolity-2-pack-4ft-linkable-led-shop-light-for-garage-4400lm-4ft-42w-utility-light-fixture-5000k-da-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=hykolity-2-pack-4ft-linkable-led-shop-lights-for-garage"><img alt="hykolity-2-pack-4ft-linkable-led-shop-light-for-garage-4400lm-4ft-42w-utility-light-fixture-5000k-da-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hykolity-2-pack-4ft-linkable-led-shop-light-for-garage-4400lm-4ft-42w-utility-light-fixture-5000k-da-1/h=540,fit=pad,background=black"/></a></div>
 
 Hykolity's Bay Lighting is a practical choice for your LED needs. The 4400 lumen light emits brightness on par with premium LEDs using just 42 watts of energy. 
 
 It's not only durable and maintenance-free, but it also boasts a convenient plug and hang design for easy installation. Just one look and you'll notice the sturdy fixture is perfect for your shop or garage. Users praise its brightness, easy setup, and overall value, making it a smart choice for those looking for efficiency and reliability. 
 
 
-### [Powerful 3 panel LED Garage Light - 6000 lumen, 50w, easy installation](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=powerful-3-panel-led-garage-light-6000-lumen-50w-easy-installation)
+### [Powerful 3 panel LED Garage Light - 6000 lumen, 50w, easy installation](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=powerful-3-panel-led-garage-light-6000-lumen-50w-easy-installation)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=powerful-3-panel-led-garage-light-6000-lumen-50w-easy-installation"><img alt="pinegreen-lighting-6000-lumen-led-3-panel-garage-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pinegreen-lighting-6000-lumen-led-3-panel-garage-bulb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=powerful-3-panel-led-garage-light-6000-lumen-50w-easy-installation"><img alt="pinegreen-lighting-6000-lumen-led-3-panel-garage-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pinegreen-lighting-6000-lumen-led-3-panel-garage-bulb-1/h=540,fit=pad,background=black"/></a></div>
 
 The Pinegreen Lighting LED Garage Folding Bulb provides maximum illumination for small garages, rooms, or any area that needs more light. With an easy installation process, it comes with an E26 (medium) base for seamless fitting. The energy-efficient LED technology puts out an ultrabright 6000 Lumens using just 50 Watts, equivalent to 350 incandescent watts, offering a bright and versatile lighting solution. The bulb's average life expectancy is 30,000 Hours, making it a reliable and long-lasting choice for various lighting scenarios. 
 
@@ -123,9 +123,9 @@ As per the provided user reviews, the LED folding panel light is praised for its
 Some users have mentioned potential drawbacks, such as the bulb's lack of compatibility with ballast-equipped fixtures or its tendency to generate heat. However, these issues seem minor compared to the overall positive reception the product has received, making it a great choice for those in need of a reliable and versatile lighting solution for their garage or workshop. 
 
 
-### [Pinegreen 4-Panel Garage Light: 15000 Lumen LED Brightness](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=pinegreen-4-panel-garage-light-15000-lumen-led-brightness)
+### [Pinegreen 4-Panel Garage Light: 15000 Lumen LED Brightness](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=pinegreen-4-panel-garage-light-15000-lumen-led-brightness)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=pinegreen-4-panel-garage-light-15000-lumen-led-brightness"><img alt="pinegreen-lighting-15000-lumen-led-4-panel-garage-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pinegreen-lighting-15000-lumen-led-4-panel-garage-bulb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=pinegreen-4-panel-garage-light-15000-lumen-led-brightness"><img alt="pinegreen-lighting-15000-lumen-led-4-panel-garage-bulb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pinegreen-lighting-15000-lumen-led-4-panel-garage-bulb-1/h=540,fit=pad,background=black"/></a></div>
 
 When I heard about the Pinegreen Lighting 15000 Lumen LED 4-Panel Garage Bulb, I decided to give it a try in my workshop. The bulb itself was quite heavy, and I was initially taken aback by its weight. I found the sturdiness of the bulb impressive, and it seemed quite durable. 
 
@@ -138,27 +138,27 @@ While the bulb was bright, it did produce a fair amount of heat, and I had to be
 All in all, I'm quite pleased with the Pinegreen Lighting 15000 Lumen LED 4-Panel Garage Bulb. Its sturdiness, ease of use, and adjustable light panels make it a great choice for workshops and other areas that require a brighter light source. 
 
 
-### [Barrina LED Shop Light: 2ft, 20W, Clear Cover, Plug & Play Garage Lights](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=barrina-led-shop-light-2ft-20w-clear-cover-plug-play-garage-lights)
+### [Barrina LED Shop Light: 2ft, 20W, Clear Cover, Plug & Play Garage Lights](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=barrina-led-shop-light-2ft-20w-clear-cover-plug-play-garage-lights)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=barrina-led-shop-light-2ft-20w-clear-cover-plug-play-garage-lights"><img alt="barrina-led-shop-light-2ft-20w-2500lm-5000k-t8-led-light-fixture-clear-cover-ceiling-and-utility-sho-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/barrina-led-shop-light-2ft-20w-2500lm-5000k-t8-led-light-fixture-clear-cover-ceiling-and-utility-sho-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=barrina-led-shop-light-2ft-20w-clear-cover-plug-play-garage-lights"><img alt="barrina-led-shop-light-2ft-20w-2500lm-5000k-t8-led-light-fixture-clear-cover-ceiling-and-utility-sho-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/barrina-led-shop-light-2ft-20w-2500lm-5000k-t8-led-light-fixture-clear-cover-ceiling-and-utility-sho-1/h=540,fit=pad,background=black"/></a></div>
 
 Say hello to the Barrina LED Shop Light - a versatile and powerful addition to any garage or workshop. Say goodbye to those shadowy corners that make it difficult to see what you're working on. 
 
 Installing this LED light is a breeze with its plug-and-play feature, and the inclusion of snap joints makes hanging it a cinch. With 20 watts, 2500 lumens, and a color temperature of 5000K, you can count on these lights to provide ample illumination for even the largest tasks. And, with its clear cover and linkable tube lights, the Barrina LED Shop Light is sure to be a valuable asset in any utility shop. 
 
 
-### [Karjoefar LED Barn Light: Dusk to Dawn Outdoor Security Flood Lights for Garage Yard](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=karjoefar-led-barn-light-dusk-to-dawn-outdoor-security-flood-lights-for-garage-yard)
+### [Karjoefar LED Barn Light: Dusk to Dawn Outdoor Security Flood Lights for Garage Yard](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=karjoefar-led-barn-light-dusk-to-dawn-outdoor-security-flood-lights-for-garage-yard)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=karjoefar-led-barn-light-dusk-to-dawn-outdoor-security-flood-lights-for-garage-yard"><img alt="karjoefar-led-barn-light-dusk-to-dawn-outdoor-lighting-with-100w-10000lm-5000k-daylight-ip65-waterpr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/karjoefar-led-barn-light-dusk-to-dawn-outdoor-lighting-with-100w-10000lm-5000k-daylight-ip65-waterpr-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=karjoefar-led-barn-light-dusk-to-dawn-outdoor-security-flood-lights-for-garage-yard"><img alt="karjoefar-led-barn-light-dusk-to-dawn-outdoor-lighting-with-100w-10000lm-5000k-daylight-ip65-waterpr-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/karjoefar-led-barn-light-dusk-to-dawn-outdoor-lighting-with-100w-10000lm-5000k-daylight-ip65-waterpr-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the convenience of a dusk-to-dawn lighting solution with Karjoefar's LED barn light. This innovative light turns on automatically at night and shuts off during the day, offering seamless, energy-efficient illumination. Its 5000K daylight hue ensures superior performance, while delivering a powerful 100W and 10000LM brightness output. The energy-efficient AC100-120V input and impressive 50,000-hour lifespan make it an affordable, cost-effective option for any lighting needs.
 
 Constructed from durable aluminum alloy, this light is both reliable and waterproof, meeting the highest safety standards. Its straightforward installation process allows for wall mounting and provides coverage for an expansive area of up to 82ft x 82ft, making it the perfect choice for various lighting purposes such as perimeter, yard, street, area, and security lighting.
 
 
-### [Cedar Hill Linkable Shop Lights for Garage](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=cedar-hill-linkable-shop-lights-for-garage)
+### [Cedar Hill Linkable Shop Lights for Garage](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=cedar-hill-linkable-shop-lights-for-garage)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=cedar-hill-linkable-shop-lights-for-garage"><img alt="cedar-hill-4ft-40-watt-integrated-led-linkable-shop-light-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cedar-hill-4ft-40-watt-integrated-led-linkable-shop-light-4-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=cedar-hill-linkable-shop-lights-for-garage"><img alt="cedar-hill-4ft-40-watt-integrated-led-linkable-shop-light-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cedar-hill-4ft-40-watt-integrated-led-linkable-shop-light-4-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 It's been a while since I've tried to illuminate my garage with some reliable, long-lasting lights. Luckily, the Cedar Hill 4ft 40-Watt Integrated LED Linkable Shop Light 4 Pack came to my rescue. Not only did it deliver on brightness and energy consumption, but it also made installation incredibly easy! 
 
@@ -171,9 +171,9 @@ I did encounter a couple of hiccups with the setup. Firstly, the lights aren't d
 Overall, the Cedar Hill 4ft 40-Watt Integrated LED Linkable Shop Light 4 Pack is the perfect solution for anyone in need of high-quality, energy-efficient lighting for their garage or workspace. 
 
 
-### [Super Bright Linked 4ft Shop Light for Garage and Basements](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=super-bright-linked-4ft-shop-light-for-garage-and-basements)
+### [Super Bright Linked 4ft Shop Light for Garage and Basements](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=super-bright-linked-4ft-shop-light-for-garage-and-basements)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=super-bright-linked-4ft-shop-light-for-garage-and-basements"><img alt="6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-hanging-mounte-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-hanging-mounte-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=super-bright-linked-4ft-shop-light-for-garage-and-basements"><img alt="6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-hanging-mounte-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/6-pack-led-shop-light-4ft-60w-8700lm-linkable-utility-shop-light-5000k-daylight-white-hanging-mounte-1/h=540,fit=pad,background=black"/></a></div>
 
 The 6 Pack LED Shop Light is an excellent choice for brightening up your garage or work area. Its trapezoid-shape design provides a larger luminous area compared to other LED plant lights, allowing it to work flawlessly in various settings. The hanging or ceiling installation options offer versatility, and the included 59" power cord and on/off switch make it easy to set up. 
 
@@ -182,9 +182,9 @@ One standout feature is the linkable design, allowing users to connect up to 4 l
 The 6 Pack LED Shop Light also boasts high-quality materials, with 192 pieces of LEDs and aluminum housing, providing excellent heat dissipation and ensuring a long lifespan. Overall, this versatile and efficient light is a great choice for your indoor lighting needs. 
 
 
-### [Cedar Hill 420402 4 ft. 250-Watt Equivalent Integrated LED Shop Light](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-shop-light)
+### [Cedar Hill 420402 4 ft. 250-Watt Equivalent Integrated LED Shop Light](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-shop-light)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-shop-light"><img alt="cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-linkable-pattern-diamond-plate-silver-shop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-linkable-pattern-diamond-plate-silver-shop-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-shop-light"><img alt="cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-linkable-pattern-diamond-plate-silver-shop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cedar-hill-420402-4-ft-250-watt-equivalent-integrated-led-linkable-pattern-diamond-plate-silver-shop-1/h=540,fit=pad,background=black"/></a></div>
 
 This 4-foot Cedar Hill Pattern Diamond Plate Silver Shop Light boasts an impressive 250-watt equivalent integrated LED, providing up to 50,000 hours of energy-saving and high-efficiency lighting. Its plug-and-play design ensures effortless installation, while the choice between suspended or embedded installation adds flexibility to your lighting needs. 
 
@@ -195,9 +195,9 @@ Despite being made of aluminum, this lightweight lighting fixture comes bundled 
 Overall, the Cedar Hill Pattern Diamond Plate Silver Shop Light is a practical and stylish solution for anyone in need of bright, efficient, and easily-installed lighting for their professional workspace. 
 
 
-### [Commercial Grade High Bay LED Construction Light](https://serp.ly/@outrun/amazon/Garage+Lights?utm\_term=commercial-grade-high-bay-led-construction-light)
+### [Commercial Grade High Bay LED Construction Light](https://serp.ly/@bar/amazon/Garage+Lights?utm\_term=commercial-grade-high-bay-led-construction-light)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Garage+Lights?utm_term=commercial-grade-high-bay-led-construction-light"><img alt="lightdot-100w-led-high-bay-light-for-shop-garage-barn-5000k-14000lm-super-bright-high-bay-led-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lightdot-100w-led-high-bay-light-for-shop-garage-barn-5000k-14000lm-super-bright-high-bay-led-lights-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Garage+Lights?utm_term=commercial-grade-high-bay-led-construction-light"><img alt="lightdot-100w-led-high-bay-light-for-shop-garage-barn-5000k-14000lm-super-bright-high-bay-led-lights-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lightdot-100w-led-high-bay-light-for-shop-garage-barn-5000k-14000lm-super-bright-high-bay-led-lights-1/h=540,fit=pad,background=black"/></a></div>
 
 I've had the chance to use the Lightdot 100W LED High Bay Light for a few weeks now, and I have to say, it's been a game-changer in my workspace. The brightness is incredible, providing 14,000 lumens of light, which is perfect for my garage where I like to tinker with various projects. 
 
@@ -215,7 +215,7 @@ Welcome to our comprehensive buyer's guide for garage lights. In this section, w
 
 When choosing garage lights, consider the color and brightness of the bulbs. Most garage lights come with either halogen, LED, or fluorescent bulbs. LED bulbs are generally considered the best option due to their energy efficiency, long lifespan, and relatively low maintenance. Fluorescent bulbs are another good choice as they provide good brightness levels and are more cost-effective than LED options. However, they need frequent replacement and may require special disposal. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-2/h=540,fit=pad,background=black" alt="Garage-Lights-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-2/h=540,fit=pad,background=black" alt="Garage-Lights-2" height="540"></a></div>
 
 
 ### Wattage and Lumen Output
@@ -227,7 +227,7 @@ Two essential factors that determine the brightness of garage lights are wattage
 
 Garage lights come in various installation types, including recessed, surface, and pendant lights. Recessed lights are installed within the ceiling, providing a flush finish and eliminating any chance of getting knocked. Surface-mounted lights are attached directly to the ceiling using brackets, allowing easy installation and replacement of bulbs. Pendant lights hang from the ceiling, offering both style and functionality. Depending on your garage's structure and design, choose the type of mounting that best fits your needs and preference. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-3/h=540,fit=pad,background=black" alt="Garage-Lights-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-3/h=540,fit=pad,background=black" alt="Garage-Lights-3" height="540"></a></div>
 
 
 ### Durability and Weather Resistance
@@ -237,7 +237,7 @@ Garage lights are installed in an environment that often includes moisture, dust
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-4/h=540,fit=pad,background=black" alt="Garage-Lights-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-4/h=540,fit=pad,background=black" alt="Garage-Lights-4" height="540"></a></div>
 
 
 ### What are garage lights?
@@ -253,7 +253,7 @@ Garage lights serve multiple purposes that make them a valuable addition to any 
 
 Secondly, garage lights can enhance safety by allowing you to see potential hazards or obstacles more clearly. This is particularly important when working with power tools or heavy machinery, as well as when navigating your garage during nighttime hours or poor weather conditions. Additionally, garage lights can help you locate items more easily, reducing the chances of accidents or injury. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-5/h=540,fit=pad,background=black" alt="Garage-Lights-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-5/h=540,fit=pad,background=black" alt="Garage-Lights-5" height="540"></a></div>
 
 
 ### What are the benefits of upgrading to garage lights?
@@ -269,7 +269,7 @@ Choosing the right garage lights depends on several factors, including the size 
 
 Next, think about the type of bulbs you prefer, such as LED, fluorescent, or HID. Each has its own advantages and disadvantages, including energy efficiency, color temperature, and lifespan. You should also consider additional features like adjustable brightness, motion sensors, and dimmers. This can help you create the perfect lighting setting for your specific needs. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-6/h=540,fit=pad,background=black" alt="Garage-Lights-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Garage+Lights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Garage-Lights-6/h=540,fit=pad,background=black" alt="Garage-Lights-6" height="540"></a></div>
 
 
 ### What is the average cost of garage lights?

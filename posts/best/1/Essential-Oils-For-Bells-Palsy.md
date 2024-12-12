@@ -15,9 +15,9 @@ Welcome to our Essential Oils For Bells Palsy roundup article! Bells Palsy is a 
 ## Reviews
 
 
-### [Organic Eucalyptus Globulus Essential Oil for Lung Support](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-eucalyptus-globulus-essential-oil-for-lung-support)
+### [Organic Eucalyptus Globulus Essential Oil for Lung Support](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-eucalyptus-globulus-essential-oil-for-lung-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-eucalyptus-globulus-essential-oil-for-lung-support"><img alt="plant-therapy-eucalyptus-globulus-organic-essential-oil-100-pure-usda-certified-organic-undiluted-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-eucalyptus-globulus-organic-essential-oil-100-pure-usda-certified-organic-undiluted-10-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-eucalyptus-globulus-essential-oil-for-lung-support"><img alt="plant-therapy-eucalyptus-globulus-organic-essential-oil-100-pure-usda-certified-organic-undiluted-10-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-eucalyptus-globulus-organic-essential-oil-100-pure-usda-certified-organic-undiluted-10-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently started using the Eucalyptus Globulus Organic Essential Oil from Plant Therapy, and I must say, it's amazing! I've been dealing with some respiratory issues and was looking for a natural remedy to help clear my sinuses. Eucalyptus Globulus has been known to support respiratory problems and help with inflammation. I love that this oil is 100% pure and undiluted, and it's USDA certified organic, so I know it's safe and of high quality. 
 
@@ -28,9 +28,9 @@ What I also appreciate is that it's not just for respiratory support. I've been 
 Overall, the Eucalyptus Globulus Organic Essential Oil from Plant Therapy is a must-have for anyone looking for a natural, organic remedy for their respiratory and muscular issues. The strong, minty scent might take some getting used to, but once you do, it becomes a delightful addition to your essential oil collection. 
 
 
-### [Calming Lavender Essential Oil Roll-On for Sleep and Skin](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=calming-lavender-essential-oil-roll-on-for-sleep-and-skin)
+### [Calming Lavender Essential Oil Roll-On for Sleep and Skin](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=calming-lavender-essential-oil-roll-on-for-sleep-and-skin)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=calming-lavender-essential-oil-roll-on-for-sleep-and-skin"><img alt="lavender-essential-oil-roll-on-calming-lavender-oil-essential-oil-roll-on-encourage-calmness-relaxat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lavender-essential-oil-roll-on-calming-lavender-oil-essential-oil-roll-on-encourage-calmness-relaxat-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=calming-lavender-essential-oil-roll-on-for-sleep-and-skin"><img alt="lavender-essential-oil-roll-on-calming-lavender-oil-essential-oil-roll-on-encourage-calmness-relaxat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lavender-essential-oil-roll-on-calming-lavender-oil-essential-oil-roll-on-encourage-calmness-relaxat-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the calming effects of this Lavender Essential Oil Roll-On. Its natural formula, crafted from lavender flowers, brings you closer to nature, offering a soothing blend for your senses. 
 
@@ -39,9 +39,9 @@ The quick and easy application allows you to glide the roller effortlessly over 
 Made with 100% natural and pure lavender essential oil, this roll-on is non-GMO and cruelty-free, blended and packaged in the USA. It is diluted with grapeseed oil for safe topical use. 
 
 
-### [Organic Laurel Leaf Essential Oil for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-laurel-leaf-essential-oil-for-bells-palsy-relief)
+### [Organic Laurel Leaf Essential Oil for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-laurel-leaf-essential-oil-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-laurel-leaf-essential-oil-for-bells-palsy-relief"><img alt="30ml-organic-laurel-leaf-essential-oil-100-pure-usda-certified-organic-essential-oil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30ml-organic-laurel-leaf-essential-oil-100-pure-usda-certified-organic-essential-oil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-laurel-leaf-essential-oil-for-bells-palsy-relief"><img alt="30ml-organic-laurel-leaf-essential-oil-100-pure-usda-certified-organic-essential-oil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/30ml-organic-laurel-leaf-essential-oil-100-pure-usda-certified-organic-essential-oil-1/h=540,fit=pad,background=black"/></a></div>
 
 Mayan's Secret's outstanding 30ml Organic Laurel Leaf Essential Oil stands out for its exceptional USDA certified organic quality and its concentration that guarantees unmatched potency. The oil offers a range of benefits, including being an excellent addition to your daily routines and versatile uses from diffusers to body oils, even for all-natural cleaners. 
 
@@ -50,9 +50,9 @@ Its bright, spicy, and sweet scent of laurel leaf brings a refreshing and invigo
 It's known for its bright, spicy, sweet scent, which uplifts senses, promotes confidence, and courage, and can also help with feelings of distress and sadness. This organic essential oil is perfect for Bells Palsy. 
 
 
-### [Le Believe Essential Oil Blend for Bells Palsy](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=le-believe-essential-oil-blend-for-bells-palsy)
+### [Le Believe Essential Oil Blend for Bells Palsy](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=le-believe-essential-oil-blend-for-bells-palsy)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=le-believe-essential-oil-blend-for-bells-palsy"><img alt="le-believe-essential-oil-blend-10ml-100-pure-by-butterfly-express-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-believe-essential-oil-blend-10ml-100-pure-by-butterfly-express-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=le-believe-essential-oil-blend-for-bells-palsy"><img alt="le-believe-essential-oil-blend-10ml-100-pure-by-butterfly-express-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/le-believe-essential-oil-blend-10ml-100-pure-by-butterfly-express-1/h=540,fit=pad,background=black"/></a></div>
 
 The Le Believe Essential Oil Blend by Butterfly Express is a top-quality product with a perfect 4.9-star rating. This 100% pure, uncut, and full-strength essential oil blend contains no fillers or fake additives, ensuring the highest quality aromatherapy experience. The blend includes Copaiba Balsam, Frankincense, Palmarosa, Rose, Rosewood, Vanilla, and Ylang Ylang essential oils, all sourced to create an exceptional aroma. 
 
@@ -61,9 +61,9 @@ Users appreciate the real, genuine feel of this oil, which is not diluted by oth
 With the option of purchasing a 10ml bottle, it is an amazing addition to any home or aromatherapy practice. 
 
 
-### [Organic Palo Santo Essential Oil for Bells Palsy - USDA Certified, 100% Pure, Therapeutic Grade](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-palo-santo-essential-oil-for-bells-palsy-usda-certified-100-pure-therapeutic-grade)
+### [Organic Palo Santo Essential Oil for Bells Palsy - USDA Certified, 100% Pure, Therapeutic Grade](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-palo-santo-essential-oil-for-bells-palsy-usda-certified-100-pure-therapeutic-grade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-palo-santo-essential-oil-for-bells-palsy-usda-certified-100-pure-therapeutic-grade"><img alt="aromis-aromatherapy-aromis-organic-palo-santo-essential-oil-usda-cetified-100-pure-therapeutic-grade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aromis-aromatherapy-aromis-organic-palo-santo-essential-oil-usda-cetified-100-pure-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-palo-santo-essential-oil-for-bells-palsy-usda-certified-100-pure-therapeutic-grade"><img alt="aromis-aromatherapy-aromis-organic-palo-santo-essential-oil-usda-cetified-100-pure-therapeutic-grade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aromis-aromatherapy-aromis-organic-palo-santo-essential-oil-usda-cetified-100-pure-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
 
 Welcome to the delightful world of Aromis Organic Palo Santo Essential Oil! This little gem is filled with a rich, natural woody aroma that will transport you to the mystical lands of South America. The essence is carefully steam-distilled from the heartwood of Bursera graveolens, a tree held sacred by indigenous Latin American cultures for centuries. They have used this revered wood in traditional healing and spiritual ceremonies, which is now distilled and bottled so that you can experience its therapeutic benefits too. 
 
@@ -74,9 +74,9 @@ Now, onto the reviews - they're positive overall! Users have expressed their del
 In conclusion, if you're looking for an organic aromatherapy product that can fill your space with the earthy, woody scent of Palo Santo, this may just be the essence you've been seeking! 
 
 
-### [Ola Prima 4oz Camphor Essential Oil](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=ola-prima-4oz-camphor-essential-oil)
+### [Ola Prima 4oz Camphor Essential Oil](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=ola-prima-4oz-camphor-essential-oil)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=ola-prima-4oz-camphor-essential-oil"><img alt="ola-prima-oils-4oz-camphor-essential-oil-4-fluid-ounces-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ola-prima-oils-4oz-camphor-essential-oil-4-fluid-ounces-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=ola-prima-4oz-camphor-essential-oil"><img alt="ola-prima-oils-4oz-camphor-essential-oil-4-fluid-ounces-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ola-prima-oils-4oz-camphor-essential-oil-4-fluid-ounces-1/h=540,fit=pad,background=black"/></a></div>
 
 As a curious user, I decided to try out Camphor Essential Oil from Ola Prima Oils. I've been searching for a high-quality essential oil to incorporate into my daily self-care routine, and the features of this product caught my attention. 
 
@@ -93,9 +93,9 @@ The product's recommended compatibility with other essential oils sparked my int
 Overall, my experience with Ola Prima Oils' Camphor Essential Oil was mixed. The product's appealing features, such as its packaging and aroma, caught my attention and made it a valuable addition to my self-care routine. However, the lack of transparency in the product's purity and the limitations of its skin and hair benefits left me seeking a more potent and refined option. Nonetheless, I would recommend giving it a try for its aromatherapy benefits and exploring different blending ideas within your essential oil journey. 
 
 
-### [Organic Blue Yarrow Essential Oil for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-blue-yarrow-essential-oil-for-bells-palsy-relief)
+### [Organic Blue Yarrow Essential Oil for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-blue-yarrow-essential-oil-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-blue-yarrow-essential-oil-for-bells-palsy-relief"><img alt="plant-therapy-blue-yarrow-organic-essential-oil-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-blue-yarrow-organic-essential-oil-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-blue-yarrow-essential-oil-for-bells-palsy-relief"><img alt="plant-therapy-blue-yarrow-organic-essential-oil-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-blue-yarrow-organic-essential-oil-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
 
 Organic Blue Yarrow Essential Oil is a unique and delightful addition to any collection. This therapeutic grade oil boasts not only its beautiful deep blue hue, created during the distillation process, but also an aroma that is both sweet and herbaceous. With notes reminiscent of Blue Tansy, yet richer, this essential oil offers a calming and grounding aroma, perfect for diffusing when you need to bring balance and stability into your life. 
 
@@ -104,9 +104,9 @@ This 100% Pure, Undiluted Organic Essential Oil is an excellent choice for those
 In addition to its aromatic qualities and skin benefits, Blue Yarrow Essential Oil is USDA Certified Organic, which signifies that it is free from GMOs and grown without synthetic fertilizers. The soil in which the plants are cultivated also avoids prohibited substances, such as harmful pesticides. By choosing certified organic products, you are not only ensuring the purity of the oil but also playing a part in preserving and maintaining natural landscapes and their ecosystems for future generations. 
 
 
-### [Plant Therapy KidSafe Essential Oils Starter Kit for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=plant-therapy-kidsafe-essential-oils-starter-kit-for-bells-palsy-relief)
+### [Plant Therapy KidSafe Essential Oils Starter Kit for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=plant-therapy-kidsafe-essential-oils-starter-kit-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=plant-therapy-kidsafe-essential-oils-starter-kit-for-bells-palsy-relief"><img alt="plant-therapy-essential-oils-kidsafe-starter-set-6-10-ml-100-pure-undiluted-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-essential-oils-kidsafe-starter-set-6-10-ml-100-pure-undiluted-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=plant-therapy-kidsafe-essential-oils-starter-kit-for-bells-palsy-relief"><img alt="plant-therapy-essential-oils-kidsafe-starter-set-6-10-ml-100-pure-undiluted-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-essential-oils-kidsafe-starter-set-6-10-ml-100-pure-undiluted-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the KidSafe Starter Set from Plant Therapy, a collection of essential oils specifically formulated for children ages 2-10. Intrigued by the idea of introducing essential oils to my kids, I decided to give it a try. 
 
@@ -121,18 +121,18 @@ While I was generally pleased with the set, I did encounter a minor issue with t
 Overall, the KidSafe Starter Set from Plant Therapy is a great option for families looking to introduce essential oils into their daily routine. The wide variety of scents and the inclusion of a KidSafe label make it a reliable choice, despite the occasional inconvenience of inconsistent bottle sizes and a cap malfunction. 
 
 
-### [USDA Organic Peppermint Essential Oil](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=usda-organic-peppermint-essential-oil)
+### [USDA Organic Peppermint Essential Oil](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=usda-organic-peppermint-essential-oil)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=usda-organic-peppermint-essential-oil"><img alt="xencare-peppermint-usda-organic-food-grade-essential-oil-100-pure-natural-undiluted-edible-safe-to-i-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xencare-peppermint-usda-organic-food-grade-essential-oil-100-pure-natural-undiluted-edible-safe-to-i-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=usda-organic-peppermint-essential-oil"><img alt="xencare-peppermint-usda-organic-food-grade-essential-oil-100-pure-natural-undiluted-edible-safe-to-i-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/xencare-peppermint-usda-organic-food-grade-essential-oil-100-pure-natural-undiluted-edible-safe-to-i-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover a revitalizing infusion of Xencare Peppermint USDA Organic Food Grade Essential Oil, characterized by its exhilarating aroma and multitude of purposes. This superior essential oil is meticulously extracted, resulting in 100% natural, unadulterated essence. Due to its widespread appeal, it is commonly embraced in aromatherapy, culinary endeavors, and skincare applications. The oil's cooling property on the skin may offer comfort, and it is vital to incorporate it in a carrier oil when applying topically.
 
 Its adaptability allows for diffusion, inhalation, or application as a diluted massage oil to alleviate physical unease. The ultimate must-have for those who champion chemical-free solutions and connoisseurs seeking a robust, exceptional-grade essential oil. 
 
 
-### [Rocky Mountain Oils: Melissa Essential Oil for Bell's Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=rocky-mountain-oils-melissa-essential-oil-for-bells-palsy-relief)
+### [Rocky Mountain Oils: Melissa Essential Oil for Bell's Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=rocky-mountain-oils-melissa-essential-oil-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=rocky-mountain-oils-melissa-essential-oil-for-bells-palsy-relief"><img alt="rocky-mountain-oils-blend-of-melissa-15ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rocky-mountain-oils-blend-of-melissa-15ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=rocky-mountain-oils-melissa-essential-oil-for-bells-palsy-relief"><img alt="rocky-mountain-oils-blend-of-melissa-15ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rocky-mountain-oils-blend-of-melissa-15ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the soothing aroma of Rocky Mountain Oils' Blend of Melissa. This sweet citrus blend is perfect for creating a calm and relaxing atmosphere, making it a valuable addition to any home. 
 
@@ -141,18 +141,18 @@ With a 15 ml bottle, you can enjoy the benefits of this natural and therapeutic 
 This product is GC/MS verified, ensuring its purity, naturalness, and therapeutic properties. 
 
 
-### [Organic Essential Oils for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-essential-oils-for-bells-palsy-relief)
+### [Organic Essential Oils for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-essential-oils-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-essential-oils-for-bells-palsy-relief"><img alt="plant-therapy-top-14-organic-singles-set-100-pure-undiluted-natural-aromatherapy-10-ml-1-3-oz-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-top-14-organic-singles-set-100-pure-undiluted-natural-aromatherapy-10-ml-1-3-oz-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-essential-oils-for-bells-palsy-relief"><img alt="plant-therapy-top-14-organic-singles-set-100-pure-undiluted-natural-aromatherapy-10-ml-1-3-oz-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-top-14-organic-singles-set-100-pure-undiluted-natural-aromatherapy-10-ml-1-3-oz-each-1/h=540,fit=pad,background=black"/></a></div>
 
 The Plant Therapy Top 14 Organic Singles Set brings you a diverse range of 100% pure, undiluted, natural aromatherapy essential oils, allowing you to experience the soothing scent of Lavender, the refreshing tingle of Spearmint, and the invigorating power of Eucalyptus. Each of these USDA Certified Organic oils offers unique properties and distinct aromas, catering to your various needs, from emotional well-being to immune support. The set is completely free from GMOs, grown in chemical-free soil, and contributes to the conservation of biodiversity. 
 
 Whether you're battling Bells Palsy or simply looking to enhance your daily wellness routine, this versatile collection has got you covered. 
 
 
-### [Pure Melissa Essential Oil: Natural Relief for Bells Palsy](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-melissa-essential-oil-natural-relief-for-bells-palsy)
+### [Pure Melissa Essential Oil: Natural Relief for Bells Palsy](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-melissa-essential-oil-natural-relief-for-bells-palsy)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-melissa-essential-oil-natural-relief-for-bells-palsy"><img alt="plant-therapy-melissa-essential-oil-5-ml-1-6-oz-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-melissa-essential-oil-5-ml-1-6-oz-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-melissa-essential-oil-natural-relief-for-bells-palsy"><img alt="plant-therapy-melissa-essential-oil-5-ml-1-6-oz-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-melissa-essential-oil-5-ml-1-6-oz-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried Plant Therapy's Melissa Essential Oil, also known as lemon balm oil, and I have to say, it exceeded my expectations. This high-quality essential oil, steam-distilled from the plant's fresh aerial parts, offers a refreshing, uplifting aroma that's perfect for times of stress or worry. As someone who often struggles with occasional digestive issues, the fact that this oil can potentially be helpful in those areas is a huge plus. 
 
@@ -163,9 +163,9 @@ However, it's not all smooth sailing. The oil's intense, potent scent can be ove
 Overall, the Plant Therapy Melissa Essential Oil is a high-quality, versatile, and potent oil that's perfect for anyone looking to enhance their aromatherapy experience. Keep the scent in mind, especially when first using, and you'll be set to enjoy its benefits. 
 
 
-### [Woolzies 100% Pure Lavender Oil: Aromatherapy, Laundry & Fabric Freshener](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-100-pure-lavender-oil-aromatherapy-laundry-fabric-freshener)
+### [Woolzies 100% Pure Lavender Oil: Aromatherapy, Laundry & Fabric Freshener](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-100-pure-lavender-oil-aromatherapy-laundry-fabric-freshener)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-100-pure-lavender-oil-aromatherapy-laundry-fabric-freshener"><img alt="woolzies-100-pure-oil-lavender-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-100-pure-oil-lavender-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-100-pure-lavender-oil-aromatherapy-laundry-fabric-freshener"><img alt="woolzies-100-pure-oil-lavender-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-100-pure-oil-lavender-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the soothing comfort of Woolzies 100% Pure Oil, Lavender. This versatile product boasts a rich, floral scent that is more than just an aromatherapy use. 
 
@@ -174,18 +174,18 @@ It's a go-to tool for freshening and deodorizing fabrics, offering a stress-reli
 The essence of Woolzies Lavender essential oil will leave your senses enchanted with its refreshing fragrance. 
 
 
-### [Eucalyptus Smithii Essence: Natural Relief for Respiratory Issues](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-smithii-essence-natural-relief-for-respiratory-issues)
+### [Eucalyptus Smithii Essence: Natural Relief for Respiratory Issues](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-smithii-essence-natural-relief-for-respiratory-issues)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-smithii-essence-natural-relief-for-respiratory-issues"><img alt="physalis-eucalyptus-smithii-essence-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/physalis-eucalyptus-smithii-essence-10-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-smithii-essence-natural-relief-for-respiratory-issues"><img alt="physalis-eucalyptus-smithii-essence-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/physalis-eucalyptus-smithii-essence-10-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Delight in the sweet scent and healing properties of the Physalis Eucalyptus Smithii Essence. Its versatility offers various ways to use it - diluted in honey or infusions for oral intake, or mixed with vegetable oil for skin massages and baths. Containing d-limonene, geraniol, and linalool, it's perfect for those who require a gentle touch, particularly children and the elderly. 
 
 Remember, it's always best to store this precious oil in a cool, dry space, safe from sunlight. 
 
 
-### [NOW Foods Blue Tansy Oil Blend - Relaxing Aromatherapy for Bells Palsy](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-foods-blue-tansy-oil-blend-relaxing-aromatherapy-for-bells-palsy)
+### [NOW Foods Blue Tansy Oil Blend - Relaxing Aromatherapy for Bells Palsy](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-foods-blue-tansy-oil-blend-relaxing-aromatherapy-for-bells-palsy)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-foods-blue-tansy-oil-blend-relaxing-aromatherapy-for-bells-palsy"><img alt="now-foods-blue-tansy-oil-blend-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-foods-blue-tansy-oil-blend-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-foods-blue-tansy-oil-blend-relaxing-aromatherapy-for-bells-palsy"><img alt="now-foods-blue-tansy-oil-blend-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-foods-blue-tansy-oil-blend-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 For those seeking a natural, calming aroma, NOW Essential Oils Blue Tansy Oil Blend is a perfect choice. This blend of organic jojoba oil and blue tansy oil offers a soothing scent, making it an excellent addition to your diffusers or as a gentle perfume. 
 
@@ -194,27 +194,27 @@ Blue tansy oil is known for its anti-inflammatory properties, providing a relaxi
 This versatile oil can be used as a facial oil, in hand lotions, or simply inhaled to promote a sense of well-being. 
 
 
-### [Pure Sea Buckthorn Oil: High-Quality Amber Glass, Cold Pressed for Skin Health](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-sea-buckthorn-oil-high-quality-amber-glass-cold-pressed-for-skin-health)
+### [Pure Sea Buckthorn Oil: High-Quality Amber Glass, Cold Pressed for Skin Health](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-sea-buckthorn-oil-high-quality-amber-glass-cold-pressed-for-skin-health)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-sea-buckthorn-oil-high-quality-amber-glass-cold-pressed-for-skin-health"><img alt="deve-herbes-pure-sea-buckthorn-oil-hippophae-rhamnoides-cold-pressed-15ml-0-50-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/deve-herbes-pure-sea-buckthorn-oil-hippophae-rhamnoides-cold-pressed-15ml-0-50-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-sea-buckthorn-oil-high-quality-amber-glass-cold-pressed-for-skin-health"><img alt="deve-herbes-pure-sea-buckthorn-oil-hippophae-rhamnoides-cold-pressed-15ml-0-50-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/deve-herbes-pure-sea-buckthorn-oil-hippophae-rhamnoides-cold-pressed-15ml-0-50-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the wonders of nature with this premium Deve Herbes Pure Sea Buckthorn Oil. Extracted using the cold-pressed method, this golden elixir is housed in a sleek amber glass bottle, ensuring the oil remains fresh and potent. As one of the largest oil providers in the world, Deve Herbes delivers superior quality oils that are perfect for nourishing your skin. 
 
 Whether you're fighting off dermatitis or looking to enhance your skincare routine, this top-rated brand has got you covered with its range of essential oils. 
 
 
-### [Young Living Valor Roll-On: Essential Oils for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=young-living-valor-roll-on-essential-oils-for-bells-palsy-relief)
+### [Young Living Valor Roll-On: Essential Oils for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=young-living-valor-roll-on-essential-oils-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=young-living-valor-roll-on-essential-oils-for-bells-palsy-relief"><img alt="young-living-valor-roll-on-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/young-living-valor-roll-on-10-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=young-living-valor-roll-on-essential-oils-for-bells-palsy-relief"><img alt="young-living-valor-roll-on-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/young-living-valor-roll-on-10-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's been using Young Living's Valor Roll-On 10 ml on a regular basis, I've truly found it to be a versatile and empowering essential oil blend. Whenever I'm feeling stressed or in need of an extra boost of courage, I apply it to the back of my neck or along my wrists. The natural aroma has a soothing effect and helps relax my mind whenever I take deep inhales. 
 
 This essential oil is not only useful for creating a calming environment for sleep, but it also serves as a great companion when I need it throughout the day while I'm working or tackling tasks. Overall, Young Living's Valor Roll-On has proven to be a reliable and beneficial addition to my daily routine. While the cost might be a bit higher than other alternatives, the quality and effectiveness make it a worthwhile investment. 
 
 
-### [Eucalyptus Globulus Essential Oil - Natural Remedy for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-globulus-essential-oil-natural-remedy-for-bells-palsy-relief)
+### [Eucalyptus Globulus Essential Oil - Natural Remedy for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-globulus-essential-oil-natural-remedy-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-globulus-essential-oil-natural-remedy-for-bells-palsy-relief"><img alt="plant-therapy-eucalyptus-globulus-essential-oil-30-ml-1-oz-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-eucalyptus-globulus-essential-oil-30-ml-1-oz-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-globulus-essential-oil-natural-remedy-for-bells-palsy-relief"><img alt="plant-therapy-eucalyptus-globulus-essential-oil-30-ml-1-oz-100-pure-undiluted-therapeutic-grade-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-eucalyptus-globulus-essential-oil-30-ml-1-oz-100-pure-undiluted-therapeutic-grade-1/h=540,fit=pad,background=black"/></a></div>
 
 Plant Therapy's Eucalyptus Globulus essential oil is a versatile essential oil known for its refreshing, herbaceous scent and numerous therapeutic benefits. With a 100% pure, undiluted, and therapeutic-grade formula, this oil is perfect for those seeking a potent and effective essential oil for respiratory support and muscle relaxation. 
 
@@ -225,9 +225,9 @@ The product comes in a 30 ml (1 oz) bottle, with dimensions of 1.25 x 1.25 x 3.3
 Reviewers have praised Plant Therapy's Eucalyptus Globulus essential oil for its powerful and versatile nature, with many claiming it to be their go-to oil for various uses, such as inhaling for respiratory relief, adding to bathwater or shower, or blending with other essential oils for a custom aromatherapy experience. Users have also expressed satisfaction with the product's quality, freshness, and affordability. 
 
 
-### [First Botany Pure Bulgarian Lavender Essential Oil](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=first-botany-pure-bulgarian-lavender-essential-oil)
+### [First Botany Pure Bulgarian Lavender Essential Oil](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=first-botany-pure-bulgarian-lavender-essential-oil)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=first-botany-pure-bulgarian-lavender-essential-oil"><img alt="first-botany-100-pure-bulgarian-lavender-essential-oil-premium-lavender-oil-for-aromatherapy-massage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/first-botany-100-pure-bulgarian-lavender-essential-oil-premium-lavender-oil-for-aromatherapy-massage-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=first-botany-pure-bulgarian-lavender-essential-oil"><img alt="first-botany-100-pure-bulgarian-lavender-essential-oil-premium-lavender-oil-for-aromatherapy-massage-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/first-botany-100-pure-bulgarian-lavender-essential-oil-premium-lavender-oil-for-aromatherapy-massage-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bulgarian lavender essential oil from First Botany was my first foray into aromatherapy, and I must say, it had a calming effect on my mind and body. I found that using a drop or two on my wrist and breathing it in deeply helped to soothe my nerves and ease anxiety after a long day. I even tried adding a few drops to my diffuser, and it instantly transformed the room with its heavenly aroma. 
 
@@ -236,18 +236,18 @@ But, I also experienced a slight burn when applied directly to the skin, which r
 Overall, I'm happy with this product's effectiveness and am already planning to stock up on more soaps, candle making supplies, and massage oils. The versatility of lavender oil really shines through, and it has easily become my go-to for self-care and relaxation. 
 
 
-### [Bergamot Essential Oil for Bells Palsy Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=bergamot-essential-oil-for-bells-palsy-relief)
+### [Bergamot Essential Oil for Bells Palsy Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=bergamot-essential-oil-for-bells-palsy-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=bergamot-essential-oil-for-bells-palsy-relief"><img alt="now-essential-oils-100-pure-bergamot-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-100-pure-bergamot-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=bergamot-essential-oil-for-bells-palsy-relief"><img alt="now-essential-oils-100-pure-bergamot-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-100-pure-bergamot-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Now Essential Oils, 100% Pure, Bergamot - 1 fl oz, is a versatile and delightful aromatherapy tool that offers a range of benefits. Extracted from high-quality leaves, this essential oil is free from synthetic additives and provides a concentrated burst of the unique and refreshing bergamot scent. Users can enjoy the invigorating aroma in various ways - through diffusing, natural cleaning, or incorporating it into their beauty routine. 
 
 Whether you're looking to create a relaxing ambiance or looking for a natural alternative for decongestion, this essential oil stands out as a refreshing choice for aromatherapy enthusiasts. The amber-colored glass bottle protects the oil from light exposure, ensuring its potency and integrity over time. With its commitment to ethical sourcing and natural properties, this essential oil offers affordability and an authentic aroma that uplifts and revitalizes, making it a treasured addition to any household. 
 
 
-### [Now Foods Eucalyptus Essential Oil for Aromatherapy and Lung Support (2 fl oz)](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-foods-eucalyptus-essential-oil-for-aromatherapy-and-lung-support-2-fl-oz)
+### [Now Foods Eucalyptus Essential Oil for Aromatherapy and Lung Support (2 fl oz)](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-foods-eucalyptus-essential-oil-for-aromatherapy-and-lung-support-2-fl-oz)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-foods-eucalyptus-essential-oil-for-aromatherapy-and-lung-support-2-fl-oz"><img alt="now-foods-essential-eucalyptus-oil-2-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-foods-essential-eucalyptus-oil-2-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-foods-eucalyptus-essential-oil-for-aromatherapy-and-lung-support-2-fl-oz"><img alt="now-foods-essential-eucalyptus-oil-2-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-foods-essential-eucalyptus-oil-2-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Now Foods Essential Eucalyptus Oil stands out among other oils for its aromatherapy benefits. It boasts an all-natural, 100% pure formula containing powerful almond oil, eucalyptus, and jojoba. Whether it's used in a vapor rub to promote cleanliness or diffused for a woody, medicinal scent during aromatherapy, this oil is praised for its versatility. Its strong, invigorating aroma remains a staple among aromatherapists and casual users. 
 
@@ -256,18 +256,18 @@ In addition to its medicinal properties, this essential oil is a popular ingredi
 Overall, the Now Foods Essential Eucalyptus Oil is a high-quality, multipurpose product that impresses its users for its therapeutic benefits and superior ingredients. Its natural, refreshing scent and versatile use make it a must-have for both aromatherapists and casual enthusiasts. 
 
 
-### [Woolzies 3-Piece Essential Oil Set: Immunity, Germ Fighter, and Cold Stopper](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-3-piece-essential-oil-set-immunity-germ-fighter-and-cold-stopper)
+### [Woolzies 3-Piece Essential Oil Set: Immunity, Germ Fighter, and Cold Stopper](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-3-piece-essential-oil-set-immunity-germ-fighter-and-cold-stopper)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-3-piece-essential-oil-set-immunity-germ-fighter-and-cold-stopper"><img alt="woolzies-wellness-3-piece-essential-oil-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-wellness-3-piece-essential-oil-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-3-piece-essential-oil-set-immunity-germ-fighter-and-cold-stopper"><img alt="woolzies-wellness-3-piece-essential-oil-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-wellness-3-piece-essential-oil-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Woolzies Wellness 3-Piece Essential Oil Set is a collection of three versatile oil blends designed to enhance your wellbeing. The Germ Fighter Oil Blend, with a medicinal aroma, invigorates your immune system, while Cold Stopper Oil Blend calms congestion and soothes coughs. Lastly, the Immunity Oil Blend provides a sweet spicy scent, promoting antioxidant support. 
 
 These essential oils can be inhaled, diffused, applied topically, or used for cleaning purposes. Made with natural ingredients, this set is a perfect addition to any wellness routine. 
 
 
-### [Now Essential Oils Rosemary for Liver Support](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-essential-oils-rosemary-for-liver-support)
+### [Now Essential Oils Rosemary for Liver Support](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-essential-oils-rosemary-for-liver-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-essential-oils-rosemary-for-liver-support"><img alt="now-essential-oils-rosemary-oil-1-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-rosemary-oil-1-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-essential-oils-rosemary-for-liver-support"><img alt="now-essential-oils-rosemary-oil-1-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-rosemary-oil-1-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of essential oils, I recently tried the Now Essential Oils Rosemary Oil. This little bottle is perfect for adding a touch of aromatherapy to my daily routine. The oil has a strong, herbal scent that I found invigorating and refreshing, making it a great addition to my morning shower. 
 
@@ -280,9 +280,9 @@ However, I do want to mention that the oil is very potent, so I recommend diluti
 Overall, the Now Essential Oils Rosemary Oil is a great addition to any self-care routine. Its invigorating scent and potential hair growth benefits make it a must-try for anyone looking to incorporate aromatherapy into their daily life. 
 
 
-### [Rocky Mountain Oils Nerve Support Essential Oil Blend for Pain Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=rocky-mountain-oils-nerve-support-essential-oil-blend-for-pain-relief)
+### [Rocky Mountain Oils Nerve Support Essential Oil Blend for Pain Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=rocky-mountain-oils-nerve-support-essential-oil-blend-for-pain-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=rocky-mountain-oils-nerve-support-essential-oil-blend-for-pain-relief"><img alt="rocky-mountain-oils-nerve-support-essential-oil-blend-with-100-pure-and-natural-essential-oils-relax-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rocky-mountain-oils-nerve-support-essential-oil-blend-with-100-pure-and-natural-essential-oils-relax-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=rocky-mountain-oils-nerve-support-essential-oil-blend-for-pain-relief"><img alt="rocky-mountain-oils-nerve-support-essential-oil-blend-with-100-pure-and-natural-essential-oils-relax-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rocky-mountain-oils-nerve-support-essential-oil-blend-with-100-pure-and-natural-essential-oils-relax-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer who has given the Rocky Mountain Oils Nerve Support Essential Oil Blend a try, I have to say that it has proven to be a game-changer for those dealing with nerve pain and discomfort. The unique blend of natural essential oils, including peppermint, helichrysum, and basil, has provided a level of relief that has surpassed my expectations. 
 
@@ -293,9 +293,9 @@ That being said, there have been some challenges along the way. The scent, altho
 Despite these minor inconveniences, the Rocky Mountain Oils Nerve Support Essential Oil Blend has been a valuable addition to my daily wellness routine. For those seeking natural relief for nerve issues, this product deserves a spot on your shelves. 
 
 
-### [Vitality Extracts Helichrysum Essential Oil: Top Choice for Bells Palsy Support & Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=vitality-extracts-helichrysum-essential-oil-top-choice-for-bells-palsy-support-relief)
+### [Vitality Extracts Helichrysum Essential Oil: Top Choice for Bells Palsy Support & Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=vitality-extracts-helichrysum-essential-oil-top-choice-for-bells-palsy-support-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=vitality-extracts-helichrysum-essential-oil-top-choice-for-bells-palsy-support-relief"><img alt="vitality-extracts-helichrysum-essential-oil-10ml-10ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vitality-extracts-helichrysum-essential-oil-10ml-10ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=vitality-extracts-helichrysum-essential-oil-top-choice-for-bells-palsy-support-relief"><img alt="vitality-extracts-helichrysum-essential-oil-10ml-10ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vitality-extracts-helichrysum-essential-oil-10ml-10ml-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's battled with sensitive skin all my life, I've always been skeptical about how essential oils will affect me. But, I must admit, using the Vitality Extracts Helichrysum Essential Oil has been a pleasant surprise. The first time I applied it, I noticed an immediate soothing effect on my skin. Not only did it promote healthy skin, but it also improved the healing of my bruises and wounds. 
 
@@ -308,9 +308,9 @@ Nevertheless, I appreciate how this oil promotes respiratory health, which has b
 Overall, I would rate the Vitality Extracts Helichrysum Essential Oil a strong 4.5 out of 5 stars. It has definitely helped me with my skin concerns and has become a regular part of my self-care routine. Even though there are some minor drawbacks, the benefits far outweigh them, making this a must-have product in my collection. 
 
 
-### [Now Eucalyptus Pure Essential Oil](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-eucalyptus-pure-essential-oil)
+### [Now Eucalyptus Pure Essential Oil](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-eucalyptus-pure-essential-oil)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-eucalyptus-pure-essential-oil"><img alt="now-essential-oils-eucalyptus-100-pure-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-eucalyptus-100-pure-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-eucalyptus-pure-essential-oil"><img alt="now-essential-oils-eucalyptus-100-pure-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-eucalyptus-100-pure-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Now Essential Oils Eucalyptus, 100% Pure is a versatile and potent essential oil that boasts numerous health benefits. Extracted from the tree of the same name, it is renowned for its soothing and refreshing scent, as well as its antibacterial, antiviral, and anti-inflammatory properties. Perfect for aromatherapy, this oil can help alleviate a range of issues, including congestion, fatigue, and sore muscles. 
 
@@ -323,18 +323,18 @@ The Now Essential Oils Eucalyptus is suitable for all skin types and can be used
 Overall, the Now Essential Oils Eucalyptus, 100% Pure is a highly regarded and effective essential oil that offers numerous health benefits. With its strong aroma and versatile uses, it is a must-have addition to any aromatherapy collection or self-care routine. 
 
 
-### [NOW Eucalyptus Oil: 100% Pure, Lung Support and Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-eucalyptus-oil-100-pure-lung-support-and-relief)
+### [NOW Eucalyptus Oil: 100% Pure, Lung Support and Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-eucalyptus-oil-100-pure-lung-support-and-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-eucalyptus-oil-100-pure-lung-support-and-relief"><img alt="now-essential-oils-eucalyptus-oil-100-pure-4-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-eucalyptus-oil-100-pure-4-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-eucalyptus-oil-100-pure-lung-support-and-relief"><img alt="now-essential-oils-eucalyptus-oil-100-pure-4-fl-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-eucalyptus-oil-100-pure-4-fl-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the refreshing power of nature with the 100% Pure Eucalyptus Essential Oil from the NOW brand. Extracted from the leaves of the eucalyptus tree, this oil offers a woody, medicinal aroma that can help with respiratory issues and aromatherapy. 
 
 With its steam-distilled process, this high-quality essential oil is free from additives, bases, fillers, or preservatives, making it a safe and natural choice for your home. The oil is available in a 4 fl oz UV-light resistant amber glass bottle to ensure its lasting shelf life. As you explore the versatile uses for this essential oil, you'll enjoy its delightful scent while promoting a cleaner and healthier environment for you and your family. 
 
 
-### [Organic Hyssop Essential Oil: Sacred Herb for Well-being and Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-hyssop-essential-oil-sacred-herb-for-well-being-and-relief)
+### [Organic Hyssop Essential Oil: Sacred Herb for Well-being and Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-hyssop-essential-oil-sacred-herb-for-well-being-and-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-hyssop-essential-oil-sacred-herb-for-well-being-and-relief"><img alt="essences-bulgaria-organic-hyssop-essential-oil-1-6-fl-oz-5ml-hyssopus-officinalis-100-pure-and-natur-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essences-bulgaria-organic-hyssop-essential-oil-1-6-fl-oz-5ml-hyssopus-officinalis-100-pure-and-natur-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-hyssop-essential-oil-sacred-herb-for-well-being-and-relief"><img alt="essences-bulgaria-organic-hyssop-essential-oil-1-6-fl-oz-5ml-hyssopus-officinalis-100-pure-and-natur-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essences-bulgaria-organic-hyssop-essential-oil-1-6-fl-oz-5ml-hyssopus-officinalis-100-pure-and-natur-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using Essences Bulgaria Organic Hyssop Essential Oil in my daily life, and let me tell you, it's a game-changer! This natural oil is rich in history - with roots in the Mediterranean and now cultivated in Europe, the hyssop plant has been praised for its healing properties throughout the ages. This product is part of the Lamiaceae family, which includes other familiar herbs like mint, rosemary, and basil. 
 
@@ -345,9 +345,9 @@ One of the most notable aspects of this hyssop oil is its versatility - it's bee
 The oil comes in a 5 ml bottle, which is a decent size for those looking to try it out. And the best part? The shelf life is five years, so you have plenty of time to enjoy the amazing benefits! I've tried many essential oils over the years, but this hyssop oil is undoubtedly a standout—the perfect blend of history, quality, and versatility. 
 
 
-### [Organic Bulgarian Lavender Essential Oil for Relaxation and Skincare](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-bulgarian-lavender-essential-oil-for-relaxation-and-skincare)
+### [Organic Bulgarian Lavender Essential Oil for Relaxation and Skincare](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=organic-bulgarian-lavender-essential-oil-for-relaxation-and-skincare)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-bulgarian-lavender-essential-oil-for-relaxation-and-skincare"><img alt="alteya-usda-organic-bulgarian-lavender-essential-oil-0-34-fl-oz-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alteya-usda-organic-bulgarian-lavender-essential-oil-0-34-fl-oz-10-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=organic-bulgarian-lavender-essential-oil-for-relaxation-and-skincare"><img alt="alteya-usda-organic-bulgarian-lavender-essential-oil-0-34-fl-oz-10-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/alteya-usda-organic-bulgarian-lavender-essential-oil-0-34-fl-oz-10-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Featuring Certified Organic ingredients from the renowned Bulgarian lavender fields, this essential oil promises a delightful floral experience backed by its versatile uses. Alteya's USDA Organic Bulgarians Lavender Essential Oil, a steal at just 0.34 fl oz/10 ml, offers an aromatic sensation perfect for aromatherapy, cosmetics, and perfumery. 
 
@@ -358,9 +358,9 @@ For those seeking a product with high-quality aroma therapy, this essential oil 
 However, it's important to remember that essential oils like this one can be quite powerful and may need precautions when using them. Consult with a herbalist or aromatherapy expert to ensure the best and safest way to apply the oil. Overall, Alteya USDA Organic Bulgarian Lavender Essential Oil can be considered a precious jewel in any home or aromatherapy collection. 
 
 
-### [Relaxing Essential Oil Collection for Stress Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=relaxing-essential-oil-collection-for-stress-relief)
+### [Relaxing Essential Oil Collection for Stress Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=relaxing-essential-oil-collection-for-stress-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=relaxing-essential-oil-collection-for-stress-relief"><img alt="woolzies-essential-oil-collection-stress-free-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-essential-oil-collection-stress-free-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=relaxing-essential-oil-collection-for-stress-relief"><img alt="woolzies-essential-oil-collection-stress-free-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-essential-oil-collection-stress-free-1/h=540,fit=pad,background=black"/></a></div>
 
 Woolzies Essential Oil Collection offers a tranquil and harmonious experience, perfect for those seeking a stress-free atmosphere. With an assortment of natural and vegan oils, this thoughtfully curated set ensures no toxins, synthetics, or unnatural additives taint your well-being. 
 
@@ -369,9 +369,9 @@ The Relax Oil Blend, a notable feature of the collection, provides a calming and
 Woolzies Essential Oil Collection offers a natural pathway to achieving inner peace and tranquility while providing a touch of luxury to your daily routine. 
 
 
-### [Essential Oils for Sinus Pressure: Relief Pack with 100% Natural Oils](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=essential-oils-for-sinus-pressure-relief-pack-with-100-natural-oils)
+### [Essential Oils for Sinus Pressure: Relief Pack with 100% Natural Oils](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=essential-oils-for-sinus-pressure-relief-pack-with-100-natural-oils)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=essential-oils-for-sinus-pressure-relief-pack-with-100-natural-oils"><img alt="essential-oils-set-essential-oils-100-natural-essential-oils-perfect-for-diffuser-humidifieraromathe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essential-oils-set-essential-oils-100-natural-essential-oils-perfect-for-diffuser-humidifieraromathe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=essential-oils-for-sinus-pressure-relief-pack-with-100-natural-oils"><img alt="essential-oils-set-essential-oils-100-natural-essential-oils-perfect-for-diffuser-humidifieraromathe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essential-oils-set-essential-oils-100-natural-essential-oils-perfect-for-diffuser-humidifieraromathe-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the Essential Oils For Sinus Pressure set, and let me tell you, it was a treat! This set features a whopping 50 different essential oils in 10ml bottles, each handpicked for their unique aromatherapy properties. From lavender to peppermint, rose, and everything in between, this set has something for every scent lover out there. The oils are 100% natural, carefully sourced and extracted from plants around the world, and the bottles are stored in professional glass amber to prevent photolysis and keep the fragrances fresh. 
 
@@ -380,9 +380,9 @@ What really stood out to me was the long-lasting fragrance of these essential oi
 While the set is based in China, the essential oils are sourced from countries such as Australia, France, and Brazil, ensuring that they're of the highest quality. So if you're looking for a versatile and aromatic addition to your home, this Essential Oils For Sinus Pressure set is definitely worth considering. 
 
 
-### [Essentially Kates 100% Pure Eucalyptus Oil for Lung Support](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=essentially-kates-100-pure-eucalyptus-oil-for-lung-support)
+### [Essentially Kates 100% Pure Eucalyptus Oil for Lung Support](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=essentially-kates-100-pure-eucalyptus-oil-for-lung-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=essentially-kates-100-pure-eucalyptus-oil-for-lung-support"><img alt="essentially-kates-eucalyptus-oil-4-fl-oz-100-pure-and-natural-eucalyptus-globulus-80-85-aromatherapy-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essentially-kates-eucalyptus-oil-4-fl-oz-100-pure-and-natural-eucalyptus-globulus-80-85-aromatherapy-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=essentially-kates-100-pure-eucalyptus-oil-for-lung-support"><img alt="essentially-kates-eucalyptus-oil-4-fl-oz-100-pure-and-natural-eucalyptus-globulus-80-85-aromatherapy-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essentially-kates-eucalyptus-oil-4-fl-oz-100-pure-and-natural-eucalyptus-globulus-80-85-aromatherapy-1/h=540,fit=pad,background=black"/></a></div>
 
 Essentially Kate's Eucalyptus Oil is a 100% pure and natural product, making it perfect for various uses around the house. With its refreshing, invigorating scent, it can be used for aromatherapy, skin care, massages, and cleaning purposes. 
 
@@ -391,9 +391,9 @@ Its ability to purify and cleanse the air makes it a popular choice for a freshe
 With its numerous benefits and versatility, this Eucalyptus Oil is a must-have for any household. 
 
 
-### [Clove Bud Essential Oil for Skin and Teeth](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=clove-bud-essential-oil-for-skin-and-teeth)
+### [Clove Bud Essential Oil for Skin and Teeth](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=clove-bud-essential-oil-for-skin-and-teeth)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=clove-bud-essential-oil-for-skin-and-teeth"><img alt="clove-bud-essential-oil-undiluted-natural-therapeutic-grade-for-skin-and-di-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clove-bud-essential-oil-undiluted-natural-therapeutic-grade-for-skin-and-di-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=clove-bud-essential-oil-for-skin-and-teeth"><img alt="clove-bud-essential-oil-undiluted-natural-therapeutic-grade-for-skin-and-di-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/clove-bud-essential-oil-undiluted-natural-therapeutic-grade-for-skin-and-di-1/h=540,fit=pad,background=black"/></a></div>
 
 Clove Bud Essential Oil is a versatile spice from the beautiful Moluccas and Indonesian archipelago, known for its unique sweet-spicy fragrance and potent cleansing benefits. It has found a place in perfumery, cooking, traditional medicine, and skincare routines due to its many uses. 
 
@@ -402,9 +402,9 @@ The oil exudes a warm, spicy scent with notes of phenol, making it ideal for add
 Clove bud essential oil is rich in minerals and can be used as a soothing purifying ritual in gargles or with toothbrushes. It can also help boost energy during a relaxing massage. Gya Labs Clove Bud Essential Oil is naturally sourced from Indonesian clove buds and undergoes strict quality controls to ensure its effectiveness and safety. 
 
 
-### [Now Essential Oils: Wintergreen for Sinus Relief](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-essential-oils-wintergreen-for-sinus-relief)
+### [Now Essential Oils: Wintergreen for Sinus Relief](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=now-essential-oils-wintergreen-for-sinus-relief)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-essential-oils-wintergreen-for-sinus-relief"><img alt="now-essential-oils-wintergreen-100-pure-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-wintergreen-100-pure-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=now-essential-oils-wintergreen-for-sinus-relief"><img alt="now-essential-oils-wintergreen-100-pure-1-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/now-essential-oils-wintergreen-100-pure-1-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As a busy mom, I often rely on aromatherapy to help soothe my sore muscles and ease my headaches. That's why I was excited to try NOW Essential Oils Wintergreen, a 100% pure and natural wintergreen oil. The moment I opened the bottle, I was greeted by its warm, sweet scent, which immediately filled the room. 
 
@@ -417,9 +417,9 @@ However, I noticed that the scent intensity varied between bottles. While I rece
 My experience with NOW Essential Oils Wintergreen has been mixed with both pros and cons. While I've enjoyed the uplifting scent and its ability to soothe sore muscles, I've also had concerns about the inconsistency in scent intensity and occasional packaging issues. That being said, I still think it's a valuable addition to my essential oil collection, and I will continue to use it as needed. 
 
 
-### [Premium USDA Organic Eucalyptus Essential Oil for Lung Health](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=premium-usda-organic-eucalyptus-essential-oil-for-lung-health)
+### [Premium USDA Organic Eucalyptus Essential Oil for Lung Health](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=premium-usda-organic-eucalyptus-essential-oil-for-lung-health)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=premium-usda-organic-eucalyptus-essential-oil-for-lung-health"><img alt="cliganic-usda-organic-eucalyptus-essential-oil-100-pure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cliganic-usda-organic-eucalyptus-essential-oil-100-pure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=premium-usda-organic-eucalyptus-essential-oil-for-lung-health"><img alt="cliganic-usda-organic-eucalyptus-essential-oil-100-pure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cliganic-usda-organic-eucalyptus-essential-oil-100-pure-1/h=540,fit=pad,background=black"/></a></div>
 
 Cliganic USDA Organic Eucalyptus Essential Oil is a high-quality, pure, and single ingredient oil that is proudly certified organic by the USDA to ensure ultimate quality and integrity. The oil is non-GMO certified, vegan, and cruelty-free, making it an excellent choice for those who prioritize ethical and sustainable products. 
 
@@ -432,9 +432,9 @@ Customers have praised Cliganic for its quality packaging, easy-to-use essential
 In conclusion, Cliganic USDA Organic Eucalyptus Essential Oil is an excellent choice for those seeking a pure, high-quality, and effective essential oil that is organic, non-GMO certified, vegan, and cruelty-free. 
 
 
-### [Pure Aroma 100% Pure Therapeutic Grade Essential Oil Kit - Top 6 Aromatherapy Oils Set](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-aroma-100-pure-therapeutic-grade-essential-oil-kit-top-6-aromatherapy-oils-set)
+### [Pure Aroma 100% Pure Therapeutic Grade Essential Oil Kit - Top 6 Aromatherapy Oils Set](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=pure-aroma-100-pure-therapeutic-grade-essential-oil-kit-top-6-aromatherapy-oils-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-aroma-100-pure-therapeutic-grade-essential-oil-kit-top-6-aromatherapy-oils-set"><img alt="essential-oils-by-pure-aroma-100-pure-therapeutic-grade-oils-kit-top-6-aromatherapy-oils-gift-set-6--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essential-oils-by-pure-aroma-100-pure-therapeutic-grade-oils-kit-top-6-aromatherapy-oils-gift-set-6--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=pure-aroma-100-pure-therapeutic-grade-essential-oil-kit-top-6-aromatherapy-oils-set"><img alt="essential-oils-by-pure-aroma-100-pure-therapeutic-grade-oils-kit-top-6-aromatherapy-oils-gift-set-6--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/essential-oils-by-pure-aroma-100-pure-therapeutic-grade-oils-kit-top-6-aromatherapy-oils-gift-set-6--1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who enjoys incorporating aromatherapy into my daily routine, I was excited to try the Essential Oils by Pure Aroma kit. This gift set contains top-quality therapeutic grade oils in a convenient 6-pack, with scents like Eucalyptus, Lavender, Lemon Grass, Orange, Peppermint, and Tea Tree. This handpicked selection from different parts of the world, including France, Australia, and Brazil, is truly a delightful experience. 
 
@@ -443,9 +443,9 @@ I appreciate that these essential oils have no fillers, additives, or carriers a
 The 10 milliliter bottles are perfect for using at home or on-the-go, and the kit overall makes for an excellent gift for anyone interested in exploring the benefits of essential oils. This product has quickly become a staple in my own aromatherapy routine, and I highly recommend it to others seeking high-quality, natural scents for their well-being. 
 
 
-### [21 Drops Organic Essential Oils for Stress Relief Set](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=21-drops-organic-essential-oils-for-stress-relief-set)
+### [21 Drops Organic Essential Oils for Stress Relief Set](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=21-drops-organic-essential-oils-for-stress-relief-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=21-drops-organic-essential-oils-for-stress-relief-set"><img alt="21-drops-organic-essential-oils-wellness-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/21-drops-organic-essential-oils-wellness-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=21-drops-organic-essential-oils-for-stress-relief-set"><img alt="21-drops-organic-essential-oils-wellness-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/21-drops-organic-essential-oils-wellness-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the power of essential oils with 21 Drops Organic Wellness Set, a 7-piece collection of our best-selling blends. Each rollerball vial contains 0.27 fl oz of organic, cruelty-free essential oil, perfect for aromatherapy and topical application. 
 
@@ -454,9 +454,9 @@ The set is designed for focus, detox, abstaining, sleep, headache relief, de-str
 The stylish and convenient set comes with an acrylic stand, making it a great addition to your home or personal space. Each oil is certified organic or wild-crafted, containing potent phytochemicals and antioxidants to support your health. 
 
 
-### [Woolzies Stress Relief Oil Set: Soothing Essential Oils for Relaxation](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-stress-relief-oil-set-soothing-essential-oils-for-relaxation)
+### [Woolzies Stress Relief Oil Set: Soothing Essential Oils for Relaxation](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=woolzies-stress-relief-oil-set-soothing-essential-oils-for-relaxation)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-stress-relief-oil-set-soothing-essential-oils-for-relaxation"><img alt="woolzies-relax-oil-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-relax-oil-set-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=woolzies-stress-relief-oil-set-soothing-essential-oils-for-relaxation"><img alt="woolzies-relax-oil-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/woolzies-relax-oil-set-1/h=540,fit=pad,background=black"/></a></div>
 
 Woolzies Relax Oil Set is a versatile collection of essential oils designed to soothe and uplift the mind and body, effectively reducing stress and anxiety. The set includes lavender and eucalyptus essential oils, both of which offer distinct and therapeutic benefits. 
 
@@ -467,9 +467,9 @@ Its warming and soothing properties are beneficial for treating poor circulation
 Users have praised these oils for their calming scents and ability to unwind after a long day, recommending them to others for an overall wellness experience. 
 
 
-### [Eucalyptus Essential Oil for Purifying and Invigorating Wellness](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-essential-oil-for-purifying-and-invigorating-wellness)
+### [Eucalyptus Essential Oil for Purifying and Invigorating Wellness](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=eucalyptus-essential-oil-for-purifying-and-invigorating-wellness)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-essential-oil-for-purifying-and-invigorating-wellness"><img alt="the-vitamin-shoppe-eucalyptus-100-pure-essential-oil-aromatherapy-1-fluid-ounce-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-vitamin-shoppe-eucalyptus-100-pure-essential-oil-aromatherapy-1-fluid-ounce-1-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=eucalyptus-essential-oil-for-purifying-and-invigorating-wellness"><img alt="the-vitamin-shoppe-eucalyptus-100-pure-essential-oil-aromatherapy-1-fluid-ounce-1-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-vitamin-shoppe-eucalyptus-100-pure-essential-oil-aromatherapy-1-fluid-ounce-1-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Vitamin Shoppe Eucalyptus 100% Pure Essential Oil, a fantastic aromatherapy oil suitable for everyday wellness seekers. With a purifying and invigorating scent, this cruelty-free oil provides sensory support for your daily needs. Steam-distilled from the fresh leaves of Eucalyptus globulus, this oil packs a punch in terms of freshness and purity. Use it in a diffuser or mix it with a carrier oil to use topically for an added touch of calmness. 
 
@@ -480,9 +480,9 @@ However, it's essential to understand the importance of carrier oils when workin
 In summary, the Vitamin Shoppe Eucalyptus 100% Pure Essential Oil brings a fresh, purifying, and invigorating aroma to your daily routine. It's an excellent choice for those who want a high-quality essential oil that's both affordable and packed with beneficial properties. 
 
 
-### [Plant Therapy Copaiba Essential Oil: 100% Pure, Undiluted For Bloating](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=plant-therapy-copaiba-essential-oil-100-pure-undiluted-for-bloating)
+### [Plant Therapy Copaiba Essential Oil: 100% Pure, Undiluted For Bloating](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=plant-therapy-copaiba-essential-oil-100-pure-undiluted-for-bloating)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=plant-therapy-copaiba-essential-oil-100-pure-undiluted-for-bloating"><img alt="plant-therapy-copaiba-oleoresin-organic-essential-oil-100-pure-undiluted-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-copaiba-oleoresin-organic-essential-oil-100-pure-undiluted-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=plant-therapy-copaiba-essential-oil-100-pure-undiluted-for-bloating"><img alt="plant-therapy-copaiba-oleoresin-organic-essential-oil-100-pure-undiluted-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plant-therapy-copaiba-oleoresin-organic-essential-oil-100-pure-undiluted-1/h=540,fit=pad,background=black"/></a></div>
 
 When it comes to natural remedies, Copaiba Oleoresin is truly a versatile ally. This organic essential oil has been praised for its ability to soothe digestive issues and strengthen the immune system, not to mention it provides relief for tired, aching muscles and joints. But that's not all, its benefits extend to your skincare routine, helping to tighten and even out the skin's tone. 
 
@@ -491,9 +491,9 @@ The subtle, woody aroma of this essential oil is a delightful bonus, making it p
 By supporting the organic and sustainable production of this essential oil, you're helping to protect our natural landscapes and ecosystems for generations to come. 
 
 
-### [Lavender Essential Oil for Stress Relief and Skin Care](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=lavender-essential-oil-for-stress-relief-and-skin-care)
+### [Lavender Essential Oil for Stress Relief and Skin Care](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=lavender-essential-oil-for-stress-relief-and-skin-care)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=lavender-essential-oil-for-stress-relief-and-skin-care"><img alt="lavender-15ml-essential-oils-by-young-living-essential-oils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lavender-15ml-essential-oils-by-young-living-essential-oils-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=lavender-essential-oil-for-stress-relief-and-skin-care"><img alt="lavender-15ml-essential-oils-by-young-living-essential-oils-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lavender-15ml-essential-oils-by-young-living-essential-oils-1/h=540,fit=pad,background=black"/></a></div>
 
 Lavender, a versatile essential oil by Young Living, is a must-have for every home due to its therapeutic benefits. With a sweet, floral scent, it serves as an adaptogen, helping the body adapt to stress or imbalances. 
 
@@ -502,9 +502,9 @@ Perfect for relaxation before bed, it also boosts stamina and energy. As a skinc
 Its high ORAC score of 3,669 further highlights its antioxidant properties, making it a valuable addition to any wellness routine. 
 
 
-### [100% Pure Rosemary Essential Oil: Aromatherapy, Scalp & Skin Care for Glowing Hair and Healthy Skin](https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=100-pure-rosemary-essential-oil-aromatherapy-scalp-skin-care-for-glowing-hair-and-healthy-skin)
+### [100% Pure Rosemary Essential Oil: Aromatherapy, Scalp & Skin Care for Glowing Hair and Healthy Skin](https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm\_term=100-pure-rosemary-essential-oil-aromatherapy-scalp-skin-care-for-glowing-hair-and-healthy-skin)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Essential+Oils+For+Bells+Palsy?utm_term=100-pure-rosemary-essential-oil-aromatherapy-scalp-skin-care-for-glowing-hair-and-healthy-skin"><img alt="100-pure-rosemary-essential-oil-for-therapeutic-aromatherapy-stimulating-scalp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-pure-rosemary-essential-oil-for-therapeutic-aromatherapy-stimulating-scalp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bells+Palsy?utm_term=100-pure-rosemary-essential-oil-aromatherapy-scalp-skin-care-for-glowing-hair-and-healthy-skin"><img alt="100-pure-rosemary-essential-oil-for-therapeutic-aromatherapy-stimulating-scalp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/100-pure-rosemary-essential-oil-for-therapeutic-aromatherapy-stimulating-scalp-1/h=540,fit=pad,background=black"/></a></div>
 
 This premium rosemary essential oil is formulated for therapeutic aromatherapy purposes, providing stimulation to the scalp while promoting self-care. It's an excellent choice for those interested in DIY beauty projects, as it helps to improve skin, hair, and maintain a cleaner scalp for a radiant appearance. 
 

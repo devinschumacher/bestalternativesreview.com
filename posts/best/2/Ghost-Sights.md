@@ -15,36 +15,36 @@ Welcome to our spookily exciting roundup of the best Ghost Sights! Whether you'r
 ## Reviews
 
 
-### [ATN PS31-3HPTA US Gen 3 Night Vision Goggle with Ghost Sights](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=atn-ps31-3hpta-us-gen-3-night-vision-goggle-with-ghost-sights)
+### [ATN PS31-3HPTA US Gen 3 Night Vision Goggle with Ghost Sights](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=atn-ps31-3hpta-us-gen-3-night-vision-goggle-with-ghost-sights)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=atn-ps31-3hpta-us-gen-3-night-vision-goggle-with-ghost-sights"><img alt="atn-ps31-3hpta-night-vision-goggle-us-gen-3-nvgops313hpa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-ps31-3hpta-night-vision-goggle-us-gen-3-nvgops313hpa-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=atn-ps31-3hpta-us-gen-3-night-vision-goggle-with-ghost-sights"><img alt="atn-ps31-3hpta-night-vision-goggle-us-gen-3-nvgops313hpa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-ps31-3hpta-night-vision-goggle-us-gen-3-nvgops313hpa-1/h=540,fit=pad,background=black"/></a></div>
 
 The ATN PS31-3HPTA Gen 3 Night Vision Binoculars are a sleek and compact choice for anyone in need of night vision capabilities. With features like automatic brightness control and a built-in infrared illuminator, they offer impressive performance in low light conditions. 
 
 Users may appreciate the flip-up on and off design and the range of diopter adjustment available, making it easier to find the perfect fit for individual eye relief. However, some users have mentioned a higher-than-expected price point and a lack of additional accessories, like the battery mentioned in some reviews. Overall, these binoculars provide a solid night vision experience, but may need some extra attention to accessories and handling to fully meet expectations. 
 
 
-### [ATN PVS7 Generation 3 Night Vision Goggle](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=atn-pvs7-generation-3-night-vision-goggle)
+### [ATN PVS7 Generation 3 Night Vision Goggle](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=atn-pvs7-generation-3-night-vision-goggle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=atn-pvs7-generation-3-night-vision-goggle"><img alt="atn-pvs7-3whpt-night-vision-goggle-us-gen-3-white-phospher-nvgopvs73whp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-pvs7-3whpt-night-vision-goggle-us-gen-3-white-phospher-nvgopvs73whp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=atn-pvs7-generation-3-night-vision-goggle"><img alt="atn-pvs7-3whpt-night-vision-goggle-us-gen-3-white-phospher-nvgopvs73whp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-pvs7-3whpt-night-vision-goggle-us-gen-3-white-phospher-nvgopvs73whp-1/h=540,fit=pad,background=black"/></a></div>
 
 When I was in the military, I had the chance to use the ATN PVS7 night vision goggles during nighttime operations. The automatic brightness control feature was invaluable in keeping the goggles functioning perfectly in any light condition. Although the bulky head mount made it a bit cumbersome, the device's durability and reliability proved its worth in extreme low-light conditions. 
 
 My favorite element was the built-in infrared illuminator, which allowed me to see even in the pitch-black darkness. The PVS7 truly lived up to its reputation as the highest-quality PVS7 system on the market. 
 
 
-### [Right-handed Kinex Duel Bridge Hunter 5pin Sight with Dual Bridge Mounting and Precision Etch Markings](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=right-handed-kinex-duel-bridge-hunter-5pin-sight-with-dual-bridge-mounting-and-precision-etch-markings)
+### [Right-handed Kinex Duel Bridge Hunter 5pin Sight with Dual Bridge Mounting and Precision Etch Markings](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=right-handed-kinex-duel-bridge-hunter-5pin-sight-with-dual-bridge-mounting-and-precision-etch-markings)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=right-handed-kinex-duel-bridge-hunter-5pin-sight-with-dual-bridge-mounting-and-precision-etch-markings"><img alt="kinex-systems-duel-bridge-hunter-5-pin-019-sight-right-hand-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kinex-systems-duel-bridge-hunter-5-pin-019-sight-right-hand-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=right-handed-kinex-duel-bridge-hunter-5pin-sight-with-dual-bridge-mounting-and-precision-etch-markings"><img alt="kinex-systems-duel-bridge-hunter-5-pin-019-sight-right-hand-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kinex-systems-duel-bridge-hunter-5-pin-019-sight-right-hand-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to use the Kinex Systems Duel Bridge Hunter 5 Pin. 019 Sight for my weekend hunting trip. The product's durability was evident, as it held up well against the rough outdoors. The dual bridge mounting bracket and precision stackable pins are key features that add precision and stability when targeting a shot. 
 
 Although the fiber guard was a protective addition to prevent damage, it also had a drawback: it made it difficult to store the product in tight spaces. Nonetheless, the product's sleek design and the accuracy it provides outdoors make it a valuable investment for anyone looking to improve their archery skills. 
 
 
-### [Black Gold Rush Sight - High-Quality Bow Sight with SkyCoil Technology](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=black-gold-rush-sight-high-quality-bow-sight-with-skycoil-technology)
+### [Black Gold Rush Sight - High-Quality Bow Sight with SkyCoil Technology](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=black-gold-rush-sight-high-quality-bow-sight-with-skycoil-technology)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=black-gold-rush-sight-high-quality-bow-sight-with-skycoil-technology"><img alt="black-gold-rush-sight-black-4-pin-019-rh-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-rush-sight-black-4-pin-019-rh-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=black-gold-rush-sight-high-quality-bow-sight-with-skycoil-technology"><img alt="black-gold-rush-sight-black-4-pin-019-rh-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-rush-sight-black-4-pin-019-rh-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready for an unparalleled archery experience with Black Gold's Rush Sight, Black 4 Pin. 019 RH. Designed to provide maximum durability and pin protection, this sight boasts a machined aluminum guard and fluorescent interchangeable guard rings that enhance your peep alignment even in low light conditions. 
 
@@ -53,9 +53,9 @@ Equipped with a large adjustable level and sculpted base with an oversized clamp
 Don't miss out on the chance to upgrade your gear with the Black Gold Rush Sight, Black 4 Pin. 019 RH – the perfect combination of quality and affordability for any bow enthusiast. 
 
 
-### [Eastman Outfitters Dusk Vision Peep Sight: Perfect Aim for Low Light Conditions](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=eastman-outfitters-dusk-vision-peep-sight-perfect-aim-for-low-light-conditions)
+### [Eastman Outfitters Dusk Vision Peep Sight: Perfect Aim for Low Light Conditions](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=eastman-outfitters-dusk-vision-peep-sight-perfect-aim-for-low-light-conditions)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=eastman-outfitters-dusk-vision-peep-sight-perfect-aim-for-low-light-conditions"><img alt="eastman-outfitters-dusk-vision-peep-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eastman-outfitters-dusk-vision-peep-sight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=eastman-outfitters-dusk-vision-peep-sight-perfect-aim-for-low-light-conditions"><img alt="eastman-outfitters-dusk-vision-peep-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eastman-outfitters-dusk-vision-peep-sight-1/h=540,fit=pad,background=black"/></a></div>
 
 As I unboxed the Eastman Outfitters Dusk Vision Peep Sight, I couldn't help but feel excited to try it out. The sleek design and unique color scheme immediately caught my eye, making me curious to see how it would perform in the field. 
 
@@ -66,9 +66,9 @@ Despite its impressive features, there were a couple of small downsides to the E
 Overall, my experience with the Eastman Outfitters Dusk Vision Peep Sight has been overwhelmingly positive. The performance was top-notch, and the unique design set it apart from other peep sights on the market. If you're looking for a high-quality peep sight with ghost sights, the Eastman Outfitters Dusk Vision Peep Sight is definitely worth considering. 
 
 
-### [Cobra Mini Phantom Sight Fiber Optic Bow Sight - Brand New Ships in 24 Hours](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-in-24-hours)
+### [Cobra Mini Phantom Sight Fiber Optic Bow Sight - Brand New Ships in 24 Hours](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-in-24-hours)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-in-24-hours"><img alt="cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-n-24-hours-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-n-24-hours-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-in-24-hours"><img alt="cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-n-24-hours-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-mini-phantom-sight-fiber-optic-bow-sight-brand-new-ships-n-24-hours-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Cobra Mini Phantom Sight, a sleek and compact fiber optic bow sight. As someone who enjoys spending time outdoors, this product quickly caught my eye. What stood out to me was its lightweight design, making it perfect for all-day use, despite its small size. 
 
@@ -79,18 +79,18 @@ However, while the product is well-built and delivers excellent performance, I d
 Overall, I am highly impressed by the Cobra Mini Phantom Sight and would definitely recommend it to fellow archery enthusiasts. Its unique design and top-notch quality make it a must-have for anyone serious about improving their skills. 
 
 
-### [Cobra Stealth Black Ghost Sight for Efficient Shooting](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=cobra-stealth-black-ghost-sight-for-efficient-shooting)
+### [Cobra Stealth Black Ghost Sight for Efficient Shooting](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=cobra-stealth-black-ghost-sight-for-efficient-shooting)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=cobra-stealth-black-ghost-sight-for-efficient-shooting"><img alt="cobra-stealth-5-pin-019-sight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-stealth-5-pin-019-sight-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=cobra-stealth-black-ghost-sight-for-efficient-shooting"><img alt="cobra-stealth-5-pin-019-sight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-stealth-5-pin-019-sight-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Cobra Stealth 5 Pin. 019 Sight Black and I must say, I'm impressed. The lightweight design is perfect for a day in the woods, and it's surprisingly easy to adjust for windage and elevation. I love how the. 029" pins are fully-protected, and I've never had an issue with brightness. The 1.75" glo-orange ring is a great addition for quick target acquisition, and the built-in bubble level is quite helpful too. 
 
 However, there are a couple of drawbacks. For starters, it can be a bit pricey. Also, it might not be the best option for those who prefer a more compact sight. Nonetheless, the Cobra Stealth 5 Pin. 019 Sight Black has been a reliable companion on my hunting trips, and I would definitely recommend it to anyone looking for a durable and efficient sight. 
 
 
-### [Midwest Industries Henry X4 Ghost Ring PCC T1](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=midwest-industries-henry-x4-ghost-ring-pcc-t1)
+### [Midwest Industries Henry X4 Ghost Ring PCC T1](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=midwest-industries-henry-x4-ghost-ring-pcc-t1)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=midwest-industries-henry-x4-ghost-ring-pcc-t1"><img alt="midwest-industries-henry-x4-pcc-ghost-ring-t1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/midwest-industries-henry-x4-pcc-ghost-ring-t1-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=midwest-industries-henry-x4-ghost-ring-pcc-t1"><img alt="midwest-industries-henry-x4-pcc-ghost-ring-t1-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/midwest-industries-henry-x4-pcc-ghost-ring-t1-1/h=540,fit=pad,background=black"/></a></div>
 
 The Henry X4 PCC Ghost Ring T1 from Midwest Industries is a top-of-the-line sights solution for those who seek a reliable and long-lasting accessory for their firearms. Featuring a sleek and durable design that ensures top-notch performance, this product is the perfect addition to any firearm enthusiast's collection. 
 
@@ -101,18 +101,18 @@ While the Henry X4 PCC Ghost Ring T1 from Midwest Industries undoubtedly comes w
 In summary, the Henry X4 PCC Ghost Ring T1 from Midwest Industries is an excellent investment for those looking for top-notch sights for their firearms. Its numerous positives, including its ghost ring sights and durable construction, outweigh any potential drawbacks. 
 
 
-### [Apex Covert Dovetail Sight: Ghost Sight with 1 Pin](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=apex-covert-dovetail-sight-ghost-sight-with-1-pin)
+### [Apex Covert Dovetail Sight: Ghost Sight with 1 Pin](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=apex-covert-dovetail-sight-ghost-sight-with-1-pin)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=apex-covert-dovetail-sight-ghost-sight-with-1-pin"><img alt="apex-covert-dovetail-sight-1-pin-010-20" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-covert-dovetail-sight-1-pin-010-20/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=apex-covert-dovetail-sight-ghost-sight-with-1-pin"><img alt="apex-covert-dovetail-sight-1-pin-010-20" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-covert-dovetail-sight-1-pin-010-20/h=540,fit=pad,background=black"/></a></div>
 
 Experience the exceptional accuracy of Apex Covert Dovetail Sight with its innovative design that incorporates a quick change pin technology and a dovetail holder. The rear view strip, equipped with an adjustable pin indicator, allows for seamless setup while the micro-adjustable winding ensures pinpoint precision. This black sight boasts a versatile 1 Pin. 019 with easy one-hand adjustment and Versa Pin Technology, enabling shooters to customize the windage according to preference. 
 
 Catering to both right-hand and left-hand shooters, this sight offers a pre-printed yardage tape featuring over 120 options for exceptional calibration. Complemented by a gear-drive elevation control for smooth adjustment, this lightweight sight comes with a detachable bracket for a perfectly balanced and stable shooting experience. With its user-friendly design and unparalleled performance, the Apex Covert Dovetail Sight is your ultimate choice for boosting your archery skills. 
 
 
-### [Black Gold Dual Trac Front Sight Post Mount](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=black-gold-dual-trac-front-sight-post-mount)
+### [Black Gold Dual Trac Front Sight Post Mount](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=black-gold-dual-trac-front-sight-post-mount)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=black-gold-dual-trac-front-sight-post-mount"><img alt="black-gold-dual-trac-4-wing-truss-mount-sight-1011428" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-dual-trac-4-wing-truss-mount-sight-1011428/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=black-gold-dual-trac-front-sight-post-mount"><img alt="black-gold-dual-trac-4-wing-truss-mount-sight-1011428" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-gold-dual-trac-4-wing-truss-mount-sight-1011428/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Black Gold Dual Trac 4" Wing Truss Mount sight, a game-changing option for bow hunters in search of increased accuracy and efficiency. This sight stands out with its unique combination of single pin visibility, enhanced by a second independently adjustable pin, resulting in quicker aiming capabilities. 
 
@@ -123,18 +123,18 @@ Additional elements to appreciate include the Dial of Death feature that allows 
 While the Black Gold Dual Trac 4" Wing Truss Mount sight is exclusive to a limited number of regions like Hebron, Lebanon, and Obetz, its unparalleled performance makes it worth considering for those prioritizing accuracy and speed in bow hunting. 
 
 
-### [Ultra-Adjustable Apex Gear Covert LPA Sight](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=ultra-adjustable-apex-gear-covert-lpa-sight)
+### [Ultra-Adjustable Apex Gear Covert LPA Sight](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=ultra-adjustable-apex-gear-covert-lpa-sight)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=ultra-adjustable-apex-gear-covert-lpa-sight"><img alt="apex-gear-covert-4-pin-sight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-4-pin-sight-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=ultra-adjustable-apex-gear-covert-lpa-sight"><img alt="apex-gear-covert-4-pin-sight-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-4-pin-sight-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Apex Gear Covert 4-Pin Sight is a highly-adjustable multi-pin hunting sight that offers unparalleled accuracy and ease of use. With a roving bracket designed for ultimate precision, this sight allows you to lock it for a traditional fixed pin experience or unlock it for customizable yardage settings. The GRAVITY-LINE rotational adjustment ensures smooth pin movement and gravity alignment, guaranteeing pin-point accuracy. 
 
 Featuring over 120 pre-marked yardage tapes, the Apex Gear Covert simplifies the setup process, while the rear-facing yardage tape position offers easy visibility. The sight also includes adjustable yardage pointers and an illuminated level, making it easy to use in any light conditions. Its dampened end-of-travel stops ensure durability and stability, and the bracket is adjustable for both left- and right-handed users. The Apex Gear Covert 4-Pin Sight is a high-quality, cost-effective, and versatile choice for any hunter. 
 
 
-### [ATN PVS7-3 Night Vision Goggle for Enhanced Low Light Vision](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=atn-pvs7-3-night-vision-goggle-for-enhanced-low-light-vision)
+### [ATN PVS7-3 Night Vision Goggle for Enhanced Low Light Vision](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=atn-pvs7-3-night-vision-goggle-for-enhanced-low-light-vision)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=atn-pvs7-3-night-vision-goggle-for-enhanced-low-light-vision"><img alt="atn-pvs7-3-night-vision-goggle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-pvs7-3-night-vision-goggle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=atn-pvs7-3-night-vision-goggle-for-enhanced-low-light-vision"><img alt="atn-pvs7-3-night-vision-goggle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/atn-pvs7-3-night-vision-goggle-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to test out the ATN PVS7-3 Night Vision Goggle, and I have to say, it's an impressive piece of equipment! This device really comes in handy when you need to see what's going on in the darkest of environments. 
 
@@ -145,9 +145,9 @@ However, there are some drawbacks to consider. One of the main issues I encounte
 Overall, the ATN PVS7-3 Night Vision Goggle is a well-made, reliable piece of equipment that can make all the difference in the dark. Just be prepared to deal with a few minor nuances along the way. 
 
 
-### [Lightweight Cobra Smoke APG 5 Ghost Sight for Archery](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=lightweight-cobra-smoke-apg-5-ghost-sight-for-archery)
+### [Lightweight Cobra Smoke APG 5 Ghost Sight for Archery](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=lightweight-cobra-smoke-apg-5-ghost-sight-for-archery)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=lightweight-cobra-smoke-apg-5-ghost-sight-for-archery"><img alt="cobra-smoke-5-apg-bow-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-smoke-5-apg-bow-sight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=lightweight-cobra-smoke-apg-5-ghost-sight-for-archery"><img alt="cobra-smoke-5-apg-bow-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cobra-smoke-5-apg-bow-sight-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Cobra Smoke 5 APG Bow Sight a try during a hunting trip, and I have to say, I was intrigued by its features. The composite 2" round sight guard and glo-orange ring made it easy to acquire my target quickly. However, I found the metal. 019 fiber optic pins to be a bit weak when it came to adjusting the sight. 
 
@@ -156,9 +156,9 @@ One issue I encountered was that the balance bubble fell off just two days after
 Overall, the Cobra Smoke 5 APG Bow Sight has some promising features, such as the lightweight composite sight guard and the glo-orange ring for quick target acquisition. However, I would recommend beefing up the fiber optic pins and improving the durability of the balance bubble to make this sight a top-notch choice for hunters. 
 
 
-### [Apex Gear Covert 4 Pin Light .019 Open Sight - DB Black](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=apex-gear-covert-4-pin-light-019-open-sight-db-black)
+### [Apex Gear Covert 4 Pin Light .019 Open Sight - DB Black](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=apex-gear-covert-4-pin-light-019-open-sight-db-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=apex-gear-covert-4-pin-light-019-open-sight-db-black"><img alt="apex-gear-covert-4-pin-light-019-sight-db-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-4-pin-light-019-sight-db-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=apex-gear-covert-4-pin-light-019-open-sight-db-black"><img alt="apex-gear-covert-4-pin-light-019-sight-db-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-4-pin-light-019-sight-db-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I gave the Apex Gear Covert 4-Pin Sight a shot during my recent archery session, and let me tell you, it was a game-changer. This little beauty allowed me to switch between a multi-pin and sliding single-pin setup effortlessly. It's like having two sights in one! 
 
@@ -171,9 +171,9 @@ But once it was all set up, no more excruciating tweaks- and I could focus on my
 Just a heads-up though; it might be a bit bulky to handle for some shooters. But overall, it's worth giving a shot. After all, isn't that what archery's all about? 
 
 
-### [Apex Gear Covert 1 Pin Sight with Adjustable Windage and Elevation](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=apex-gear-covert-1-pin-sight-with-adjustable-windage-and-elevation)
+### [Apex Gear Covert 1 Pin Sight with Adjustable Windage and Elevation](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=apex-gear-covert-1-pin-sight-with-adjustable-windage-and-elevation)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=apex-gear-covert-1-pin-sight-with-adjustable-windage-and-elevation"><img alt="apex-gear-covert-1-pin-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-1-pin-sight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=apex-gear-covert-1-pin-sight-with-adjustable-windage-and-elevation"><img alt="apex-gear-covert-1-pin-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/apex-gear-covert-1-pin-sight-1/h=540,fit=pad,background=black"/></a></div>
 
 The Apex Gear Covert 1 Pin Sight is a high-quality hunting accessory designed to enhance your accuracy and flexibility. Featuring a compact and lightweight design, this precision-machined aluminum sight is perfect for hunters seeking a reliable and easy-to-use option. With its vertical and horizontal tilt adjustments, you can easily customize the sight to match your shooting preferences. Additionally, the micro-adjustable windage and elevation settings allow for precise adjustments to ensure optimal accuracy. 
 
@@ -184,9 +184,9 @@ However, some users have reported issues with the sight's adjustability, as well
 Overall, the Apex Gear Covert 1 Pin Sight is a reliable and versatile hunting accessory that offers numerous customization options for improved accuracy. While some users have encountered issues with the adjustability and included components, the majority of reviews praise its performance and durability. 
 
 
-### [Lightweight 5-Pin Storm Ghost Sight for Hunting](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=lightweight-5-pin-storm-ghost-sight-for-hunting)
+### [Lightweight 5-Pin Storm Ghost Sight for Hunting](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=lightweight-5-pin-storm-ghost-sight-for-hunting)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=lightweight-5-pin-storm-ghost-sight-for-hunting"><img alt="truglo-storm-5-pin-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=lightweight-5-pin-storm-ghost-sight-for-hunting"><img alt="truglo-storm-5-pin-sight-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-storm-5-pin-sight-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the Truglo Storm 5-Pin Sight, and I must say, it left me quite impressed. The product's first highlight, its lightweight and compact design, really shines. I found it to be incredibly easy to use, and its size made it perfect for taking on hunting trips. 
 
@@ -197,9 +197,9 @@ However, I did notice a few cons to this sight. The pins could use a bit more wr
 Overall, the Truglo Storm 5-Pin Sight was a great addition to my gear. Its small size, brightness, and adjustability make it an excellent choice for anyone looking for a reliable and functional sight. I would highly recommend it to fellow hunters and enthusiasts. 
 
 
-### [TSX Pro 5 Pin Ghost Sight with Light](https://serp.ly/@outrun/amazon/Ghost+Sights?utm\_term=tsx-pro-5-pin-ghost-sight-with-light)
+### [TSX Pro 5 Pin Ghost Sight with Light](https://serp.ly/@bar/amazon/Ghost+Sights?utm\_term=tsx-pro-5-pin-ghost-sight-with-light)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Ghost+Sights?utm_term=tsx-pro-5-pin-ghost-sight-with-light"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Ghost+Sights?utm_term=tsx-pro-5-pin-ghost-sight-with-light"><img alt="truglo-tsx-pro-5-pin-019-sight-black-w-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/truglo-tsx-pro-5-pin-019-sight-black-w-light-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're an archery enthusiast looking for a new sight to enhance your target shooting experience, the Truglo TSX Pro Series Standard Sight might be the perfect addition to your gear. With an award-winning design, this lightweight sight delivers high-quality accuracy and offers a range of features to suit various shooting conditions. The durable, black finish ensures your sight remains protected while the stainless steel tube helps illuminate the pins. Adjustable brightness for the light allows for clear visibility in any lighting situation, making it perfect for both indoor and outdoor use. 
 
@@ -215,7 +215,7 @@ Night vision solutions are a crucial component for enhancing your low-light accu
 
 ### Essential Features
 
-<div><a href="https://serp.ly/@outrun/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-2/h=540,fit=pad,background=black" alt="Ghost-Sights-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-2/h=540,fit=pad,background=black" alt="Ghost-Sights-2" height="540"></a></div>
 
 When choosing a night vision device, contemplate the following features: 
 1. Magnification: The magnification level dictates the distance you can effectively aim with the device. A higher magnification may be more challenging to use in certain circumstances, so consider a balance that best caters to your preferences. 2. Reticle Pattern: Reticles provide reference points for aiming. Common patterns include simple crosshairs, dot-based sights, and more intricate options. Opt for a reticle pattern that aligns with your shooting style and comfort level. 
@@ -226,7 +226,7 @@ When choosing a night vision device, contemplate the following features:
 Before committing to a purchase, reflect on the following factors: 
 1. Compatibility: Ensure the night vision device is compatible with your firearm and optics. 2. Adaptability: Consider if the device is adjustable to accommodate various lighting conditions or shooting distances. 3. Durability: Opt for a night vision device constructed from high-quality materials capable of enduring harsh conditions. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-3/h=540,fit=pad,background=black" alt="Ghost-Sights-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-3/h=540,fit=pad,background=black" alt="Ghost-Sights-3" height="540"></a></div>
 
 
 ### General Advice
@@ -239,7 +239,7 @@ Night vision devices offer significant assistance for low-light shooting. By con
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-4/h=540,fit=pad,background=black" alt="Ghost-Sights-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-4/h=540,fit=pad,background=black" alt="Ghost-Sights-4" height="540"></a></div>
 
 
 ### What are Ghost Sights?
@@ -248,7 +248,7 @@ Ghost Sights are a type of optical sight that has gained popularity among shoote
 
 Ghost Sights come in various designs and models, each with its own set of features and performance characteristics. Some popular options include the Trijicon RMR (Ruggedized Miniature Reflex), EOTECH HWS (Holographic Weapon Sight), and the Aimpoint PRO (Patrol Rifle Optic). These sights are often mounted on pistols, rifles, or shotguns to enhance accuracy and target acquisition under different shooting conditions. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-5/h=540,fit=pad,background=black" alt="Ghost-Sights-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-5/h=540,fit=pad,background=black" alt="Ghost-Sights-5" height="540"></a></div>
 
 
 ### What are the advantages of using Ghost Sights?
@@ -260,7 +260,7 @@ Second, Ghost Sights are typically highly durable and resistant to harsh environ
 
 ### How do I choose the right Ghost Sight for my firearm?
 
-<div><a href="https://serp.ly/@outrun/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-6/h=540,fit=pad,background=black" alt="Ghost-Sights-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Ghost+Sights"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Ghost-Sights-6/h=540,fit=pad,background=black" alt="Ghost-Sights-6" height="540"></a></div>
 
 When selecting a Ghost Sight, it is essential to consider the size, shape, and mounting position of the sight. Different manufacturers offer varying sizes and styles to accommodate different types of firearms and shooting preferences. It is also important to ensure that the chosen sight is compatible with your firearm's specifications, such as the receiver's dimensions and the type of rail used for mounting purposes. 
 

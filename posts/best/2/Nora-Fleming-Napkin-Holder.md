@@ -17,18 +17,18 @@ Discover the art of presentation and get ready to impress your guests with our t
 ## Reviews
 
 
-### [Nora Fleming Melamine Guest Towel Holder - Customizable Napkin Holder](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-guest-towel-holder-customizable-napkin-holder)
+### [Nora Fleming Melamine Guest Towel Holder - Customizable Napkin Holder](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-guest-towel-holder-customizable-napkin-holder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-guest-towel-holder-customizable-napkin-holder"><img alt="nora-fleming-melamine-guest-towel-holder-off-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-guest-towel-holder-off-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-guest-towel-holder-customizable-napkin-holder"><img alt="nora-fleming-melamine-guest-towel-holder-off-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-guest-towel-holder-off-white-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of using the Nora Fleming Off White Melamine Guest Towel Holder, and I must say, it exceeded my expectations. With its versatile shape and pearl design, this tray seamlessly blends into any decor. I particularly appreciated that it's BPA-free and completely food-safe, making it perfect for casual dining or outdoor gatherings. 
 
 The tray is also shatter-proof and kid-friendly, ensuring it can withstand the wear and tear that comes with hosting events. However, I found it a bit disappointing that it's not microwave safe, which I hope to see in future versions. Overall, the Nora Fleming Melamine Guest Towel Holder is a great addition to my hosting essentials, and it will definitely accompany me to many more gatherings in the future. 
 
 
-### [Eva Solo Nordic Kitchen Napkin Holder with Timeless Style](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=eva-solo-nordic-kitchen-napkin-holder-with-timeless-style)
+### [Eva Solo Nordic Kitchen Napkin Holder with Timeless Style](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=eva-solo-nordic-kitchen-napkin-holder-with-timeless-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=eva-solo-nordic-kitchen-napkin-holder-with-timeless-style"><img alt="eva-solo-nordic-kitchen-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/eva-solo-nordic-kitchen-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=eva-solo-nordic-kitchen-napkin-holder-with-timeless-style"><img alt="eva-solo-nordic-kitchen-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/eva-solo-nordic-kitchen-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I've found the Eva Solo Nordic Kitchen Napkin Holder to be a handy and stylish addition to any table setting. The combination of matte black plastic and oiled oak wood creates a timeless and sleek design that fits perfectly with my Nordic-inspired decor. Although I initially faced some difficulties in figuring out the compatible roll size, the napkin holder has proved to be quite practical and easy to use once I understood the dimensions. 
 
@@ -37,9 +37,9 @@ Its modern design makes it a great match for both indoor and outdoor settings, a
 Overall, the Eva Solo Nordic Kitchen Napkin Holder is a practical and decorative solution for keeping napkins tidy and easily accessible while adding a touch of elegance to any table setting. 
 
 
-### [Martha Stewart Collection White Napkin Holder with Beechwood Base](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=martha-stewart-collection-white-napkin-holder-with-beechwood-base)
+### [Martha Stewart Collection White Napkin Holder with Beechwood Base](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=martha-stewart-collection-white-napkin-holder-with-beechwood-base)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=martha-stewart-collection-white-napkin-holder-with-beechwood-base"><img alt="martha-stewart-collection-white-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/martha-stewart-collection-white-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=martha-stewart-collection-white-napkin-holder-with-beechwood-base"><img alt="martha-stewart-collection-white-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/martha-stewart-collection-white-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first laid eyes on the Martha Stewart Collection White Napkin Holder, I knew it would be a game-changer for my dining table. The sleek metal and warm beechwood base effortlessly blend together, creating a chic and timeless design that instantly uplifts any space. 
 
@@ -50,9 +50,9 @@ One of the standout features of this napkin holder is its size, which is just ri
 Overall, I highly recommend the Martha Stewart Collection White Napkin Holder for anyone looking to add a touch of elegance and sophistication to their dining table without breaking the bank. It's a must-have accessory that will elevate your dining experience and impress your guests. 
 
 
-### [Nora Fleming Candy & Napkin Holder - Customizable and Stylish](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-candy-napkin-holder-customizable-and-stylish)
+### [Nora Fleming Candy & Napkin Holder - Customizable and Stylish](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-candy-napkin-holder-customizable-and-stylish)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-candy-napkin-holder-customizable-and-stylish"><img alt="nora-fleming-candy-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nora-fleming-candy-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-candy-napkin-holder-customizable-and-stylish"><img alt="nora-fleming-candy-napkin-holder-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/nora-fleming-candy-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 I stumbled upon the Nora Fleming Candy Napkin Holder during a brunch with friends, and it instantly caught my attention. This versatile holder perfectly combines a napkin holder with a candy dish, all while displaying an elegant yet functional design that complements any table setting. 
 
@@ -61,9 +61,9 @@ The product's durability impressed me with its stoneware base and the signature 
 Overall, I recommend this Nora Fleming Candy Napkin Holder for those in search of a stylish and practical option for their dining table. Its durability, versatility, and classic design will surely impress your guests and make your guests feel right at home. 
 
 
-### [Grove White Lacquer Cocktail Napkin Holder](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=grove-white-lacquer-cocktail-napkin-holder)
+### [Grove White Lacquer Cocktail Napkin Holder](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=grove-white-lacquer-cocktail-napkin-holder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=grove-white-lacquer-cocktail-napkin-holder"><img alt="white-lacquer-cocktail-napkin-holder-the-grove-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/white-lacquer-cocktail-napkin-holder-the-grove-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=grove-white-lacquer-cocktail-napkin-holder"><img alt="white-lacquer-cocktail-napkin-holder-the-grove-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/white-lacquer-cocktail-napkin-holder-the-grove-1/h=540,fit=pad,background=black"/></a></div>
 
 My experience with the White Lacquer Cocktail Napkin Holder from The Grove has been quite pleasant. With its elegantly designed lacquer finish, it easily fits in with any décor, making it a versatile addition to my tabletop. Its perfect size to hold most cocktail napkins adds functionality to its charm. 
 
@@ -72,36 +72,36 @@ What stood out in my experience was its durability and the ease of use. I felt t
 Overall, I believe this White Lacquer Cocktail Napkin Holder would be an excellent choice for those looking for a stylish and functional cocktail napkin holder that can complement any table setting all year round. 
 
 
-### [Nora Fleming Melamine Paper Towel Holder in Pinstripes](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-paper-towel-holder-in-pinstripes)
+### [Nora Fleming Melamine Paper Towel Holder in Pinstripes](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-paper-towel-holder-in-pinstripes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-paper-towel-holder-in-pinstripes"><img alt="nora-fleming-melamine-paper-towel-holder-pinstripes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-paper-towel-holder-pinstripes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-paper-towel-holder-in-pinstripes"><img alt="nora-fleming-melamine-paper-towel-holder-pinstripes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-paper-towel-holder-pinstripes-1/h=540,fit=pad,background=black"/></a></div>
 
 Make cleanup a breeze with this Nora Fleming Pinstripe melamine paper towel holder. Not only is it BPA free and food safe, making it safe for your kitchen, but it's also dishwasher safe for ease of cleaning. The mini on display adds a delightful touch to your decor and can even be personalized with a mini of your choice for added customization. 
 
 With dimensions of 9" x 7.5" x 13.5", it's the perfect size for your kitchen. Although it's not microwave safe, this paper towel holder is already a fan favorite, boasting a 5.0-star rating and 4.0 reviews. 
 
 
-### [Versatile Nora Fleming Pinstripes Napkin & Candy Holder, Suitable for Entertaining](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=versatile-nora-fleming-pinstripes-napkin-candy-holder-suitable-for-entertaining)
+### [Versatile Nora Fleming Pinstripes Napkin & Candy Holder, Suitable for Entertaining](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=versatile-nora-fleming-pinstripes-napkin-candy-holder-suitable-for-entertaining)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=versatile-nora-fleming-pinstripes-napkin-candy-holder-suitable-for-entertaining"><img alt="nora-fleming-candy-napkin-holder-pinstripes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-candy-napkin-holder-pinstripes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=versatile-nora-fleming-pinstripes-napkin-candy-holder-suitable-for-entertaining"><img alt="nora-fleming-candy-napkin-holder-pinstripes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-candy-napkin-holder-pinstripes-1/h=540,fit=pad,background=black"/></a></div>
 
 The Nora Fleming Candy Napkin Holder Pinstripes is a versatile addition to any dining or entertaining space, offering a stylish and practical solution for holding cocktail napkins or sweets. With the option to select a base that matches the occasion, the stoneware design not only looks great but is also durable and suitable for various styles of entertaining. Its dishwasher and microwave-safe feature make it easy to maintain and clean, making it a popular choice for everyday use. 
 
 Customers have praised its size, functionality, and quick shipping, giving it a high rating and praising its versatility. 
 
 
-### [Nora Fleming Melamine Paper Towel and Napkin Holder Set](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-paper-towel-and-napkin-holder-set)
+### [Nora Fleming Melamine Paper Towel and Napkin Holder Set](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-melamine-paper-towel-and-napkin-holder-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-paper-towel-and-napkin-holder-set"><img alt="nora-fleming-melamine-paper-towel-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-paper-towel-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-melamine-paper-towel-and-napkin-holder-set"><img alt="nora-fleming-melamine-paper-towel-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-melamine-paper-towel-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added a Nora Fleming Melamine Paper Towel Holder to my kitchen. With its BPA-free and food-safe melamine construction, it's the perfect addition for casual and outdoor dining. The shatter-proof design also makes it a kid-friendly choice. 
 
 It's easy to swap out the decorative minis to match any holiday or occasion, making it an essential accessory for everyday use. It might not be microwave safe, but being dishwasher safe means it's still a handy and durable option in my kitchen. 
 
 
-### [Elegant Nora Fleming Diagonal Napkin Holder](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=elegant-nora-fleming-diagonal-napkin-holder)
+### [Elegant Nora Fleming Diagonal Napkin Holder](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=elegant-nora-fleming-diagonal-napkin-holder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=elegant-nora-fleming-diagonal-napkin-holder"><img alt="diagonal-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diagonal-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=elegant-nora-fleming-diagonal-napkin-holder"><img alt="diagonal-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diagonal-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across this Diagonal Napkin Holder, and I must say, it has been a game-changer for my table setting. With a slanted shape in Marble White, it adds a touch of elegance and uniqueness to any room. Not only does it perfectly hold my napkins, but it also matches my other Nora Fleming products in the Color & Clear Collection. 
 
@@ -110,9 +110,9 @@ Plus, the 2.5 inch Napkin Dispenser in Modern Lucite Marble and Glitter Colors i
 Overall, this Diagonal Napkin Holder is a must-have for any stylish table setting. 
 
 
-### [Nora Fleming L6 Vertical Napkin Holder](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-l6-vertical-napkin-holder)
+### [Nora Fleming L6 Vertical Napkin Holder](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=nora-fleming-l6-vertical-napkin-holder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-l6-vertical-napkin-holder"><img alt="nora-fleming-vertical-napkin-holder-l6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-vertical-napkin-holder-l6-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=nora-fleming-l6-vertical-napkin-holder"><img alt="nora-fleming-vertical-napkin-holder-l6-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nora-fleming-vertical-napkin-holder-l6-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the charming Nora Fleming Vertical Napkin Holder, a fantastic addition to any table setting. With its classic design and fun twist, this versatile holder is perfect for everyday luncheons or special occasions. The charming pearl design of the base complements any tablescape, making it a delightful choice for any entertaining event. 
 
@@ -123,18 +123,18 @@ For those looking to customize their Nora Fleming holder, you have the option to
 Dishing out praise for the Nora Fleming Vertical Napkin Holder, users have found it to be dishwasher safe, microwave safe, and suitable for various entertaining styles. Reviews highlight the delight of giving this as a gift and the receiver's satisfaction with the choice. Bring a touch of Nora Fleming charm to your tablescape, and elevate your dining experience with this captivating vertical napkin holder. 
 
 
-### [Mango Wood and Metal Inlay Napkin Holder](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=mango-wood-and-metal-inlay-napkin-holder)
+### [Mango Wood and Metal Inlay Napkin Holder](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=mango-wood-and-metal-inlay-napkin-holder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=mango-wood-and-metal-inlay-napkin-holder"><img alt="gg-collection-wood-and-metal-inlay-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gg-collection-wood-and-metal-inlay-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=mango-wood-and-metal-inlay-napkin-holder"><img alt="gg-collection-wood-and-metal-inlay-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gg-collection-wood-and-metal-inlay-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 The GG Collection Wood and Metal Inlay Napkin Holder effortlessly elevates your dining experience with its sophisticated design. Handcrafted to perfection, this napkin holder boasts a luxurious blend of mango wood and metal components, creating an eye-catching addition to any table setting. With dimensions of 18 inches in height, 19 inches in length, and 11.25 inches in width, it offers ample space to display your favorite classic white or intricately printed paper towels. The intricate wooden holder is meticulously chosen for its durability, ensuring it will serve as a reliable napkin storage solution for years to come. 
 
 For smooth, effortless cleanup, simply wipe the surface with a mild soapy washcloth and dry with a soft cloth. The ornately detailed spiraled weight provides added security, holding your table napkins steadfast until needed. This charming, high-quality napkin holder is sure to leave a lasting impression on your guests, turning even the most ordinary meal into a memorable occasion. 
 
 
-### [Traditional Scrollwork Cast Metal Napkin Holder for Formal Dinner Tables](https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm\_term=traditional-scrollwork-cast-metal-napkin-holder-for-formal-dinner-tables)
+### [Traditional Scrollwork Cast Metal Napkin Holder for Formal Dinner Tables](https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm\_term=traditional-scrollwork-cast-metal-napkin-holder-for-formal-dinner-tables)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Nora+Fleming+Napkin+Holder?utm_term=traditional-scrollwork-cast-metal-napkin-holder-for-formal-dinner-tables"><img alt="gg-collection-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gg-collection-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Nora+Fleming+Napkin+Holder?utm_term=traditional-scrollwork-cast-metal-napkin-holder-for-formal-dinner-tables"><img alt="gg-collection-napkin-holder-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/gg-collection-napkin-holder-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of using the GG Collection Napkin Holder, and I must say, it added a touch of elegance to my dining table. The vintage scrolling of the cast metal Acanthus Leaf motif truly resonates with the "Old World" charm, making my table setting feel more luxurious. 
 

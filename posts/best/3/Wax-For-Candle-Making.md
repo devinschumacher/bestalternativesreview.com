@@ -15,9 +15,9 @@ Are you ready to dive into the world of candle making? Let us guide you through 
 ## Reviews
 
 
-### [Haccah Soy Wax Candle Making Kit - Beginner Friendly DIY Art&Crafts Kit for Candle Making with 5lbs Soy Wax Flakes](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=haccah-soy-wax-candle-making-kit-beginner-friendly-diy-artcrafts-kit-for-candle-making-with-5lbs-soy-wax-flakes)
+### [Haccah Soy Wax Candle Making Kit - Beginner Friendly DIY Art&Crafts Kit for Candle Making with 5lbs Soy Wax Flakes](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=haccah-soy-wax-candle-making-kit-beginner-friendly-diy-artcrafts-kit-for-candle-making-with-5lbs-soy-wax-flakes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=haccah-soy-wax-candle-making-kit-beginner-friendly-diy-artcrafts-kit-for-candle-making-with-5lbs-soy-wax-flakes"><img alt="haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=haccah-soy-wax-candle-making-kit-beginner-friendly-diy-artcrafts-kit-for-candle-making-with-5lbs-soy-wax-flakes"><img alt="haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently enjoyed an amazing experience with the Haccah Soy Wax Candle Making Kit, and I've decided to share my thoughts with you all! This kit is perfect for both beginners and seasoned candle creators, including adults and kids. With a vast array of colors and scents to select from, you can design and craft your own unique candles that truly showcase your character and style. 
 
@@ -26,9 +26,9 @@ The Haccah Soy Wax Candle Making Kit provides everything you need to embark on t
 In conclusion, the Haccah Soy Wax Candle Making Kit is an exceptional choice for anyone looking to explore the captivating world of candle making. It's a fun and engaging way to unleash your creativity and bond with loved ones during a quality time together. 
 
 
-### [Ultimate Soy Wax Candle Making Kit for All-Natural Candles](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=ultimate-soy-wax-candle-making-kit-for-all-natural-candles)
+### [Ultimate Soy Wax Candle Making Kit for All-Natural Candles](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=ultimate-soy-wax-candle-making-kit-for-all-natural-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=ultimate-soy-wax-candle-making-kit-for-all-natural-candles"><img alt="hearts-and-crafts-soy-wax-and-diy-candle-making-supplies-10lb-bag-with-100-6-inch-pre-waxed-wicks-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearts-and-crafts-soy-wax-and-diy-candle-making-supplies-10lb-bag-with-100-6-inch-pre-waxed-wicks-2--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=ultimate-soy-wax-candle-making-kit-for-all-natural-candles"><img alt="hearts-and-crafts-soy-wax-and-diy-candle-making-supplies-10lb-bag-with-100-6-inch-pre-waxed-wicks-2--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearts-and-crafts-soy-wax-and-diy-candle-making-supplies-10lb-bag-with-100-6-inch-pre-waxed-wicks-2--1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Hearts and Crafts Soy Wax and DIY Candle Making Supplies, and I must say it was a delightful experience. The 10lb bag of soy wax arrived neatly packed with 100 pre-cut 6" candle wicks and 2 centering devices. The inclusion of natural soy wax in the kit was refreshing, as it is a healthier alternative to paraffin and other synthetic waxes, not to mention that it has a fantastic scent throw. 
 
@@ -37,27 +37,27 @@ With the wax flake form, I was easily able to pour it into a double boiler and m
 One downside was the absence of tin or glass jars or molds in the kit, leaving me to find alternative containers for the candles. However, it didn't hinder my ability to create lovely candles, and I would definitely recommend this kit to anyone looking for a natural and engaging hobby. The Hearts and Crafts DIY Candle Making Supplies is a perfect gift for the holiday season, and I can't wait to gift these homemade candles to my loved ones. 
 
 
-### [Pavelle Easy Candle DIY Kit for Kids & Adults with Natural Soy Wax](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=pavelle-easy-candle-diy-kit-for-kids-adults-with-natural-soy-wax)
+### [Pavelle Easy Candle DIY Kit for Kids & Adults with Natural Soy Wax](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=pavelle-easy-candle-diy-kit-for-kids-adults-with-natural-soy-wax)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=pavelle-easy-candle-diy-kit-for-kids-adults-with-natural-soy-wax"><img alt="pavelle-candle-making-kit-beginners-diy-gift-set-for-kids-adults-with-natural-soy-wax-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pavelle-candle-making-kit-beginners-diy-gift-set-for-kids-adults-with-natural-soy-wax-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=pavelle-easy-candle-diy-kit-for-kids-adults-with-natural-soy-wax"><img alt="pavelle-candle-making-kit-beginners-diy-gift-set-for-kids-adults-with-natural-soy-wax-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pavelle-candle-making-kit-beginners-diy-gift-set-for-kids-adults-with-natural-soy-wax-1/h=540,fit=pad,background=black"/></a></div>
 
 Delving into the fascinating world of candle crafting, I recently experimented with the Pavelle candle kit and was utterly enthralled. Crafted with eco-friendly soy wax, this kit invites users to indulge in a delightful and calming experience suitable for individuals of all ages. With a diverse assortment of components, this kit empowers everyone, no matter their proficiency in candle making, to participate in creating their own scented candles.
 
 The user-friendly, comprehensive guide eliminates any uncertainty, transforming even the most inexperienced into avid artisans. The kit's portable design makes it a perfect present or an ideal travel accessory. Although it requires two AAA batteries to operate, the kit's versatility and amusement factor outweigh the minor inconvenience, making it a wise investment for your creative pursuits.
 
 
-### [Soy Wax Candle Making Kit for All Seasons](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=soy-wax-candle-making-kit-for-all-seasons)
+### [Soy Wax Candle Making Kit for All Seasons](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=soy-wax-candle-making-kit-for-all-seasons)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=soy-wax-candle-making-kit-for-all-seasons"><img alt="hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-soy-candle-wax-flakes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-soy-candle-wax-flakes-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=soy-wax-candle-making-kit-for-all-seasons"><img alt="hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-soy-candle-wax-flakes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-soy-candle-wax-flakes-1/h=540,fit=pad,background=black"/></a></div>
 
 The Hearth & Harbor DIY Candle Making Kit offers a fun and creative way to experiment with scents and colors while making your own candles. This comprehensive starter kit is suitable for both professionals and beginners alike, with step-by-step instructions to ensure a safe and pleasant experience. The kit comes with natural soy wax flakes, along with melting pot candle tins, cotton wicks, glue dots, centering devices, and a choice of 16 wax dye colors and 4 fragrance oils. 
 
 Create beautiful, customized candles for yourself or share them as memorable gifts. 
 
 
-### [Haccah Wax for Candle Making Kit Supplies](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=haccah-wax-for-candle-making-kit-supplies)
+### [Haccah Wax for Candle Making Kit Supplies](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=haccah-wax-for-candle-making-kit-supplies)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=haccah-wax-for-candle-making-kit-supplies"><img alt="haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=haccah-wax-for-candle-making-kit-supplies"><img alt="haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/haccah-soy-wax-candle-making-kit-supplies-natural-candle-wax-for-candle-making-diy-artcrafts-kit-for-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried my hand at candle making with the Haccah Soy Wax Candle Making Kit. This DIY art and crafts kit for adults and kids alike was quite easy to use, and I had a blast selecting my favorite scent and color for my unique creation. 
 
@@ -66,27 +66,27 @@ The 2lbs of soy wax flakes included were of a high quality and melted smoothly, 
 All in all, I'm quite pleased with this product and can't wait to try my hand at making more candles! 
 
 
-### [All-Natural Soy Wax for Candle Making Kit](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=all-natural-soy-wax-for-candle-making-kit)
+### [All-Natural Soy Wax for Candle Making Kit](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=all-natural-soy-wax-for-candle-making-kit)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=all-natural-soy-wax-for-candle-making-kit"><img alt="craftbud-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/craftbud-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=all-natural-soy-wax-for-candle-making-kit"><img alt="craftbud-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/craftbud-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-1/h=540,fit=pad,background=black"/></a></div>
 
 CraftBud's Soy Candle Wax is the perfect companion for candle makers of all levels, providing an all-natural, easy-to-melt option for creating beautiful, handcrafted candles. The kit comes with everything you need, including clear instructions, to help you get started on your candle making journey. The natural soy wax flakes melt effortlessly, allowing you to create rich, vibrant colors that are sure to impress. 
 
 The stainless steel melting pot and stirring spoon included in the kit make the process of measuring, melting, stirring, and pouring a breeze. Whether you're looking for a fun activity for the whole family or a unique gift for a teenage girl, CraftBud's candle making kit is sure to ignite creativity and leave you with cherished memories. 
 
 
-### [Hearth & Harbor Soy Wax and 48 Candle Tins DIY Kit - Perfect for Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-soy-wax-and-48-candle-tins-diy-kit-perfect-for-candle-making)
+### [Hearth & Harbor Soy Wax and 48 Candle Tins DIY Kit - Perfect for Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-soy-wax-and-48-candle-tins-diy-kit-perfect-for-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-soy-wax-and-48-candle-tins-diy-kit-perfect-for-candle-making"><img alt="hearth-harbor-natural-soy-waxdiy-candle-making-supplies-kits-10lbs-wax-48-4oz-candle-tins-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-natural-soy-waxdiy-candle-making-supplies-kits-10lbs-wax-48-4oz-candle-tins-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-soy-wax-and-48-candle-tins-diy-kit-perfect-for-candle-making"><img alt="hearth-harbor-natural-soy-waxdiy-candle-making-supplies-kits-10lbs-wax-48-4oz-candle-tins-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-natural-soy-waxdiy-candle-making-supplies-kits-10lbs-wax-48-4oz-candle-tins-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out Hearth & Harbor's all-in-one candle making kit and let me tell you, it's a game changer! This premium kit comes with everything you need to create beautiful soy candles at home, from the soy wax flakes to the 48 round tin cans with lids. The 100 cotton wicks and glue stickers make it easy to assemble, and the two metal centering devices ensure your candles are evenly balanced. Plus, these tin cans are the perfect size for small, elegant gifts that friends and family will love. 
 
 On the other hand, the kit may not include everything you need to start making candles right away. Depending on your preferences, you might want to purchase a thermometer, heating pot, and essential oils separately. Overall, this DIY candle making kit offers great value for its price and provides a fun, creative activity to enjoy at home. 
 
 
-### [All-In-One Candle Making Kit with Soy Wax and Fragrances](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=all-in-one-candle-making-kit-with-soy-wax-and-fragrances)
+### [All-In-One Candle Making Kit with Soy Wax and Fragrances](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=all-in-one-candle-making-kit-with-soy-wax-and-fragrances)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=all-in-one-candle-making-kit-with-soy-wax-and-fragrances"><img alt="etuolife-complete-candle-making-kit-for-adults-kidscandle-making-supplies-include-soy-wax-for-candle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/etuolife-complete-candle-making-kit-for-adults-kidscandle-making-supplies-include-soy-wax-for-candle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=all-in-one-candle-making-kit-with-soy-wax-and-fragrances"><img alt="etuolife-complete-candle-making-kit-for-adults-kidscandle-making-supplies-include-soy-wax-for-candle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/etuolife-complete-candle-making-kit-for-adults-kidscandle-making-supplies-include-soy-wax-for-candle-1/h=540,fit=pad,background=black"/></a></div>
 
 Hey there, I've been using the ETUOLIFE Candle Making Kit for quite some time now and let me tell you, it's been quite the experience! To begin with, the kit comes with pretty much everything you need - soy wax, fragrance oils, dyes, jar, and even the stickers. 
 
@@ -97,9 +97,9 @@ The wax melting pot is another great feature of this kit. It's made from stainle
 However, there was one downside I came across. The instructions could have been a bit more detailed and clearer. But overall, it's been a fun and rewarding experience using this kit. Definitely worth a try! 
 
 
-### [All-Natural Soy Wax Flakes for Candle Making: Ideal for Scent Throw Applications](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=all-natural-soy-wax-flakes-for-candle-making-ideal-for-scent-throw-applications)
+### [All-Natural Soy Wax Flakes for Candle Making: Ideal for Scent Throw Applications](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=all-natural-soy-wax-flakes-for-candle-making-ideal-for-scent-throw-applications)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=all-natural-soy-wax-flakes-for-candle-making-ideal-for-scent-throw-applications"><img alt="golden-brand-464-soy-wax-flakes-all-natural-soy-wax-wholesale-wax-for-candle-making-supplies-45-lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/golden-brand-464-soy-wax-flakes-all-natural-soy-wax-wholesale-wax-for-candle-making-supplies-45-lb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=all-natural-soy-wax-flakes-for-candle-making-ideal-for-scent-throw-applications"><img alt="golden-brand-464-soy-wax-flakes-all-natural-soy-wax-wholesale-wax-for-candle-making-supplies-45-lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/golden-brand-464-soy-wax-flakes-all-natural-soy-wax-wholesale-wax-for-candle-making-supplies-45-lb-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Golden Brand 464 soy wax flakes a try in my daily candle-making hustle, and let me tell you, the experience was a rollercoaster ride. The first thing that stood out to me was the melt point - a full 10% lower melt point than what's typically expected, which gave the wax a velvety, smooth melt. That was something I'd never seen before from another wax brand. 
 
@@ -114,9 +114,9 @@ On the plus side, the packaging was straightforward, but a little more user-frie
 Overall, the Golden Brand 464 soy wax flakes have their advantages and drawbacks, so it's tough to give a final verdict. It's a bit like trying to read The Great Gatsby – there are moments of brilliance and then moments of utter frustration. But then again, life is like that sometimes, isn't it? 
 
 
-### [Penreco Gel Candle Wax for Easy Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=penreco-gel-candle-wax-for-easy-candle-making)
+### [Penreco Gel Candle Wax for Easy Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=penreco-gel-candle-wax-for-easy-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=penreco-gel-candle-wax-for-easy-candle-making"><img alt="2-lbs-high-density-penreco-gel-candle-wax-making-supplies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-lbs-high-density-penreco-gel-candle-wax-making-supplies-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=penreco-gel-candle-wax-for-easy-candle-making"><img alt="2-lbs-high-density-penreco-gel-candle-wax-making-supplies-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2-lbs-high-density-penreco-gel-candle-wax-making-supplies-1/h=540,fit=pad,background=black"/></a></div>
 
 As a candle enthusiast, I recently discovered the Penreco Gel Candle Wax making supplies and boy, did they exceed my expectations! The high density gel wax from Penreco, known for their Versagel brand, is easy to work with and versatile as it can accommodate suspended decorative objects, wax chunks, or even embed paraffin wax. 
 
@@ -129,18 +129,18 @@ With a 4.3 rating and over 6 reviews, it's clear that the Penreco Gel Candle Wax
 Overall, if you're looking for a beginner-friendly, easy-to-use wax for your candle creations, the Penreco Gel Candle Wax making supplies are definitely worth trying. 
 
 
-### [Premium Soy Wax for Candle Making - 10lb Bag](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=premium-soy-wax-for-candle-making-10lb-bag)
+### [Premium Soy Wax for Candle Making - 10lb Bag](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=premium-soy-wax-for-candle-making-10lb-bag)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=premium-soy-wax-for-candle-making-10lb-bag"><img alt="the-candlemakers-store-05417002641-natural-soy-wax-10-lb-bag-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-candlemakers-store-05417002641-natural-soy-wax-10-lb-bag-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=premium-soy-wax-for-candle-making-10lb-bag"><img alt="the-candlemakers-store-05417002641-natural-soy-wax-10-lb-bag-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-candlemakers-store-05417002641-natural-soy-wax-10-lb-bag-white-1/h=540,fit=pad,background=black"/></a></div>
 
 This candlemaking product is a remarkable container blend with a 125-125 melt point, enhanced by the addition of 2% Universal Soy Wax Additive. It impressively holds up to 15% fragrance and boasts a fantastic hot throw. 
 
 An added benefit is the ability to blend it with the 416 Soy wax to create delightful tarts. Although some users find the pricing steep, overall, this soy wax impresses with its quality and value. 
 
 
-### [Hemp Coconut Soy Blend Wax for Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hemp-coconut-soy-blend-wax-for-candle-making)
+### [Hemp Coconut Soy Blend Wax for Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hemp-coconut-soy-blend-wax-for-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hemp-coconut-soy-blend-wax-for-candle-making"><img alt="virginia-candle-supply-hemp-luxury-coconut-soy-blend-wax-11-25-pound-slab-great-for-containers-candl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/virginia-candle-supply-hemp-luxury-coconut-soy-blend-wax-11-25-pound-slab-great-for-containers-candl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hemp-coconut-soy-blend-wax-for-candle-making"><img alt="virginia-candle-supply-hemp-luxury-coconut-soy-blend-wax-11-25-pound-slab-great-for-containers-candl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/virginia-candle-supply-hemp-luxury-coconut-soy-blend-wax-11-25-pound-slab-great-for-containers-candl-1/h=540,fit=pad,background=black"/></a></div>
 
 This Hemp Coconut Soy blend wax is a versatile and sustainable option for those seeking a high-quality candle-making material. Known for its natural feel and even burn, it offers a range of beneficial properties. The wax is renewable, vegan, and non-toxic, making it a popular choice among candle makers who value sustainability and environmentally friendly practices. The 9-10% fragrance load makes it a reliable choice for creating fragranced candles. 
 
@@ -155,9 +155,9 @@ The wax is USA-made, offering local craftsmanship, and has a versatile size of 2
 However, it’s worth mentioning that the brand may only feature positive reviews on their website, potentially leading to a skewed perception of the product’s performance. But by considering all the positive reviews and its exceptional characteristics, one can confidently say that Hemp Coconut Soy wax is a high-quality and reliable choice for candle making. 
 
 
-### [ArtMinds Simple Serenity Paraffin Wax for Candle Making - High Quality Paraffin Wax for Pillar Candles](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=artminds-simple-serenity-paraffin-wax-for-candle-making-high-quality-paraffin-wax-for-pillar-candles)
+### [ArtMinds Simple Serenity Paraffin Wax for Candle Making - High Quality Paraffin Wax for Pillar Candles](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=artminds-simple-serenity-paraffin-wax-for-candle-making-high-quality-paraffin-wax-for-pillar-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=artminds-simple-serenity-paraffin-wax-for-candle-making-high-quality-paraffin-wax-for-pillar-candles"><img alt="artminds-simple-serenity-paraffin-wax-for-pillars-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artminds-simple-serenity-paraffin-wax-for-pillars-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=artminds-simple-serenity-paraffin-wax-for-candle-making-high-quality-paraffin-wax-for-pillar-candles"><img alt="artminds-simple-serenity-paraffin-wax-for-pillars-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/artminds-simple-serenity-paraffin-wax-for-pillars-each-1/h=540,fit=pad,background=black"/></a></div>
 
 As a candle enthusiast, I've always been looking for quality wax that can help me create the perfect pillar candles. When I came across ArtMinds Simple Serenity Paraffin Wax for Pillars, I was intrigued by the promise of an easy melt, beautiful color retention, and an enjoyable candle-making experience. 
 
@@ -168,27 +168,27 @@ However, my experience wasn't entirely positive. I noticed that the color retent
 Overall, while ArtMinds Simple Serenity Paraffin Wax for Pillars isn't perfect, it does offer a convenient and budget-friendly solution for candle enthusiasts who are just starting their crafting journey. With easy melt and an appealing color palette, this wax is a steal for those looking to create beautiful pillar candles without breaking the bank. 
 
 
-### [General Purpose Wax Block for Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=general-purpose-wax-block-for-candle-making)
+### [General Purpose Wax Block for Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=general-purpose-wax-block-for-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=general-purpose-wax-block-for-candle-making"><img alt="country-lane-general-purpose-candle-making-wax-10-pound-block-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/country-lane-general-purpose-candle-making-wax-10-pound-block-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=general-purpose-wax-block-for-candle-making"><img alt="country-lane-general-purpose-candle-making-wax-10-pound-block-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/country-lane-general-purpose-candle-making-wax-10-pound-block-1/h=540,fit=pad,background=black"/></a></div>
 
 As a candle enthusiast, I recently tried the Country Lane general purpose candle wax block, and let me tell you, it exceeded my expectations. Not only is it perfect for creating beautiful container candles, but it also works wonders for pillar candles and molds. The 10-pound block is a dream to handle, and the scentless, white wax base allows for endless possibilities when infusing it with your favorite essential oils. 
 
 What's more, this versatile wax yields enough for multiple projects, making it an ideal choice for anyone looking to start their candle-making journey. 
 
 
-### [Hearth & Harbor Complete Soy Wax Kit for DIY Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-complete-soy-wax-kit-for-diy-candle-making)
+### [Hearth & Harbor Complete Soy Wax Kit for DIY Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-complete-soy-wax-kit-for-diy-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-complete-soy-wax-kit-for-diy-candle-making"><img alt="hearth-harbor-natural-soy-wax-and-diy-candle-making-supplies-5-lbs-soy-candle-wax-flakes-24-candle-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-natural-soy-wax-and-diy-candle-making-supplies-5-lbs-soy-candle-wax-flakes-24-candle-w-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-complete-soy-wax-kit-for-diy-candle-making"><img alt="hearth-harbor-natural-soy-wax-and-diy-candle-making-supplies-5-lbs-soy-candle-wax-flakes-24-candle-w-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-natural-soy-wax-and-diy-candle-making-supplies-5-lbs-soy-candle-wax-flakes-24-candle-w-1/h=540,fit=pad,background=black"/></a></div>
 
 Create your own unique and aromatic candles with Hearth & Harbor's all-natural soy wax candle making kit. With 5 pounds of soy wax flakes, 24 candle wax color blocks, 100 cotton wicks, and 2 metal centering devices, you'll have everything you need to craft beautiful, long-lasting candles at home. 
 
 The 24 wax dyes in colors ranging from subtle to vibrant ensure your creations stand out, while their non-toxic and vegan formula provides peace of mind for DIY enthusiasts and candle lovers alike. 
 
 
-### [DIY Luxury Soy Wax Candle Making Kit by Hearts & Crafts](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=diy-luxury-soy-wax-candle-making-kit-by-hearts-crafts)
+### [DIY Luxury Soy Wax Candle Making Kit by Hearts & Crafts](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=diy-luxury-soy-wax-candle-making-kit-by-hearts-crafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=diy-luxury-soy-wax-candle-making-kit-by-hearts-crafts"><img alt="hearts-crafts-diy-complete-soy-wax-candle-making-kit-2lbs-soy-candle-wax-and-all-candle-making-suppl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearts-crafts-diy-complete-soy-wax-candle-making-kit-2lbs-soy-candle-wax-and-all-candle-making-suppl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=diy-luxury-soy-wax-candle-making-kit-by-hearts-crafts"><img alt="hearts-crafts-diy-complete-soy-wax-candle-making-kit-2lbs-soy-candle-wax-and-all-candle-making-suppl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearts-crafts-diy-complete-soy-wax-candle-making-kit-2lbs-soy-candle-wax-and-all-candle-making-suppl-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're in pursuit of creating your very own candles, our Hearts & Crafts DIY All-In-One Soy Wax Candle Making Set is your ticket to success. This meticulously curated package equips novices with all the essential tools required to embark on the path of crafting their own soy wax candles. The pre-treated candle wicks ensure a well-lit, smooth burn, while the pure, non-toxic soy wax promises a healthy, eco-conscious choice free of synthetic chemical laden wastes. 
 
@@ -199,9 +199,9 @@ The DIY All-In-One Soy Wax Candle Making Set comes equipped with 2lbs natural so
 With this DIY All-In-One Soy Wax Candle Making Kit, you've got the power to create your own customized candles, imbue your space with nature's goodness, and uncover the delight that comes from handcrafting. It serves as an ideal bonding activity for friends or family, creating memories while you craft your personalized candles. 
 
 
-### [Golden Brand All Natural Soy Wax Flakes for Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=golden-brand-all-natural-soy-wax-flakes-for-candle-making)
+### [Golden Brand All Natural Soy Wax Flakes for Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=golden-brand-all-natural-soy-wax-flakes-for-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=golden-brand-all-natural-soy-wax-flakes-for-candle-making"><img alt="golden-brand-415-soy-wax-flakes-all-natural-soy-wax-10-45lb-wholesale-candle-wax-for-candle-making-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/golden-brand-415-soy-wax-flakes-all-natural-soy-wax-10-45lb-wholesale-candle-wax-for-candle-making-s-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=golden-brand-all-natural-soy-wax-flakes-for-candle-making"><img alt="golden-brand-415-soy-wax-flakes-all-natural-soy-wax-10-45lb-wholesale-candle-wax-for-candle-making-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/golden-brand-415-soy-wax-flakes-all-natural-soy-wax-10-45lb-wholesale-candle-wax-for-candle-making-s-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I decided to give Golden Brand 415 Soy Wax a try for all my candle-making projects. I was pleasantly surprised by how easy it was to work with and the results I got. The wax held color dyes beautifully, and I didn't experience any unwanted frosting or crumbling tops. 
 
@@ -212,9 +212,9 @@ While I enjoyed the results, I did notice that the melt point could be a little 
 Overall, I highly recommend Golden Brand 415 Soy Wax to fellow candle-makers looking to produce high-quality candles with ease. Despite a few minor issues, its superior blendability and overall performance make it an excellent choice for both experienced and aspiring candlemakers. 
 
 
-### [Premium Soy Wax for Artisan Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=premium-soy-wax-for-artisan-candle-making)
+### [Premium Soy Wax for Artisan Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=premium-soy-wax-for-artisan-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=premium-soy-wax-for-artisan-candle-making"><img alt="candlescience-all-natural-soy-candle-wax-1-lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/candlescience-all-natural-soy-candle-wax-1-lb-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=premium-soy-wax-for-artisan-candle-making"><img alt="candlescience-all-natural-soy-candle-wax-1-lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/candlescience-all-natural-soy-candle-wax-1-lb-1/h=540,fit=pad,background=black"/></a></div>
 
 The CandleScience All Natural Soy Candle Wax offers a simplified candle making experience. This product comes pre-weighed in 1 pound bags, eliminating the need for a scale. 
 
@@ -223,9 +223,9 @@ Its flake form makes it easy to mix with 1 ounce fragrance oil. A unique feature
 Overall, the CandleScience wax is a popular choice among soy candle enthusiasts due to its ease of use and high-quality results. 
 
 
-### [Hearth & Harbor Premium Soy Wax for Candle Making Kit](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-for-candle-making-kit)
+### [Hearth & Harbor Premium Soy Wax for Candle Making Kit](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-for-candle-making-kit)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-for-candle-making-kit"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-12-4-oz-bag-premium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-12-4-oz-bag-premium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-for-candle-making-kit"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-12-4-oz-bag-premium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-12-4-oz-bag-premium-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Hearth & Harbor soy candle wax for candle making, and let me tell you, it was quite an experience. This premium soy wax flakes were natural and of high quality, making it perfect for crafting those perfect candles. 
 
@@ -234,9 +234,9 @@ The packaging was neat and gift-ready, which made it a lovely experience. Howeve
 Overall, a great set for those who love to craft and make their own candles. 
 
 
-### [Hearth & Harbor Premium Soy Wax Candle Making Kit for DIY Candles](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-candle-making-kit-for-diy-candles)
+### [Hearth & Harbor Premium Soy Wax Candle Making Kit for DIY Candles](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-candle-making-kit-for-diy-candles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-candle-making-kit-for-diy-candles"><img alt="hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-16-oz-soy-candle-wax--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-16-oz-soy-candle-wax--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-candle-making-kit-for-diy-candles"><img alt="hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-16-oz-soy-candle-wax--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-diy-candle-making-kit-for-adults-and-kids-candle-making-supplies-16-oz-soy-candle-wax--1/h=540,fit=pad,background=black"/></a></div>
 
 The Hearth & Harbor DIY candle making kit for both adults and kids is an excellent choice for those looking to indulge in a fun and engaging DIY activity. With its user-friendly instruction set, this kit makes it easy for anyone to start creating their very own scented candles right at home. Featuring all the necessary supplies, such as 16 oz. soy candle wax flakes, candle tins, wicks, and fragrance oils, this complete kit has everything one might need to begin their journey into candle making. 
 
@@ -247,9 +247,9 @@ However, it should be noted that some users have reported receiving products in 
 Despite these minor drawbacks, the Hearth & Harbor DIY candle making kit is generally well-received by customers and provides a fun and rewarding experience for those looking to explore a new DIY craft. 
 
 
-### [Hearth & Harbor Premium Natural Soy Wax for Candle Making (2 lb Bag)](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-natural-soy-wax-for-candle-making-2-lb-bag)
+### [Hearth & Harbor Premium Natural Soy Wax for Candle Making (2 lb Bag)](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-natural-soy-wax-for-candle-making-2-lb-bag)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-natural-soy-wax-for-candle-making-2-lb-bag"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-2-lb-bag-premium-so-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-2-lb-bag-premium-so-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-natural-soy-wax-for-candle-making-2-lb-bag"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-2-lb-bag-premium-so-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-natural-soy-wax-for-candle-making-2-lb-bag-premium-so-1/h=540,fit=pad,background=black"/></a></div>
 
 As a beginner in the art of candle making, I was excited to try out the Hearth & Harbor Soy Candle Wax for Candle Making kit. With its 2lb soy wax, 5 cotton wicks, and assorted accessories, I felt confident that I had everything I needed to start my candle-making journey. 
 
@@ -260,9 +260,9 @@ While the process of making candles was relatively easy, I did find the fragranc
 As a gift, the candle-making kit would be perfect for someone looking to start their own candle-making journey or for someone who enjoys creating unique and thoughtful handmade gifts. While I had a few minor issues with the kit, the simplicity and affordability of the product made it a great choice for a beginner in the world of candle making. 
 
 
-### [Hearth & Harbor Premium Soy Wax Flakes for Candle Making](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-flakes-for-candle-making)
+### [Hearth & Harbor Premium Soy Wax Flakes for Candle Making](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-premium-soy-wax-flakes-for-candle-making)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-flakes-for-candle-making"><img alt="hearth-harbor-soy-candle-wax-flakes-natural-soy-wax-for-candle-making-premium-10-lb-bag-50-cotton-ca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-flakes-natural-soy-wax-for-candle-making-premium-10-lb-bag-50-cotton-ca-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-premium-soy-wax-flakes-for-candle-making"><img alt="hearth-harbor-soy-candle-wax-flakes-natural-soy-wax-for-candle-making-premium-10-lb-bag-50-cotton-ca-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-flakes-natural-soy-wax-for-candle-making-premium-10-lb-bag-50-cotton-ca-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first stumbled upon the Hearth & Harbor Soy Candle Wax Flakes, I immediately felt the allure of creating my own candles from scratch. As a beginner in candle making, the kit's simplicity was a breath of fresh air. The clear instructions and easy-to-understand steps made it a breeze to create my first candle. The soy wax flakes were surprisingly easy to melt and worked seamlessly with the provided cotton wicks. 
 
@@ -271,9 +271,9 @@ What truly stood out for me, however, was the versatility of the wax. With its a
 While the Hearth & Harbor Soy Candle Wax Flakes kit excels in many aspects, I did find that the 10 lb bag of wax might be a bit overwhelming for those just starting out. It would be great to see a smaller option available for beginners. Nevertheless, the overall experience has left me eager to continue exploring the world of candle making with the help of this fantastic product. 
 
 
-### [Hearth & Harbor DIY Soy Wax Candle Making Kit (10 lbs)](https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-diy-soy-wax-candle-making-kit-10-lbs)
+### [Hearth & Harbor DIY Soy Wax Candle Making Kit (10 lbs)](https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm\_term=hearth-harbor-diy-soy-wax-candle-making-kit-10-lbs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-diy-soy-wax-candle-making-kit-10-lbs"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-10-lb-bag-premium-natural-soy-wax-flakes-100-cotton-c-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-10-lb-bag-premium-natural-soy-wax-flakes-100-cotton-c-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making?utm_term=hearth-harbor-diy-soy-wax-candle-making-kit-10-lbs"><img alt="hearth-harbor-soy-candle-wax-for-candle-making-10-lb-bag-premium-natural-soy-wax-flakes-100-cotton-c-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hearth-harbor-soy-candle-wax-for-candle-making-10-lb-bag-premium-natural-soy-wax-flakes-100-cotton-c-1/h=540,fit=pad,background=black"/></a></div>
 
 Indulge in the ideal blend of skill and warmth with Hearth & Harbor's Soy Candle Wax Package, crafted especially for candle making. This extensive assortment encompasses a 10 lb bag of superior, all-natural soy wax pellets, alongside 100 cotton wicks, 100 wick stickers, and 2 wick holder containers. 
 
@@ -293,7 +293,7 @@ Candle making is a fun and creative hobby that can help you design unique and pe
 
 There are various types of waxes available for candle making, each with its unique properties. Some common types include paraffin wax, soy wax, beeswax, palm wax, and cottonseed wax. Paraffin wax is the most popular and readily available, while other waxes may have eco-friendly or better scent retention properties. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-2/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-2/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-2" height="540"></a></div>
 
 
 ### Scent Throw and Strength of Wax
@@ -305,7 +305,7 @@ The scent throw and strength of a wax can significantly impact the overall perfo
 
 The burning time and melting rate of wax are essential features to consider when selecting the best wax for candle making. Generally, paraffin wax has a longer burning time, while soy wax softens more quickly but may require more frequent top-offs. A balance between these features will help ensure a longer-lasting and consistent candle. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-3/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-3/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-3" height="540"></a></div>
 
 
 ### Safety and Environmental Concerns
@@ -315,7 +315,7 @@ When selecting wax for candle making, consider the environmental and safety aspe
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-4/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-4/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-4" height="540"></a></div>
 
 
 ### Which type of wax is best for candle-making?
@@ -329,7 +329,7 @@ Starting candle-making involves a few fundamental tools such as a wax melter or 
 
 Optional tools you can purchase include a candle-making stove, a wick trimmer, and a candle-making machine. These tools make the process easier and more efficient, especially for beginners. As your experience grows, you might find the need to upgrade your tools to enhance the quality and convenience of your candle-making process.
 
-<div><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-5/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-5/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-5" height="540"></a></div>
 
 
 ### How should I choose the appropriate wick for my candle?
@@ -345,7 +345,7 @@ Candle-making waxes and crafting waxes differ in their properties and intended u
 
 Crafting waxes, on the other hand, are meant for producing decorative objects like sculptures, figurines, and ornaments. They're generally cheaper and less durable than candle-making waxes but suitable for beginners or those seeking a more artistic approach to wax work. Examples consist of modeling wax, craft wax, and epoxy resin.
 
-<div><a href="https://serp.ly/@outrun/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-6/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Wax+For+Candle+Making"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Wax-For-Candle-Making-6/h=540,fit=pad,background=black" alt="Wax-For-Candle-Making-6" height="540"></a></div>
 
 
 ### Can I use different waxes together in one candle?

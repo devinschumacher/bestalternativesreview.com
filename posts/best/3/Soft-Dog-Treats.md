@@ -17,9 +17,9 @@ From irresistible flavors to healthy ingredients, we've curated a selection of t
 ## Reviews
 
 
-### [Pupsicle Pops: Delicious Beef Soft Dog Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=pupsicle-pops-delicious-beef-soft-dog-treats)
+### [Pupsicle Pops: Delicious Beef Soft Dog Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=pupsicle-pops-delicious-beef-soft-dog-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=pupsicle-pops-delicious-beef-soft-dog-treats"><img alt="pupsicle-pops-beef-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pupsicle-pops-beef-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=pupsicle-pops-delicious-beef-soft-dog-treats"><img alt="pupsicle-pops-beef-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pupsicle-pops-beef-large-1/h=540,fit=pad,background=black"/></a></div>
 
 Our favorite long-lasting treat for canines is the Pupsicle Pops! These pre-made, mess-free treats are perfect for dogs of all shapes and sizes, providing up to 20-40 minutes of entertainment and mental stimulation. The soft, beefy goodness comes in three different sizes of refill packs, making it a great choice for every pup's pawsome playtime. 
 
@@ -28,9 +28,9 @@ Made with real meat as the number one ingredient, these pops are not only delici
 If you love your pups and want to provide them with a tasty, long-lasting delight, you can't go wrong with Pupsicle Pops. 
 
 
-### [NutriSource Soft & Tender Chicken Dog Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=nutrisource-soft-tender-chicken-dog-treats)
+### [NutriSource Soft & Tender Chicken Dog Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=nutrisource-soft-tender-chicken-dog-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=nutrisource-soft-tender-chicken-dog-treats"><img alt="nutrisource-14-oz-soft-tender-chicken-dog-treats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-14-oz-soft-tender-chicken-dog-treats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=nutrisource-soft-tender-chicken-dog-treats"><img alt="nutrisource-14-oz-soft-tender-chicken-dog-treats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-14-oz-soft-tender-chicken-dog-treats-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the NutriSource 14 oz Soft & Tender Chicken Dog Treats, a delicious and healthy option for your furry friend. Made from real chicken and added minerals, these treats are perfect for feeding as a reward or a tasty snack. Free from corn, wheat, soy, and artificial flavors, they provide a wholesome and natural experience for your dog. 
 
@@ -39,9 +39,9 @@ These treats are crafted to be soft and chewy, making them a great option for tr
 While these treats may have a strong odor, they are praised for their delicious taste and the satisfaction they bring to your pup. And with their convenient size, they are easy to store and carry. The NutriSource 14 oz Soft & Tender Chicken Dog Treats are a great choice for any dog lover looking for a wholesome and satisfying treat for their furry friend. 
 
 
-### [Bacon, Cheese & Apples Soft Dog Treats - Limited Ingredient, Made in the USA](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=bacon-cheese-apples-soft-dog-treats-limited-ingredient-made-in-the-usa)
+### [Bacon, Cheese & Apples Soft Dog Treats - Limited Ingredient, Made in the USA](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=bacon-cheese-apples-soft-dog-treats-limited-ingredient-made-in-the-usa)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=bacon-cheese-apples-soft-dog-treats-limited-ingredient-made-in-the-usa"><img alt="cloud-star-wag-more-bark-less-soft-chewy-bacon-cheese-apples-dog-treats-6oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-soft-chewy-bacon-cheese-apples-dog-treats-6oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=bacon-cheese-apples-soft-dog-treats-limited-ingredient-made-in-the-usa"><img alt="cloud-star-wag-more-bark-less-soft-chewy-bacon-cheese-apples-dog-treats-6oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-soft-chewy-bacon-cheese-apples-dog-treats-6oz-1/h=540,fit=pad,background=black"/></a></div>
 
 This delightful assortment of treats from Cloud Star is one my dogs and I simply adore. The variety of flavors, from pumpkin and sweet potato to bacon, cheese, and apples, keeps our taste buds satisfied and our tummies happy. And, the whole grain ingredients make them a guilt-free snack for our beloved pets. 
 
@@ -50,9 +50,9 @@ However, I must confess that the main issue I face is with the packaging. There 
 In conclusion, these treats are a fantastic choice for pet owners who want something healthy and tasty for their furry friends. The only area needing improvement is the packaging, as it often leads to an excessive amount of broken biscuits. If Cloud Star could figure out a solution to this problem, these treats would be a perfect addition to any pet owner's arsenal of goodies. 
 
 
-### [Lamb Soft & Tender Dog Treats: NutriSource Canine Delight](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=lamb-soft-tender-dog-treats-nutrisource-canine-delight)
+### [Lamb Soft & Tender Dog Treats: NutriSource Canine Delight](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=lamb-soft-tender-dog-treats-nutrisource-canine-delight)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=lamb-soft-tender-dog-treats-nutrisource-canine-delight"><img alt="nutrisource-14-oz-soft-tender-lamb-dog-treats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-14-oz-soft-tender-lamb-dog-treats-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=lamb-soft-tender-dog-treats-nutrisource-canine-delight"><img alt="nutrisource-14-oz-soft-tender-lamb-dog-treats-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-14-oz-soft-tender-lamb-dog-treats-1/h=540,fit=pad,background=black"/></a></div>
 
 NutriSource's Soft & Tender Lamb Dog Treats are a delightful option for your furry friend. Made with real lamb and enriched with added minerals, these treats provide a tasty and healthy reward for your dog. With a soft and chewy texture, they can be easily broken into smaller pieces for training purposes. These treats are free from corn, wheat, soy, and artificial flavors, making them a great choice for dogs with allergies or sensitive stomachs. 
 
@@ -61,9 +61,9 @@ These treats are not only irresistible to dogs but also made right here in the U
 Reviews from satisfied customers praise these treats for their softness, low allergy risk, and delicious taste that keeps dogs coming back for more. With various flavors available and a drive-thru pickup option provided by Farm & Fleet, it's never been easier to indulge your dog in a healthy, tasty treat. 
 
 
-### [Freshpet Slow Grilled Chicken Dog Soft Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=freshpet-slow-grilled-chicken-dog-soft-treats)
+### [Freshpet Slow Grilled Chicken Dog Soft Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=freshpet-slow-grilled-chicken-dog-soft-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=freshpet-slow-grilled-chicken-dog-soft-treats"><img alt="freshpet-treats-for-dogs-slow-grilled-chicken-recipe-6-4-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/freshpet-treats-for-dogs-slow-grilled-chicken-recipe-6-4-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=freshpet-slow-grilled-chicken-dog-soft-treats"><img alt="freshpet-treats-for-dogs-slow-grilled-chicken-recipe-6-4-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/freshpet-treats-for-dogs-slow-grilled-chicken-recipe-6-4-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Once I discovered Freshpet Dog Joy Treats for Dogs, I knew I had found something special for my furry friend. These treats are made with natural chicken and don't contain any by-products or artificial flavors. What stands out to me is how much they smell like real chicken, which is a big plus in my book. I love that they are fully cooked and ready to treat, and the fact that they are made in the USA is a bonus. 
 
@@ -72,9 +72,9 @@ One aspect I appreciate is how easy these treats are to handle. The size and sha
 With Freshpet Dog Joy Treats for Dogs, I have noticed a difference in my dog's energy levels. He seems to have more pep in his step when he receives these treats, which is a great improvement. This product has definitely become a staple in our household, and I wholeheartedly recommend it to fellow dog owners who are looking for high-quality, natural treats for their furry companions. 
 
 
-### [Soft Grain-Free Dog Treats with Peanut Butter](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=soft-grain-free-dog-treats-with-peanut-butter)
+### [Soft Grain-Free Dog Treats with Peanut Butter](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=soft-grain-free-dog-treats-with-peanut-butter)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=soft-grain-free-dog-treats-with-peanut-butter"><img alt="buddy-biscuits-treats-for-dogs-grain-free-with-all-natural-peanut-butter-soft-chewy-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/buddy-biscuits-treats-for-dogs-grain-free-with-all-natural-peanut-butter-soft-chewy-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=soft-grain-free-dog-treats-with-peanut-butter"><img alt="buddy-biscuits-treats-for-dogs-grain-free-with-all-natural-peanut-butter-soft-chewy-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/buddy-biscuits-treats-for-dogs-grain-free-with-all-natural-peanut-butter-soft-chewy-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using these Buddy Biscuits for my dogs lately and they're a real treat! These grain-free, natural peanut butter biscuits are perfect for dogs with sensitive stomachs or grain allergies. 
 
@@ -83,18 +83,18 @@ My dogs love the taste and I love that they're made with high-quality, wholesome
 Overall, the Buddy Biscuits are a great product that my dogs can't get enough of. 
 
 
-### [Cloud Star Soft Dog Treats - No Grain, No Gluten, Indulgent Aged Cheddar Flavor](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=cloud-star-soft-dog-treats-no-grain-no-gluten-indulgent-aged-cheddar-flavor)
+### [Cloud Star Soft Dog Treats - No Grain, No Gluten, Indulgent Aged Cheddar Flavor](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=cloud-star-soft-dog-treats-no-grain-no-gluten-indulgent-aged-cheddar-flavor)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=cloud-star-soft-dog-treats-no-grain-no-gluten-indulgent-aged-cheddar-flavor"><img alt="cloud-star-wag-more-bark-less-grain-free-soft-chewy-dog-treats-smooth-aged-cheddar-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-grain-free-soft-chewy-dog-treats-smooth-aged-cheddar-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=cloud-star-soft-dog-treats-no-grain-no-gluten-indulgent-aged-cheddar-flavor"><img alt="cloud-star-wag-more-bark-less-grain-free-soft-chewy-dog-treats-smooth-aged-cheddar-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-grain-free-soft-chewy-dog-treats-smooth-aged-cheddar-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Discover the delightful Cloud Star Wag More Bark Less Grain Free Soft & Chewy Dog Treats in Smooth Aged Cheddar. Made with simple, all-natural ingredients and free of artificial colors, flavors, gluten, corn, soy, and white potatoes, these treats are perfect for pups with sensitive tummies. Baked in the USA, these adorable treats come in fun star, sun, and cloud shapes to keep your furry friend wagging his tail. 
 
 With a mouthwatering aged cheddar flavor, these treats are a guilt-free indulgence for your beloved pooch. Give your dog the very best with Cloud Star Wag More Bark Less Grain Free Soft & Chewy Dog Treats. 
 
 
-### [Delicious Chicken Flavored Soft Dog Treats by Milk-Bone](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=delicious-chicken-flavored-soft-dog-treats-by-milk-bone)
+### [Delicious Chicken Flavored Soft Dog Treats by Milk-Bone](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=delicious-chicken-flavored-soft-dog-treats-by-milk-bone)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=delicious-chicken-flavored-soft-dog-treats-by-milk-bone"><img alt="milk-bone-soft-chewy-chicken-flavored-winter-pawliday-dog-treats-4-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/milk-bone-soft-chewy-chicken-flavored-winter-pawliday-dog-treats-4-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=delicious-chicken-flavored-soft-dog-treats-by-milk-bone"><img alt="milk-bone-soft-chewy-chicken-flavored-winter-pawliday-dog-treats-4-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/milk-bone-soft-chewy-chicken-flavored-winter-pawliday-dog-treats-4-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using Milk-Bone's Soft & Chewy Chicken Flavored Winter Pawliday Dog Treats for a while now, and let me tell you, my furry friend loves them! The treats come in three adorable winter shapes: a snowman, a snowflake, and a mitten. The soft and chewy texture makes them easy for my dog to enjoy without any hassle. 
 
@@ -105,9 +105,9 @@ One thing I appreciate about these treats is their resealable pouch, which keeps
 During my experience with these treats, I've noticed that they're a bit bigger than your typical training treats, but they're perfect for a daily treat or to use during training sessions. I'd recommend these treats to anyone looking for a delicious and wholesome snack for their furry companion. Just be mindful of the sugar content if you're concerned about your dog's overall health. 
 
 
-### [Bocce's Bakery All Natural Salmon Dog Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=bocces-bakery-all-natural-salmon-dog-treats)
+### [Bocce's Bakery All Natural Salmon Dog Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=bocces-bakery-all-natural-salmon-dog-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=bocces-bakery-all-natural-salmon-dog-treats"><img alt="bocces-bakery-soft-chewy-salmon-dog-treats-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bocces-bakery-soft-chewy-salmon-dog-treats-6-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=bocces-bakery-all-natural-salmon-dog-treats"><img alt="bocces-bakery-soft-chewy-salmon-dog-treats-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bocces-bakery-soft-chewy-salmon-dog-treats-6-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fellow dog owner, I can tell you that introducing Bocce's Bakery Soft & Chewy Salmon Dog Treats to my canine companion has been a joy from the first crack of the seal. With over 50 treats in every bag, these chewy snacks are a perfect fit for our daily routine. 
 
@@ -120,9 +120,9 @@ However, one downside I encountered was the occasional difficulty in breaking th
 Despite this minor inconvenience, the Bocce's Bakery Soft & Chewy Salmon Dog Treats have been a hit with my dog, becoming his favorite treat. The treats are perfect for training sessions or just as a reward for a job well done. He goes absolutely bonkers over them, wagging his tail and demanding more every time. With their wholesome ingredients and unbeatable taste, these treats are a winning choice for any dog lover. 
 
 
-### [Blue Dog Bakery Pumpkin Softies - Healthy & Delicious Dog Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=blue-dog-bakery-pumpkin-softies-healthy-delicious-dog-treats)
+### [Blue Dog Bakery Pumpkin Softies - Healthy & Delicious Dog Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=blue-dog-bakery-pumpkin-softies-healthy-delicious-dog-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=blue-dog-bakery-pumpkin-softies-healthy-delicious-dog-treats"><img alt="blue-dog-bakery-treats-for-dogs-healthy-pumpkin-softies-10-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blue-dog-bakery-treats-for-dogs-healthy-pumpkin-softies-10-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=blue-dog-bakery-pumpkin-softies-healthy-delicious-dog-treats"><img alt="blue-dog-bakery-treats-for-dogs-healthy-pumpkin-softies-10-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blue-dog-bakery-treats-for-dogs-healthy-pumpkin-softies-10-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Blue Dog Bakery 10 oz Pumpkin Softies dog treats and was impressed with the quality and the softness of the treats. I appreciated that they are made with natural and non-GMO ingredients, which made me feel more comfortable giving them to my dog. 
 
@@ -131,18 +131,18 @@ The treats were perfect for my dog, who has sensitive teeth and enjoys pumpkin-f
 The smell was also quite appealing, with a hint of pumpkin and cinnamon. I would definitely recommend these treats to other pet owners looking for a soft and healthy option for their dogs. 
 
 
-### [Pet Greens Li'l Treats: Real Lamb for Small Dog Training](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=pet-greens-lil-treats-real-lamb-for-small-dog-training)
+### [Pet Greens Li'l Treats: Real Lamb for Small Dog Training](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=pet-greens-lil-treats-real-lamb-for-small-dog-training)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=pet-greens-lil-treats-real-lamb-for-small-dog-training"><img alt="pet-greens-lil-treats-soft-dog-chews-lamb-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pet-greens-lil-treats-soft-dog-chews-lamb-6-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=pet-greens-lil-treats-real-lamb-for-small-dog-training"><img alt="pet-greens-lil-treats-soft-dog-chews-lamb-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pet-greens-lil-treats-soft-dog-chews-lamb-6-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Pet Greens' Li'l Treats are perfect for smaller dogs and puppies, making them ideal for training. The real protein makes these nourishing treats a great addition to your pet's diet. And with added nutritional benefits from wheatgrass, kale, and spinach, you'll feel good about giving your dog these tasty morsels. 
 
 These treats are soft, fragrant, and easy to break into smaller pieces – making them a hit with fussy pups and finicky dogs alike. The convenient 6-ounce size is ideal for keeping on hand in case of an unexpected training session. 
 
 
-### [High Protein Meat Cravers Soft Dog Treats - Oven Baked Real Chicken and Beef Jerky, Made in the USA](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=high-protein-meat-cravers-soft-dog-treats-oven-baked-real-chicken-and-beef-jerky-made-in-the-usa)
+### [High Protein Meat Cravers Soft Dog Treats - Oven Baked Real Chicken and Beef Jerky, Made in the USA](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=high-protein-meat-cravers-soft-dog-treats-oven-baked-real-chicken-and-beef-jerky-made-in-the-usa)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=high-protein-meat-cravers-soft-dog-treats-oven-baked-real-chicken-and-beef-jerky-made-in-the-usa"><img alt="cloud-star-wag-more-bark-less-meat-cravers-soft-chewy-dog-treats-beef-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-meat-cravers-soft-chewy-dog-treats-beef-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=high-protein-meat-cravers-soft-dog-treats-oven-baked-real-chicken-and-beef-jerky-made-in-the-usa"><img alt="cloud-star-wag-more-bark-less-meat-cravers-soft-chewy-dog-treats-beef-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-wag-more-bark-less-meat-cravers-soft-chewy-dog-treats-beef-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 These meaty treats made in the USA are perfect for your dog who can't get enough of the jerky texture. Soft and chewy, they're a treat that both you and your furry pal will love. With real beef and chunks of beef jerky in every bite, it's a no-brainer for all breeds that crave those rich, savory flavors. 
 
@@ -151,9 +151,9 @@ A bonus for you? They're minimally processed, made with only simple, natural ing
 Plus, each of these doggone good treats contains 20% protein, guaranteeing that your pup is getting the nutrition they need. 
 
 
-### [Grain-Free Soft Dog Treats by Cloud Star: Chicken & Sweet Potato Flavor](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=grain-free-soft-dog-treats-by-cloud-star-chicken-sweet-potato-flavor)
+### [Grain-Free Soft Dog Treats by Cloud Star: Chicken & Sweet Potato Flavor](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=grain-free-soft-dog-treats-by-cloud-star-chicken-sweet-potato-flavor)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=grain-free-soft-dog-treats-by-cloud-star-chicken-sweet-potato-flavor"><img alt="cloud-star-dog-wag-more-bark-less-grain-free-soft-chewy-treats-chicken-sweet-potato-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-dog-wag-more-bark-less-grain-free-soft-chewy-treats-chicken-sweet-potato-5-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=grain-free-soft-dog-treats-by-cloud-star-chicken-sweet-potato-flavor"><img alt="cloud-star-dog-wag-more-bark-less-grain-free-soft-chewy-treats-chicken-sweet-potato-5-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-dog-wag-more-bark-less-grain-free-soft-chewy-treats-chicken-sweet-potato-5-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The Cloud Star Dog Wag More Bark Less Grain Free Soft & Chewy Treats, Chicken & Sweet Potato, 5 oz are a delightful addition to any dog's mealtime. Made with no artificial colors or flavors, and containing only the finest ingredients, these treats stand out for their focus on natural preservatives. Grain free and gluten-free as well, these dog bites are perfect for canines with sensitive tummies. 
 
@@ -162,9 +162,9 @@ The small, resalable package makes them ideal for training purposes, and the ove
 While these treats are a favorite among many dogs, it's worth mentioning that some have expressed a preference for other brands or flavors. However, overall, the Cloud Star Dog Wag More Bark Less Grain Free Soft & Chewy Treats, Chicken & Sweet Potato, 5 oz has earned itself a solid following due to its holistic, allergy-friendly approach to canine snacking. 
 
 
-### [Prescription Diet Soft Dog Treats (12 oz)](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=prescription-diet-soft-dog-treats-12-oz)
+### [Prescription Diet Soft Dog Treats (12 oz)](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=prescription-diet-soft-dog-treats-12-oz)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=prescription-diet-soft-dog-treats-12-oz"><img alt="prescription-diet-treats-for-dogs-soft-baked-treat-12-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prescription-diet-treats-for-dogs-soft-baked-treat-12-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=prescription-diet-soft-dog-treats-12-oz"><img alt="prescription-diet-treats-for-dogs-soft-baked-treat-12-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prescription-diet-treats-for-dogs-soft-baked-treat-12-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 These Prescription Diet Soft Baked Treats are a tasty option for dogs that need a special diet, with wholesome ingredients and a soft, chewy texture that's gentle on older teeth and gums. Specially formulated by nutritionists and veterinarians, these treats support heart, kidney, and liver health when fed as part of a balanced diet. Dogs on the mobility diet can also benefit from these treats. 
 
@@ -173,18 +173,18 @@ They come in a variety of flavors to suit your dog's taste preferences and are s
 Additionally, some customers have found the treats to be harder than expected, making it difficult to break them into pieces for dogs with dental issues. 
 
 
-### [Tasty Pet Botanics Cheddar Soft Dog Treats](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=tasty-pet-botanics-cheddar-soft-dog-treats)
+### [Tasty Pet Botanics Cheddar Soft Dog Treats](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=tasty-pet-botanics-cheddar-soft-dog-treats)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=tasty-pet-botanics-cheddar-soft-dog-treats"><img alt="pet-botanics-training-rewards-cheddar-soft-chewy-dog-treats-mini-4-oz-bag-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pet-botanics-training-rewards-cheddar-soft-chewy-dog-treats-mini-4-oz-bag-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=tasty-pet-botanics-cheddar-soft-dog-treats"><img alt="pet-botanics-training-rewards-cheddar-soft-chewy-dog-treats-mini-4-oz-bag-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pet-botanics-training-rewards-cheddar-soft-chewy-dog-treats-mini-4-oz-bag-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mini Pet Botanics Training Rewards Cheddar Soft & Chewy Dog Treats are a tasty delight for your furry friend. Made with a natural pork liver base and real cheese, these treats are highly palatable and sure to make your dog's tail wag with excitement. With 200 treats per bag, they're perfect for rewarding your dog during training sessions. At just 1.5 calories a treat, you can indulge your dog without worrying about packing on excess pounds. 
 
 This dog treat comes packed with BotaniFits, an exclusive blend of antioxidant-rich ingredients such as rosemary, cranberries, blueberries, tomatoes, chamomile, dandelion, green tea, and peppermint. The absence of BHA, BHT, corn, soy, and artificial flavors and colors in these treats makes them a healthier option for your beloved pet. The brand ensures that only the highest quality ingredients are used to craft these treats, ensuring your dog gets nothing but the best. 
 
 
-### [Grain-Free Pumpkin Woofers Soft Baked Treats for Dogs](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=grain-free-pumpkin-woofers-soft-baked-treats-for-dogs)
+### [Grain-Free Pumpkin Woofers Soft Baked Treats for Dogs](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=grain-free-pumpkin-woofers-soft-baked-treats-for-dogs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=grain-free-pumpkin-woofers-soft-baked-treats-for-dogs"><img alt="three-dog-bakery-treats-for-dogs-grain-free-pumpkin-flavor-woofers-soft-baked-13-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/three-dog-bakery-treats-for-dogs-grain-free-pumpkin-flavor-woofers-soft-baked-13-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=grain-free-pumpkin-woofers-soft-baked-treats-for-dogs"><img alt="three-dog-bakery-treats-for-dogs-grain-free-pumpkin-flavor-woofers-soft-baked-13-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/three-dog-bakery-treats-for-dogs-grain-free-pumpkin-flavor-woofers-soft-baked-13-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Our beloved dog, Max, has been our faithful companion for years. His health has always been our top priority, and that includes the treats he enjoys. When we found out he had grain sensitivities, we struggled to find grain-free treats that he would love as much as the ones with grains. That's when we stumbled upon the Grain-Free Woofers by Three Dog Bakery. 
 
@@ -197,18 +197,18 @@ While we've had a great experience with these treats, we have noticed that some 
 Despite the occasional setback, our overall experience with the Grain-Free Woofers by Three Dog Bakery has been a positive one. It's a safe and delicious option for dogs with grain allergies, and we're glad we found it for Max. 
 
 
-### [Soft & Tasty Salmon Dog Treats for a Healthy Reward](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=soft-tasty-salmon-dog-treats-for-a-healthy-reward)
+### [Soft & Tasty Salmon Dog Treats for a Healthy Reward](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=soft-tasty-salmon-dog-treats-for-a-healthy-reward)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=soft-tasty-salmon-dog-treats-for-a-healthy-reward"><img alt="nutrisource-soft-tender-salmon-treats-14-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-soft-tender-salmon-treats-14-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=soft-tasty-salmon-dog-treats-for-a-healthy-reward"><img alt="nutrisource-soft-tender-salmon-treats-14-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutrisource-soft-tender-salmon-treats-14-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 The NutriSource Soft & Tender Salmon Treats are a delightful option for your furry friend, featuring real salmon and added minerals. These soft and chewy treats are perfect for training, making them an excellent reward for a job well done. Their versatile texture also makes them easy to break apart, avoiding any messy situation. 
 
 Additionally, NutriSource treats are made without corn, wheat, soy, or artificial flavors, ensuring your pup receives the best possible nutrition. Made in the USA, these treats promote a guilt-free training experience while building a healthy and happy family. With a taste that dogs will crave, these NutriSource Salmon Treats are an ideal choice for anyone seeking premium soft dog treats. 
 
 
-### [Cloud Star Dynamo Dog Treats for Hip & Joint Support](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=cloud-star-dynamo-dog-treats-for-hip-joint-support)
+### [Cloud Star Dynamo Dog Treats for Hip & Joint Support](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=cloud-star-dynamo-dog-treats-for-hip-joint-support)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=cloud-star-dynamo-dog-treats-for-hip-joint-support"><img alt="cloud-star-dynamo-dog-functional-treats-hip-joint-chicken-14-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-dynamo-dog-functional-treats-hip-joint-chicken-14-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=cloud-star-dynamo-dog-treats-for-hip-joint-support"><img alt="cloud-star-dynamo-dog-functional-treats-hip-joint-chicken-14-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cloud-star-dynamo-dog-functional-treats-hip-joint-chicken-14-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Cloud Star Dynamo Dog Functional Treats make a delightful addition to your furry friend's day. These treats are specifically designed to support your dog's joints and hips, providing daily supplementation to keep your pets active and healthy. Made in the USA, these treats are manufactured with a focus on high-quality ingredients, and they contain no artificial colors or flavors. 
 
@@ -221,9 +221,9 @@ The packaging is backed by Cloud Star's commitment to high-quality ingredients a
 In summary, Cloud Star Dynamo Dog Functional Treats are a delicious and beneficial addition to your pet's daily routine, supporting their joint health and promoting overall wellbeing. 
 
 
-### [VetIQ Chicken Soft Dog Treats - 30 Count](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=vetiq-chicken-soft-dog-treats-30-count)
+### [VetIQ Chicken Soft Dog Treats - 30 Count](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=vetiq-chicken-soft-dog-treats-30-count)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=vetiq-chicken-soft-dog-treats-30-count"><img alt="vetiq-pill-treats-soft-chews-chicken-30-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vetiq-pill-treats-soft-chews-chicken-30-count-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=vetiq-chicken-soft-dog-treats-30-count"><img alt="vetiq-pill-treats-soft-chews-chicken-30-count-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vetiq-pill-treats-soft-chews-chicken-30-count-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried VetIQ Chicken Pill Treats for Dogs and was quite impressed with the product. My pooch, who usually hates taking pills, gobbled these treats up eagerly. The built-in pill compartment made medicine time a breeze, and the chicken flavor was definitely a hit. 
 
@@ -234,9 +234,9 @@ As for the cons, I found that the treats could be a bit dry, making it harder to
 Overall, the benefits of VetIQ Chicken Pill Treats for Dogs outweigh the cons, and I'll definitely continue to use them in the future. 
 
 
-### [Pet-Ease Natural Relaxation Soft Chews for Stressful Dogs](https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm\_term=pet-ease-natural-relaxation-soft-chews-for-stressful-dogs)
+### [Pet-Ease Natural Relaxation Soft Chews for Stressful Dogs](https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm\_term=pet-ease-natural-relaxation-soft-chews-for-stressful-dogs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Soft+Dog+Treats?utm_term=pet-ease-natural-relaxation-soft-chews-for-stressful-dogs"><img alt="nutri-vet-pet-ease-soft-chews-for-dogs-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutri-vet-pet-ease-soft-chews-for-dogs-6-oz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Soft+Dog+Treats?utm_term=pet-ease-natural-relaxation-soft-chews-for-stressful-dogs"><img alt="nutri-vet-pet-ease-soft-chews-for-dogs-6-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nutri-vet-pet-ease-soft-chews-for-dogs-6-oz-1/h=540,fit=pad,background=black"/></a></div>
 
 Nutri-Vet Pet Ease Soft Chews for Dogs" have been a savior for my furry friend, who's always been on the anxious side. As a pet owner, I struggled to find a solution that worked until I stumbled upon these soft chews. I appreciate that this product uses a blend of vet-formulated herbs and amino acids, aiming to help reduce anxiety and tension in dogs. 
 

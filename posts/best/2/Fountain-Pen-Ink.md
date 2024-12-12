@@ -15,36 +15,36 @@ If you're a fan of traditional writing instruments, you'll appreciate the versat
 ## Reviews
 
 
-### [Premium Colorverse Gluon Glistening Ink for Fountain Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=premium-colorverse-gluon-glistening-ink-for-fountain-pens)
+### [Premium Colorverse Gluon Glistening Ink for Fountain Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=premium-colorverse-gluon-glistening-ink-for-fountain-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=premium-colorverse-gluon-glistening-ink-for-fountain-pens"><img alt="colorverse-gluon-glistening-ink-30ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/colorverse-gluon-glistening-ink-30ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=premium-colorverse-gluon-glistening-ink-for-fountain-pens"><img alt="colorverse-gluon-glistening-ink-30ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/colorverse-gluon-glistening-ink-30ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 The Colorverse Gluon is a delightful ink, boasting a unique and vibrant chartreuse hue with a hint of glimmer. Made with high-quality natural materials, this ink offers smooth and consistent performance across different paper types and pen sizes. 
 
 While it's not perfect (a smaller 30ml bottle size and a slight inconsistent flow being the only drawbacks), Gluon is still a lovely choice for fountain pen enthusiasts looking to add something unique to their collection. Whether paired with paper or pens, this ink's charm is undeniable. 
 
 
-### [Diamine Noel Ink: Christmas-Inspired Fountain Pen Ink with High Shimmer Sheen](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-noel-ink-christmas-inspired-fountain-pen-ink-with-high-shimmer-sheen)
+### [Diamine Noel Ink: Christmas-Inspired Fountain Pen Ink with High Shimmer Sheen](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-noel-ink-christmas-inspired-fountain-pen-ink-with-high-shimmer-sheen)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-noel-ink-christmas-inspired-fountain-pen-ink-with-high-shimmer-sheen"><img alt="diamine-noel-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-noel-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-noel-ink-christmas-inspired-fountain-pen-ink-with-high-shimmer-sheen"><img alt="diamine-noel-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-noel-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the magic of the holiday season with the Diamine Noel Ink, a stunning fountain pen ink available in a 50ml bottle. This unique red ink, with its special 'sheen' formula, will bring a touch of festive cheer to your writing. Designed for use with all fountain pens, the ink boasts a medium resistance and shading, creating a rich and vibrant writing experience. 
 
 Manufactured in the United Kingdom, the Diamine Noel Ink is the perfect addition to your holiday collection. 
 
 
-### [KWZ Blue Black Fountain Pen Ink - Polish Artistry & Intense Blue-Black Hue](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=kwz-blue-black-fountain-pen-ink-polish-artistry-intense-blue-black-hue)
+### [KWZ Blue Black Fountain Pen Ink - Polish Artistry & Intense Blue-Black Hue](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=kwz-blue-black-fountain-pen-ink-polish-artistry-intense-blue-black-hue)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=kwz-blue-black-fountain-pen-ink-polish-artistry-intense-blue-black-hue"><img alt="kwz-blue-black-60ml-bottled-ink-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kwz-blue-black-60ml-bottled-ink-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=kwz-blue-black-fountain-pen-ink-polish-artistry-intense-blue-black-hue"><img alt="kwz-blue-black-60ml-bottled-ink-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kwz-blue-black-60ml-bottled-ink-1/h=540,fit=pad,background=black"/></a></div>
 
 This Blue Black fountain pen ink from KWZ Poland is a standout choice for those seeking a high-quality writing experience. With a stunning shade of blue, this ink also boasts a water-resistant dye base, making it perfect for everyday use. The 60mL bottle is a nice touch, and KWZ's commitment to handcrafting each ink bottle adds a touch of elegance. 
 
 Despite the low shading and absence of shimmer, this ink is worth trying for its wet flow and intense color intensity. 
 
 
-### [Diamine Blue Edition Jack Frost Fountain Pen Ink - Limited Edition and Slightly Wet Flow](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-blue-edition-jack-frost-fountain-pen-ink-limited-edition-and-slightly-wet-flow)
+### [Diamine Blue Edition Jack Frost Fountain Pen Ink - Limited Edition and Slightly Wet Flow](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-blue-edition-jack-frost-fountain-pen-ink-limited-edition-and-slightly-wet-flow)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-blue-edition-jack-frost-fountain-pen-ink-limited-edition-and-slightly-wet-flow"><img alt="diamine-blue-edition-ink-50ml-jack-frost-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-jack-frost-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-blue-edition-jack-frost-fountain-pen-ink-limited-edition-and-slightly-wet-flow"><img alt="diamine-blue-edition-ink-50ml-jack-frost-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-jack-frost-1/h=540,fit=pad,background=black"/></a></div>
 
 As I recently received the Diamine Blue Edition Ink 50ml - Jack Frost, I was excited to try out this fountain pen ink with an exclusive design. The product is an eye-catching and smooth writing experience. The ink has a unique medium resistance for an all-around user-friendly experience. I've noticed that it doesn't clog in the pen, which is perfect as no one wants to deal with a clogged pen in the middle of writing. 
 
@@ -55,18 +55,18 @@ Despite the wonderful sheen and shimmer, I've encountered a slight issue when it
 With these pros and cons in mind, I believe the Diamine Blue Edition Ink 50ml - Jack Frost is a unique and beautiful ink that can add a touch of sparkle to your daily writing. However, be mindful of the paper quality to avoid heavy bleeding and feathering. 
 
 
-### [Lamy T52 Blue Ink for Fountain Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=lamy-t52-blue-ink-for-fountain-pens)
+### [Lamy T52 Blue Ink for Fountain Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=lamy-t52-blue-ink-for-fountain-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=lamy-t52-blue-ink-for-fountain-pens"><img alt="lamy-t52-ink-blue-50-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lamy-t52-ink-blue-50-ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=lamy-t52-blue-ink-for-fountain-pens"><img alt="lamy-t52-ink-blue-50-ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lamy-t52-ink-blue-50-ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Lamy's T52 Blue ink is a versatile choice for fountain pen enthusiasts. Boasting a 50 ml capacity, it can be used with a variety of pen brands. An inbuilt roll of blotting paper ensures easy nib cleaning, and it is compatible with Lamy Z24 or Z26 converters. 
 
 Crafted in Germany, this ink offers a range of colors to choose from, including a special 2018 edition in vibrant pink. It is perfect for those who prefer a neutral and reliable ink with a fast drying time. 
 
 
-### [Kyoto Kokeiro Ink: Traditional Fountain Pen Ink Made in Kyoto, Japan](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=kyoto-kokeiro-ink-traditional-fountain-pen-ink-made-in-kyoto-japan)
+### [Kyoto Kokeiro Ink: Traditional Fountain Pen Ink Made in Kyoto, Japan](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=kyoto-kokeiro-ink-traditional-fountain-pen-ink-made-in-kyoto-japan)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=kyoto-kokeiro-ink-traditional-fountain-pen-ink-made-in-kyoto-japan"><img alt="kyo-no-oto-kokeiro-ink-40ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kyo-no-oto-kokeiro-ink-40ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=kyoto-kokeiro-ink-traditional-fountain-pen-ink-made-in-kyoto-japan"><img alt="kyo-no-oto-kokeiro-ink-40ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kyo-no-oto-kokeiro-ink-40ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Kyo-no-oto Kokeiro Ink, and let me tell you, it's been a real game-changer in my daily writing routine. The color is simply stunning – it reminds me of the deep green hues found in the mossy trees and garden stones that are so common in Kyoto. 
 
@@ -79,9 +79,9 @@ However, like any product, there are a few drawbacks to consider. The pH value o
 Overall, if you're a fountain pen enthusiast looking for an ink that's both beautiful and reliable, the Kyo-no-oto Kokeiro Ink is definitely worth a try. 
 
 
-### [Deep Periwinkle Blue Fountain Pen Ink by Ferris Wheel Press](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=deep-periwinkle-blue-fountain-pen-ink-by-ferris-wheel-press)
+### [Deep Periwinkle Blue Fountain Pen Ink by Ferris Wheel Press](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=deep-periwinkle-blue-fountain-pen-ink-by-ferris-wheel-press)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=deep-periwinkle-blue-fountain-pen-ink-by-ferris-wheel-press"><img alt="ferris-wheel-press-fountain-pen-ink-38ml-harlequin-dream-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ferris-wheel-press-fountain-pen-ink-38ml-harlequin-dream-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=deep-periwinkle-blue-fountain-pen-ink-by-ferris-wheel-press"><img alt="ferris-wheel-press-fountain-pen-ink-38ml-harlequin-dream-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ferris-wheel-press-fountain-pen-ink-38ml-harlequin-dream-1/h=540,fit=pad,background=black"/></a></div>
 
 Ferris Wheel Press' Harlequin Dream fountain pen ink is a fascinating deep periwinkle blue hue that immediately caught my attention. Its luxurious texture and whimsical appearance have made it a staple in my everyday writing routine. I've been using this ink in a variety of scenarios, from journaling to penmanship practice, and it hasn't disappointed. 
 
@@ -92,9 +92,9 @@ One downside I've encountered is that the ink can be a bit too wet at times, whi
 Overall, Ferris Wheel Press' Harlequin Dream ink has been a joy to use in my fountain pen. Its unique color and captivating character make it stand out from other inks in my collection. Despite the minor concerns, I would highly recommend this ink to anyone seeking a cool, whimsical, and elegant addition to their fountain pen experience. 
 
 
-### [Rohrer & Klingner Verdigris Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=rohrer-klingner-verdigris-fountain-pen-ink)
+### [Rohrer & Klingner Verdigris Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=rohrer-klingner-verdigris-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=rohrer-klingner-verdigris-fountain-pen-ink"><img alt="rohrer-klingner-50-ml-bottle-fountain-pen-ink-verdigris-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/rohrer-klingner-50-ml-bottle-fountain-pen-ink-verdigris-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=rohrer-klingner-verdigris-fountain-pen-ink"><img alt="rohrer-klingner-50-ml-bottle-fountain-pen-ink-verdigris-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/rohrer-klingner-50-ml-bottle-fountain-pen-ink-verdigris-1/h=540,fit=pad,background=black"/></a></div>
 
 It's been a while since I've written with a Rohrer & Klingner fountain pen ink, and I must say, their Verdigris ink is simply stunning. The color is a mesmerizing mix of deep greens and bright blues, but it also has a subtle sheen that adds a magical touch to my writing. I was really surprised at how smoothly it flows. It's fast-drying, too, so I didn't have to wait long for it to set on the page. 
 
@@ -103,9 +103,9 @@ What I loved most about this ink is its non-toxic and pH-neutral formula. Even t
 Overall, I highly recommend the Rohrer & Klingner Verdigris ink for anyone looking for a unique, smooth-flowing, and non-toxic fountain pen ink. It's definitely one of the most beautiful inks I've ever used, and it's perfect for those who appreciate a touch of magic in their writing. 
 
 
-### [Diamine Monboddo's Hat Ink - High-Quality Fountain Pen Ink, 80 mL Bottle](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-monboddos-hat-ink-high-quality-fountain-pen-ink-80-ml-bottle)
+### [Diamine Monboddo's Hat Ink - High-Quality Fountain Pen Ink, 80 mL Bottle](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-monboddos-hat-ink-high-quality-fountain-pen-ink-80-ml-bottle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-monboddos-hat-ink-high-quality-fountain-pen-ink-80-ml-bottle"><img alt="diamine-monboddos-hat-ink-80-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-monboddos-hat-ink-80-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-monboddos-hat-ink-high-quality-fountain-pen-ink-80-ml-bottle"><img alt="diamine-monboddos-hat-ink-80-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-monboddos-hat-ink-80-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 The Diamine Monboddos Hat Ink is a fascinating writing ink choice with its rich purple hue and golden shimmer. In an 80ml bottle, this ink is perfect for fountain pen users, calligraphy beginners, and anyone who loves the art of writing. Developed in collaboration with UK fountain pen enthusiasts, this ink is a fantastic addition to your writing kit. 
 
@@ -114,18 +114,18 @@ With its quick-drying, smooth, water-based nature, it's a non-toxic and pH neutr
 This ink option is ideal for fountain pen fanatics who are seeking a high-quality, non-toxic writing experience with a touch of sparkle. 
 
 
-### [Diamine Dark Forest 150th Anniversary Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-dark-forest-150th-anniversary-fountain-pen-ink)
+### [Diamine Dark Forest 150th Anniversary Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-dark-forest-150th-anniversary-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-dark-forest-150th-anniversary-fountain-pen-ink"><img alt="diamine-dark-forest-ink-150th-anniversary-40-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-dark-forest-ink-150th-anniversary-40-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-dark-forest-150th-anniversary-fountain-pen-ink"><img alt="diamine-dark-forest-ink-150th-anniversary-40-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-dark-forest-ink-150th-anniversary-40-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Diamine's Dark Forest Ink is a celebration of the brand's 150th year in business, presented in a unique triangular bottle that can be arranged like a miniature "birthday cake" with eight filled bottles. This fountain pen ink is water-based, fast-drying, and suitable for all fountain pen brands. It's also vegan-friendly and non-toxic. 
 
 The ink provides a smooth flow, shades beautifully, and boasts a pH-neutral composition. Whether you're writing your first calligraphy piece or working on a professional document, this ink will deliver consistent results. With its rich, dark green hue, it's perfect for adding a touch of elegance to your writing. 
 
 
-### [Wordsworth & Black Racing Green Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=wordsworth-black-racing-green-fountain-pen-ink)
+### [Wordsworth & Black Racing Green Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=wordsworth-black-racing-green-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=wordsworth-black-racing-green-fountain-pen-ink"><img alt="wordsworth-and-black-fountain-pen-ink-bottle-racing-green-fountain-pens-bottled-ink-smooth-ink-flow--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wordsworth-and-black-fountain-pen-ink-bottle-racing-green-fountain-pens-bottled-ink-smooth-ink-flow--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=wordsworth-black-racing-green-fountain-pen-ink"><img alt="wordsworth-and-black-fountain-pen-ink-bottle-racing-green-fountain-pens-bottled-ink-smooth-ink-flow--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/wordsworth-and-black-fountain-pen-ink-bottle-racing-green-fountain-pens-bottled-ink-smooth-ink-flow--1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I got my hands on a Racing Green Wordsworth and Black Fountain Pen Ink Bottle, and let me tell you, it was quite the experience. The ink was a vibrant shade of green, perfect for adding some contrast to my sketches and calligraphy. 
 
@@ -136,9 +136,9 @@ However, I did notice that the ink took a little longer than normal to dry when 
 Overall, I highly recommend this ink for anyone looking for a high-quality, richly colored fountain pen experience. Just make sure to give it a little extra time to dry when using it with a dip pen. 
 
 
-### [Noodler's Ink Fountain Pen Bottled Ink: 5 Color Options, 1 Ounce - Red](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=noodlers-ink-fountain-pen-bottled-ink-5-color-options-1-ounce-red)
+### [Noodler's Ink Fountain Pen Bottled Ink: 5 Color Options, 1 Ounce - Red](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=noodlers-ink-fountain-pen-bottled-ink-5-color-options-1-ounce-red)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=noodlers-ink-fountain-pen-bottled-ink-5-color-options-1-ounce-red"><img alt="noodlers-ink-fountain-pen-bottled-ink-1ounce-5-ink-options-red-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-ink-fountain-pen-bottled-ink-1ounce-5-ink-options-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=noodlers-ink-fountain-pen-bottled-ink-5-color-options-1-ounce-red"><img alt="noodlers-ink-fountain-pen-bottled-ink-1ounce-5-ink-options-red-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-ink-fountain-pen-bottled-ink-1ounce-5-ink-options-red-1/h=540,fit=pad,background=black"/></a></div>
 
 For me, using Noodler's Ink Fountain Pen Bottled Ink felt like a breath of fresh air. The subtle yet vibrant blue color was perfect for my everyday writing and made my pages come to life. I was impressed by the archival quality of this ink, knowing that my words would stand the test of time. 
 
@@ -149,18 +149,18 @@ However, while I enjoyed the vibrant blue, I couldn't shake the feeling that it 
 Despite these minor drawbacks, I would not hesitate to recommend the Noodler's Ink Fountain Pen to anyone looking for a sturdy, high-quality ink. Just make sure to test it out on your preferred paper to find the right balance between vibrancy and practicality. 
 
 
-### [Noodler's Ink Bulletproof Fountain Pen Ink 54th Massachusetts 3oz](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=noodlers-ink-bulletproof-fountain-pen-ink-54th-massachusetts-3oz)
+### [Noodler's Ink Bulletproof Fountain Pen Ink 54th Massachusetts 3oz](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=noodlers-ink-bulletproof-fountain-pen-ink-54th-massachusetts-3oz)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=noodlers-ink-bulletproof-fountain-pen-ink-54th-massachusetts-3oz"><img alt="noodlers-ink-fountain-pen-bottled-ink-3oz-bulletproof-54th-massachusetts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-ink-fountain-pen-bottled-ink-3oz-bulletproof-54th-massachusetts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=noodlers-ink-bulletproof-fountain-pen-ink-54th-massachusetts-3oz"><img alt="noodlers-ink-fountain-pen-bottled-ink-3oz-bulletproof-54th-massachusetts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-ink-fountain-pen-bottled-ink-3oz-bulletproof-54th-massachusetts-1/h=540,fit=pad,background=black"/></a></div>
 
 The Noodler's Ink Fountain Pen Bottled Ink is a versatile product that offers a variety of colors and is suitable for use in both vintage and new fountain pens. The ink is made in the United States and is known for its archival quality. One of the unique features of this ink is its bulletproof formula, which makes it resistant to water, bleach, and light. The 3-ounce bottle comes with a colorful label and is filled to the brim, ensuring that you get the most value for your money. 
 
 Users have praised the ink for its smooth flow and excellent color options. The bulletproof formula provides a reliable and long-lasting writing experience that is ideal for those seeking a permanent and fraud-proof recording solution. The legal blue (bulletproof) version of the ink is particularly popular among consumers. Some reviewers, however, have mentioned issues with bleed-through on certain paper types and a tendency to clog or dry out in the fountain pen. Overall, the Noodler's Ink Fountain Pen Bottled Ink is a noteworthy option for those looking for a high-quality, durable, and colorful ink for their fountain pen. 
 
 
-### [Elegant Tchaikovsky Fountain Pen Ink Set by Diamine](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=elegant-tchaikovsky-fountain-pen-ink-set-by-diamine)
+### [Elegant Tchaikovsky Fountain Pen Ink Set by Diamine](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=elegant-tchaikovsky-fountain-pen-ink-set-by-diamine)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=elegant-tchaikovsky-fountain-pen-ink-set-by-diamine"><img alt="diamine-30ml-fountain-pen-bottled-ink-music-set-tchaikovsky-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-30ml-fountain-pen-bottled-ink-music-set-tchaikovsky-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=elegant-tchaikovsky-fountain-pen-ink-set-by-diamine"><img alt="diamine-30ml-fountain-pen-bottled-ink-music-set-tchaikovsky-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-30ml-fountain-pen-bottled-ink-music-set-tchaikovsky-1/h=540,fit=pad,background=black"/></a></div>
 
 As someone who's been using Fountain Pens exclusively for my writing needs, I've come across a fair share of ink brands. However, Diamine's Tchaikovsky ink, despite being a part of their set originally designed for the Music series, stands out significantly. 
 
@@ -177,9 +177,9 @@ Lastly, the fact that it's vegan-friendly is a big plus. This is something I alw
 However, there is one downside. This ink doesn't dry instantly like some others do. But overall, the pros far outweigh the cons. Diamine's Tchaikovsky ink is definitely worth a try if you're looking for a top-notch fountain pen ink. 
 
 
-### [Premium Quality Natural Ink for Fountain Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=premium-quality-natural-ink-for-fountain-pens)
+### [Premium Quality Natural Ink for Fountain Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=premium-quality-natural-ink-for-fountain-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=premium-quality-natural-ink-for-fountain-pens"><img alt="colorverse-joy-in-the-ordinary-ink-30-ml-under-the-shade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/colorverse-joy-in-the-ordinary-ink-30-ml-under-the-shade-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=premium-quality-natural-ink-for-fountain-pens"><img alt="colorverse-joy-in-the-ordinary-ink-30-ml-under-the-shade-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/colorverse-joy-in-the-ordinary-ink-30-ml-under-the-shade-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Colorverse Under the Shade ink for a few months now, and let me tell you, it's been quite the journey. One thing that stood out to me was the rich, deep green color - it's not just any ordinary green, but a unique shade with beautiful undertones that can vary depending on the paper and nib size. This makes it a perfect choice for anyone looking for a versatile ink with a touch of complexity. 
 
@@ -190,9 +190,9 @@ One downside I've noticed is that the ink doesn't seem to be as wet as I'd like,
 Overall, the premium quality materials and natural components of this ink make it a great choice for anyone looking for a clean, safe, and beautifully shading ink. With its unique color and smooth flow, it's truly a joy to use in the ordinary lives we all lead. 
 
 
-### [Higgins India Ink: Premium Fountain Pen Ink in Black](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=higgins-india-ink-premium-fountain-pen-ink-in-black)
+### [Higgins India Ink: Premium Fountain Pen Ink in Black](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=higgins-india-ink-premium-fountain-pen-ink-in-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=higgins-india-ink-premium-fountain-pen-ink-in-black"><img alt="higgins-fountain-pen-india-ink-2-5oz-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/higgins-fountain-pen-india-ink-2-5oz-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=higgins-india-ink-premium-fountain-pen-ink-in-black"><img alt="higgins-fountain-pen-india-ink-2-5oz-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/higgins-fountain-pen-india-ink-2-5oz-black-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Higgins black India fountain pen ink for my daily lettering, sketching, and calligraphy. It has been a delightful experience, as the ink is non-waterproof, which allows for beautiful reproduction quality work. The medium drying time produces a matte sheen, giving the art a unique and attractive look. 
 
@@ -203,9 +203,9 @@ However, I must admit that the ink's water resistance is lacking, as mentioned b
 Additionally, the ink's performance is well-balanced in terms of consistency and drying time, which I appreciate. I would recommend this ink to anyone looking for an attractive and easy-to-use fountain pen ink that delivers great results on paper, board, and film surfaces. 
 
 
-### [Premium Avocado Ink: Rich, Vibrant Fountain Pen Solution](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=premium-avocado-ink-rich-vibrant-fountain-pen-solution)
+### [Premium Avocado Ink: Rich, Vibrant Fountain Pen Solution](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=premium-avocado-ink-rich-vibrant-fountain-pen-solution)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=premium-avocado-ink-rich-vibrant-fountain-pen-solution"><img alt="private-reserve-avocado-ink-60-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/private-reserve-avocado-ink-60-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=premium-avocado-ink-rich-vibrant-fountain-pen-solution"><img alt="private-reserve-avocado-ink-60-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/private-reserve-avocado-ink-60-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 The Private Reserve Avocado Ink is a beautiful and vibrant hue that's perfect for adding a splash of color to your writing or artwork. Its smooth flow and quick-drying properties make it ideal for fountain pen enthusiasts who want a seamless and efficient writing experience. The ink's deep-hued, neutral pH ensures excellent coverage and prevents clogging, making it perfect for a wide range of projects. 
 
@@ -216,9 +216,9 @@ However, as with any product, there are a few minor drawbacks to consider. Some 
 Despite these minor inconveniences, the Private Reserve Avocado Ink is an excellent choice for anyone looking for a high-quality, vibrant ink that will enhance their writing and artwork. Its smooth flow, rich color, and quick-drying properties make it a must-have addition to any fountain pen enthusiast's collection. 
 
 
-### [Diamine Mistletoe Blue Edition Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-mistletoe-blue-edition-pen-ink)
+### [Diamine Mistletoe Blue Edition Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-mistletoe-blue-edition-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-mistletoe-blue-edition-pen-ink"><img alt="diamine-blue-edition-ink-50ml-mistletoe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-mistletoe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-mistletoe-blue-edition-pen-ink"><img alt="diamine-blue-edition-ink-50ml-mistletoe-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-mistletoe-1/h=540,fit=pad,background=black"/></a></div>
 
 As a product reviewer, I've had the pleasure of using this beautiful Diamine Blue Edition Ink, Mistletoe, in my daily life. This 50ml ink bottle is not only elegant but also suitable for use with all fountain pens, making it a versatile addition to your writing tools. The ink itself is of high-quality, boasting color-rich pigment that creates a stunning, shimmering result. 
 
@@ -227,18 +227,18 @@ One notable feature was the balance between flow and resistance, which allowed m
 However, I did notice a slight dryness in the flow, which could be adjusted to achieve a smoother writing experience. Overall, the Diamine Blue Edition Ink, Mistletoe, stands out as a beautiful, high-quality ink that makes a great addition to any fountain pen enthusiast's collection. 
 
 
-### [Diamine Safari 150th Anniversary Fountain Pen Ink - Heck Green Edition](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-safari-150th-anniversary-fountain-pen-ink-heck-green-edition)
+### [Diamine Safari 150th Anniversary Fountain Pen Ink - Heck Green Edition](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-safari-150th-anniversary-fountain-pen-ink-heck-green-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-safari-150th-anniversary-fountain-pen-ink-heck-green-edition"><img alt="diamine-safari-ink-150th-anniversary-40-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-safari-ink-150th-anniversary-40-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-safari-150th-anniversary-fountain-pen-ink-heck-green-edition"><img alt="diamine-safari-ink-150th-anniversary-40-ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-safari-ink-150th-anniversary-40-ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 The Diamine Safari Ink in the 150th anniversary edition is a unique and colorful fountain pen ink that truly stands out. Unlike other inks that might be too bright or too monotone, this one has a beautiful olive green color that looks great on ivory papers. It's great for those who are looking for high contrast shades, but don't want something too bright. 
 
 The ink also flows smoothly and is water-based, making it perfect for all fountain pen enthusiasts. One user mentioned that adding gum arabic to the ink can result in a more complex and pleasing shading effect, giving it more depth and character to the writing. Overall, this ink is a stunning addition to any fountain pen collection and a joy to use on daily basis. 
 
 
-### [Diamine Blue Edition Holiday Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-blue-edition-holiday-fountain-pen-ink)
+### [Diamine Blue Edition Holiday Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-blue-edition-holiday-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-blue-edition-holiday-fountain-pen-ink"><img alt="diamine-blue-edition-ink-50ml-happy-holidays-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-happy-holidays-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-blue-edition-holiday-fountain-pen-ink"><img alt="diamine-blue-edition-ink-50ml-happy-holidays-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-blue-edition-ink-50ml-happy-holidays-1/h=540,fit=pad,background=black"/></a></div>
 
 This Fountain Pen Ink, diamine "Happy Holidays, " offers a smooth typing experience, free-flowing, and easy to use in all pen types, be it a vintage or a modern one. The ink is known to be non-damaging to the pen, ideal for piston and converter-filler pens. The unique combination of a beautiful blue shimmer, a deep royal blue hue, and a striking red sheen creates an eye-catching and memorable color composition. 
 
@@ -251,9 +251,9 @@ Overall, this Fountain Pen Ink, Diamine "Happy Holidays, " is a fantastic holida
 The ink's fans have praised its beautiful effects and easy flow. It works wonderfully with different pen types and is suitable for various projects. While some users have mentioned they would have preferred a green shimmer instead of the blue shimmer, most reviews express satisfaction and appreciation for Diamine "Happy Holidays. 
 
 
-### [Diamine Razzmatazz Fountain Pen Ink Bottle 50ml](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-razzmatazz-fountain-pen-ink-bottle-50ml)
+### [Diamine Razzmatazz Fountain Pen Ink Bottle 50ml](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-razzmatazz-fountain-pen-ink-bottle-50ml)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-razzmatazz-fountain-pen-ink-bottle-50ml"><img alt="diamine-ink-bottle-50ml-razzmatazz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-ink-bottle-50ml-razzmatazz-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-razzmatazz-fountain-pen-ink-bottle-50ml"><img alt="diamine-ink-bottle-50ml-razzmatazz-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-ink-bottle-50ml-razzmatazz-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in the captivating world of calligraphy with the Diamine Razzmatazz Ink Bottle. Boasting a rich, almost luminescent shade of light green, this ink promises to add a touch of glimmer to your writing. The thoughtfully designed bottle comes in a glass construction, enhancing the elegance of your writing space. The screw cap ensures a secure seal, making it suitable for fountain pens and penholders. 
 
@@ -262,9 +262,9 @@ The Diamine brand, with its long-standing legacy, offers a wide range of inks an
 Holding 50ml of ink and weighing 4.46 oz, this charming bottle of ink brings the allure of Razzmatazz into your daily life, making your writing experience an inviting sensory experience. Perfect for those who love to write or create in beautiful, creative mediums, this is a must-have for any stationery fan. 
 
 
-### [Suidousuji Marchais Blue Nagasawa Japanese Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=suidousuji-marchais-blue-nagasawa-japanese-fountain-pen-ink)
+### [Suidousuji Marchais Blue Nagasawa Japanese Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=suidousuji-marchais-blue-nagasawa-japanese-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=suidousuji-marchais-blue-nagasawa-japanese-fountain-pen-ink"><img alt="kobe-48-suidousuji-marchais-blue-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kobe-48-suidousuji-marchais-blue-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=suidousuji-marchais-blue-nagasawa-japanese-fountain-pen-ink"><img alt="kobe-48-suidousuji-marchais-blue-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kobe-48-suidousuji-marchais-blue-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I stumbled upon the Kobe #48 Suidousuji Marchais Blue Ink, and I must say, the experience has been phenomenal. Crafted by Sailor Fountain Pen Co. in Japan, this ink is inspired by the stunning inland body of water, the Seto Inland Sea. The shining blue notes throughout the ink perfectly capture the essence of this vibrant, captivating color. 
 
@@ -275,27 +275,27 @@ To describe this ink, I'd use terms like 'shimmering blue, ' 'vibrant, ' 'unique
 The Kobe inks are known for their high-quality craftsmanship and attention to detail, which makes this ink stand out among others. I wholeheartedly recommend this product to anyone seeking a truly unique writing experience. It's not just a simple ink; it's a celebration of the beauty of Kobe, Japan, and the colors that inspire us. 
 
 
-### [MD Fountain Pen Ink, Striking Orange Color by Midori](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=md-fountain-pen-ink-striking-orange-color-by-midori)
+### [MD Fountain Pen Ink, Striking Orange Color by Midori](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=md-fountain-pen-ink-striking-orange-color-by-midori)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=md-fountain-pen-ink-striking-orange-color-by-midori"><img alt="md-fountain-pen-ink-orange-midori-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/md-fountain-pen-ink-orange-midori-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=md-fountain-pen-ink-striking-orange-color-by-midori"><img alt="md-fountain-pen-ink-orange-midori-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/md-fountain-pen-ink-orange-midori-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the MD Fountain Pen Ink, a refreshing addition to Midori's anniversary line of paper products. This ink isn't just about showing off - it's designed to be efficient and practical, perfect for those looking to get straight to the point. Inspired by the ribbon bookmark on certain Midori MD notebooks, this vibrant orange hue is the bold choice for a standard line ink. 
 
 Available in a sleek 30ml glass bottle, this ink is not only beautiful to look at but functional too. With its high-quality build and striking color, writing has never been more satisfying. 
 
 
-### [Noodler's Fountain Pen Ink - Rich, Durable Black](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=noodlers-fountain-pen-ink-rich-durable-black)
+### [Noodler's Fountain Pen Ink - Rich, Durable Black](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=noodlers-fountain-pen-ink-rich-durable-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=noodlers-fountain-pen-ink-rich-durable-black"><img alt="noodlers-fountain-pen-ink-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-fountain-pen-ink-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=noodlers-fountain-pen-ink-rich-durable-black"><img alt="noodlers-fountain-pen-ink-black-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/noodlers-fountain-pen-ink-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Noodler's Fountain Pen Ink, available in an array of vibrant colors, is widely renowned for its rich texture and waterproof formula. The black in particular offers a unique blend of lightfast and waterproof properties, suitable for a range of fountain pens, including the Pilot Parallel Pen and dip nibs. 
 
 With a vibrancy unmatched by other inks, it delivers a bold, striking appearance, while maintaining the ability to write with precise detail. 
 
 
-### [Diamine Ink Bottle 50ml - Rockin Rio (Fountain Pen Ink)](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-ink-bottle-50ml-rockin-rio-fountain-pen-ink)
+### [Diamine Ink Bottle 50ml - Rockin Rio (Fountain Pen Ink)](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-ink-bottle-50ml-rockin-rio-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-ink-bottle-50ml-rockin-rio-fountain-pen-ink"><img alt="diamine-ink-bottle-50ml-rockin-rio-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-ink-bottle-50ml-rockin-rio-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-ink-bottle-50ml-rockin-rio-fountain-pen-ink"><img alt="diamine-ink-bottle-50ml-rockin-rio-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-ink-bottle-50ml-rockin-rio-1/h=540,fit=pad,background=black"/></a></div>
 
 In the world of ink, you'll find a shining gem with Diamine's 'Rockin Rio', a shimmering 50ml bottle of coloured liquid magic for your fountain pen. This gem's allure lies not just in its sparkling hue, but also its smooth, water-based, dye-based composition, complete with a non-toxic pH neutrality that won't harm you or our planet. 
 
@@ -304,9 +304,9 @@ Despite coming from a brand with roots dating back to 1864, Diamine isn't afraid
 The bottle itself, made of glass with a screw cap, is compact and travel-friendly, fitting in a standard pen holder. The brand's British heritage gives this ink a touch of authenticity and craftsmanship. Overall, this fountain pen ink is a beauty to behold and write with. 
 
 
-### [Kobe #06 Bordeaux Ink: Japanese Craftsmanship for Fountain Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=kobe-06-bordeaux-ink-japanese-craftsmanship-for-fountain-pens)
+### [Kobe #06 Bordeaux Ink: Japanese Craftsmanship for Fountain Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=kobe-06-bordeaux-ink-japanese-craftsmanship-for-fountain-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=kobe-06-bordeaux-ink-japanese-craftsmanship-for-fountain-pens"><img alt="kobe-06-bordeaux-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kobe-06-bordeaux-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=kobe-06-bordeaux-ink-japanese-craftsmanship-for-fountain-pens"><img alt="kobe-06-bordeaux-ink-50ml-bottle-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kobe-06-bordeaux-ink-50ml-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Kobe Bordeaux ink from the Kobe inks range, and I must say, it's a delightful addition to my collection. The rich, wine-inspired shade brings a touch of elegance to my writing. One of the standout features is the vibrant and expressive shading it provides, making my words come alive on paper. 
 
@@ -317,16 +317,16 @@ However, I must note that this ink may not perform as well with German pens, whi
 In conclusion, the Kobe Bordeaux ink has become a favorite in my arsenal, providing a unique and memorable writing experience with its rich color and smooth flow. 
 
 
-### [Dominant Maple Series Bottled Fountain Pen Ink - 25ml](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=dominant-maple-series-bottled-fountain-pen-ink-25ml)
+### [Dominant Maple Series Bottled Fountain Pen Ink - 25ml](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=dominant-maple-series-bottled-fountain-pen-ink-25ml)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=dominant-maple-series-bottled-fountain-pen-ink-25ml"><img alt="dominant-industry-standard-series-bottled-ink-in-maple-25ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/dominant-industry-standard-series-bottled-ink-in-maple-25ml-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=dominant-maple-series-bottled-fountain-pen-ink-25ml"><img alt="dominant-industry-standard-series-bottled-ink-in-maple-25ml-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/dominant-industry-standard-series-bottled-ink-in-maple-25ml-1/h=540,fit=pad,background=black"/></a></div>
 
 Dominant Industry's Series Bottled Ink in Maple, showcasing a range of rich colors in both the standard series and the exquisite Pearl line, features real pearl powder or gold powder for added luxuriousness. This ink, a standout in the fountain pen industry, shines in its sealed glass bottle, providing a perfect 25ml container housed in both a dust bag and an elegant box. The South Korean company's focus on high-quality dye ink production results in striking color combinations, making this ink perfect for transforming your art projects into breathtaking masterpieces. 
 
 
-### [Diamine Classic 20-cartridge Ink Set for Fountain Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-classic-20-cartridge-ink-set-for-fountain-pens)
+### [Diamine Classic 20-cartridge Ink Set for Fountain Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-classic-20-cartridge-ink-set-for-fountain-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-classic-20-cartridge-ink-set-for-fountain-pens"><img alt="diamine-classic-ink-set-20-cartridges-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamine-classic-ink-set-20-cartridges-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-classic-20-cartridge-ink-set-for-fountain-pens"><img alt="diamine-classic-ink-set-20-cartridges-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamine-classic-ink-set-20-cartridges-1/h=540,fit=pad,background=black"/></a></div>
 
 As a lover of fountain pens, I was excited to try the Diamine Classic Ink Set. With its 20 cartridges of various colors, I was eager to see how the ink would flow and perform in my favorite pens. 
 
@@ -335,18 +335,18 @@ Upon opening the set, I was immediately drawn to the assortment of colors, from 
 Overall, the Diamine Classic Ink Set offers a wide range of colors, but the ink cartridges could use some improvements in terms of consistency and longevity. 
 
 
-### [Diamine Yuletide Red Fountain Pen Ink (50ml Bottle)](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-yuletide-red-fountain-pen-ink-50ml-bottle)
+### [Diamine Yuletide Red Fountain Pen Ink (50ml Bottle)](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-yuletide-red-fountain-pen-ink-50ml-bottle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-yuletide-red-fountain-pen-ink-50ml-bottle"><img alt="diamine-yuletide-50ml-bottled-ink-red-edition-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-yuletide-50ml-bottled-ink-red-edition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-yuletide-red-fountain-pen-ink-50ml-bottle"><img alt="diamine-yuletide-50ml-bottled-ink-red-edition-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-yuletide-50ml-bottled-ink-red-edition-1/h=540,fit=pad,background=black"/></a></div>
 
 The Diamine Inkvent Red Edition offers a sparkling, high-quality ink for fountain pens that adds an impressive glamour, sparkle, and shine to your writing. Each 50mL glass bottle of ink contains a premium, safe ink formula manufactured in the UK. 
 
 The standard color of this ink offers a beautiful contrast on various paper types, making it perfect for art sketches or notetaking. Although it may smear slightly with moisture, the color remains stunning on cream or ivory white paper. The stylish glass ink bottle adds a touch of elegance to any writing desk, while the Diamine packaging showcases the brand's heritage and commitment to quality. 
 
 
-### [Diamine Meadow Ink - A Traditional Fountain Pen Ink for Excellent Performance](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-meadow-ink-a-traditional-fountain-pen-ink-for-excellent-performance)
+### [Diamine Meadow Ink - A Traditional Fountain Pen Ink for Excellent Performance](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-meadow-ink-a-traditional-fountain-pen-ink-for-excellent-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-meadow-ink-a-traditional-fountain-pen-ink-for-excellent-performance"><img alt="diamine-30-ml-bottle-fountain-pen-ink-meadow-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-30-ml-bottle-fountain-pen-ink-meadow-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-meadow-ink-a-traditional-fountain-pen-ink-for-excellent-performance"><img alt="diamine-30-ml-bottle-fountain-pen-ink-meadow-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/diamine-30-ml-bottle-fountain-pen-ink-meadow-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Diamine 30 ml Bottle Fountain Pen Ink in the Meadow color, and I must say, I was impressed. The ink is perfectly suitable for use in all fountain pens, no matter if they are modern or vintage. It's great to know that this ink won't cause any clogging in my pen, making it an even more attractive option. 
 
@@ -357,9 +357,9 @@ However, there was one downside. The water resistance of the ink is not ideal, a
 Overall, my experience with the Diamine Meadow ink has been wonderful. It's a versatile and well-crafted ink that offers a smooth and enjoyable writing experience. While it may not be perfect, it's definitely worth a try if you're looking for a high-quality fountain pen ink. 
 
 
-### [Taccia AO Japanese Blue Fountain Pen Ink - Smooth & Non-Clogging Writing Experience](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=taccia-ao-japanese-blue-fountain-pen-ink-smooth-non-clogging-writing-experience)
+### [Taccia AO Japanese Blue Fountain Pen Ink - Smooth & Non-Clogging Writing Experience](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=taccia-ao-japanese-blue-fountain-pen-ink-smooth-non-clogging-writing-experience)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=taccia-ao-japanese-blue-fountain-pen-ink-smooth-non-clogging-writing-experience"><img alt="taccia-ao-blue-ink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/taccia-ao-blue-ink-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=taccia-ao-japanese-blue-fountain-pen-ink-smooth-non-clogging-writing-experience"><img alt="taccia-ao-blue-ink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/taccia-ao-blue-ink-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're devoted to finding the ideal ink for your fountain pen, your quest ends here with Taccia's AO Blue Ink. Ink enthusiasts can attest to its flawless balance of permeability and viscosity, which produces a rich, expressive blue color. Designed in Japan, this ink boasts a smooth flow, preventing clogging while ensuring an effortless writing experience. Additionally, it has a neutral pH, protecting your pen nib's integrity.
 
@@ -368,9 +368,9 @@ With Taccia's AO Blue Ink, you can enjoy the benefits of a compatible ink suitab
 Although slightly heavier in weight compared to other inks, Taccia's AO Blue Ink is a worthwhile investment for those seeking vibrant, water-soluble dye ink qualities. Made with a strong commitment to quality and craftsmanship, this Japanese fountain pen ink transforms your writing experience with its pure, innocent blue tone.
 
 
-### [Thornton's Luxury Goods TLG-IB01 Fountain Pen Ink](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=thorntons-luxury-goods-tlg-ib01-fountain-pen-ink)
+### [Thornton's Luxury Goods TLG-IB01 Fountain Pen Ink](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=thorntons-luxury-goods-tlg-ib01-fountain-pen-ink)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=thorntons-luxury-goods-tlg-ib01-fountain-pen-ink"><img alt="thorntons-luxury-goods-tlg-ib01-fountain-pen-ink-bottle-30ml-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/thorntons-luxury-goods-tlg-ib01-fountain-pen-ink-bottle-30ml-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=thorntons-luxury-goods-tlg-ib01-fountain-pen-ink"><img alt="thorntons-luxury-goods-tlg-ib01-fountain-pen-ink-bottle-30ml-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/thorntons-luxury-goods-tlg-ib01-fountain-pen-ink-bottle-30ml-black-1/h=540,fit=pad,background=black"/></a></div>
 
 As an avid fan of top-quality fountain pen ink, I was drawn to the allure of Thornton's Luxury Goods TLG-IB01 Fountain Pen Ink Bottle. With its chic black exterior and a guarantee of premium, European-made ink, it piqued my curiosity, and I eagerly decided to give it a try. 
 
@@ -381,18 +381,18 @@ One of the most appealing aspects of this fountain pen ink, in my opinion, is it
 Although there were a couple of features about the TLG-IB01 that I felt could be improved upon, such as its unusual shape for a standard ink bottle, which made storage a bit more challenging, and its slow drying time, which made it less ideal for certain surfaces, overall, Thornton's Luxury Goods TLG-IB01 Fountain Pen Ink Bottle is a remarkable fountain pen ink that provides both quality and affordability. Its rich black color and seamless flow contribute to an enjoyable writing experience, even considering minor storage issues. Despite these small drawbacks, I would still enthusiastically recommend this ink to anyone looking to enhance their fountain pen experience. 
 
 
-### [Diamine Fountain Pen Ink - Aurora Borealis](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=diamine-fountain-pen-ink-aurora-borealis)
+### [Diamine Fountain Pen Ink - Aurora Borealis](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=diamine-fountain-pen-ink-aurora-borealis)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=diamine-fountain-pen-ink-aurora-borealis"><img alt="diamine-fountain-pen-ink-80ml-aurora-borealis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamine-fountain-pen-ink-80ml-aurora-borealis-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=diamine-fountain-pen-ink-aurora-borealis"><img alt="diamine-fountain-pen-ink-80ml-aurora-borealis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/diamine-fountain-pen-ink-80ml-aurora-borealis-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing Diamine's Fountain Pen Ink in the 80ml glass bottle, perfect for all fountain pen brands. This ink is known for its quick drying, smooth, water-based composition, ideal for both experienced and beginner calligraphers alike. It's suitable for fountain pen enthusiasts looking for an extensive range of high-quality ink colors, both traditional and contemporary. 
 
 The Aurora Borealis color, a medium teal with medium shading and low red sheen, is a favorite among r/fountainpens community members. Diamine's commitment to traditional methods and its UK heritage make this ink a top choice for fountain pen enthusiasts, providing a great writing experience and vibrant colors on paper. 
 
 
-### [Wordsworth & Black 12-Color Assorted Fountain Pen Ink Refills](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=wordsworth-black-12-color-assorted-fountain-pen-ink-refills)
+### [Wordsworth & Black 12-Color Assorted Fountain Pen Ink Refills](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=wordsworth-black-12-color-assorted-fountain-pen-ink-refills)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=wordsworth-black-12-color-assorted-fountain-pen-ink-refills"><img alt="wordsworth-black-fountain-pen-ink-refills-12-assorted-colors-ink-cartridges-int-standard-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-ink-refills-12-assorted-colors-ink-cartridges-int-standard-size-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=wordsworth-black-12-color-assorted-fountain-pen-ink-refills"><img alt="wordsworth-black-fountain-pen-ink-refills-12-assorted-colors-ink-cartridges-int-standard-size-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wordsworth-black-fountain-pen-ink-refills-12-assorted-colors-ink-cartridges-int-standard-size-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave the Wordsworth & Black fountain pen ink refills a try and I must say, I was pleasantly surprised by the result. I had been using a different ink refill before, but these seemed to have a smoother and more uninterrupted ink flow. The variety of colors available is a great bonus, making my notes and lists more visually appealing. 
 
@@ -401,9 +401,9 @@ One of the things I really appreciate about these ink refills is their non-toxic
 It's not all perfect, though. Sometimes I feel that the writing experience can be a bit inconsistent, with the ink occasionally clogging up the pen. But overall, I'm quite pleased with the Wordsworth & Black fountain pen ink refills, especially given their affordable price. If you're looking for a good quality, non-toxic ink refill at a reasonable price, you can't go wrong with these. 
 
 
-### [Vivid Black Fountain Pen Ink Cartridges for Scriveiner Pens](https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm\_term=vivid-black-fountain-pen-ink-cartridges-for-scriveiner-pens)
+### [Vivid Black Fountain Pen Ink Cartridges for Scriveiner Pens](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=vivid-black-fountain-pen-ink-cartridges-for-scriveiner-pens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Fountain+Pen+Ink?utm_term=vivid-black-fountain-pen-ink-cartridges-for-scriveiner-pens"><img alt="scriveiner-fountain-pen-ink-cartridges-black-20-standard-international-made-in-uk-the-best-cartridge-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scriveiner-fountain-pen-ink-cartridges-black-20-standard-international-made-in-uk-the-best-cartridge-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm_term=vivid-black-fountain-pen-ink-cartridges-for-scriveiner-pens"><img alt="scriveiner-fountain-pen-ink-cartridges-black-20-standard-international-made-in-uk-the-best-cartridge-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/scriveiner-fountain-pen-ink-cartridges-black-20-standard-international-made-in-uk-the-best-cartridge-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across these Scriveiner Fountain Pen Ink Cartridges in black. I've been using them for a few weeks now, and let me tell you, they have certainly added a touch of luxury to my handwriting. The ink itself is rich and intense, providing a vivid black that really stands out on the page. 
 

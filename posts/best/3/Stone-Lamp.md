@@ -15,18 +15,18 @@ Welcome to our roundup of the top Stone Lamps available in the market today. Fro
 ## Reviews
 
 
-### [Brammer Stone 26" Orren Ellis Table Lamp](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=brammer-stone-26-orren-ellis-table-lamp)
+### [Brammer Stone 26" Orren Ellis Table Lamp](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=brammer-stone-26-orren-ellis-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=brammer-stone-26-orren-ellis-table-lamp"><img alt="brammer-stone-26-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/brammer-stone-26-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=brammer-stone-26-orren-ellis-table-lamp"><img alt="brammer-stone-26-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/brammer-stone-26-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
 
 The 26" Table Lamp from Orren Ellis is a stylish addition to any home. With its off-set construction, the lamp base features two rectangular slabs that resemble billowing smoke, accentuated by polished nickel plated details. The rectangular hardback shade is made of a soft, natural gray and off-white linen fabric with a touch of slubbing, giving it a refined look. 
 
 Unfortunately, the real appeal of this lamp may not match the product's online photographs, potentially leading to a disappointing purchase. 
 
 
-### [White Marble Table Lamp](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=white-marble-table-lamp)
+### [White Marble Table Lamp](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=white-marble-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=white-marble-table-lamp"><img alt="orren-ellis-kently-white-marble-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/orren-ellis-kently-white-marble-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=white-marble-table-lamp"><img alt="orren-ellis-kently-white-marble-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/orren-ellis-kently-white-marble-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
 
 The Orren Ellis Kently White Marble Table Lamp is a stunning addition to any room, boasting a timeless and elegant design. Constructed of genuine granulated white marble, this lamp perfectly captures the essence of Thassos marble. The lamp's thick crystal details add a touch of luxury, while the white hardback drum shade completes the elegant look. 
 
@@ -35,9 +35,9 @@ The table lamp's overall weight is 15 lb, making it a sturdy and reliable additi
 Perfect for illuminating your bedroom or living space, this lamp adds a touch of class and sophistication. 
 
 
-### [Himalayan Salt Stone Lamp (30-40 lbs)](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=himalayan-salt-stone-lamp-30-40-lbs)
+### [Himalayan Salt Stone Lamp (30-40 lbs)](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=himalayan-salt-stone-lamp-30-40-lbs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=himalayan-salt-stone-lamp-30-40-lbs"><img alt="himalayan-salt-lamp-30-40-lbs-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/himalayan-salt-lamp-30-40-lbs-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=himalayan-salt-stone-lamp-30-40-lbs"><img alt="himalayan-salt-lamp-30-40-lbs-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/himalayan-salt-lamp-30-40-lbs-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added a Himalayan salt lamp to my living room, and let me tell you, it makes such a difference! Carved from nature's own rock, this lamp exudes a calming energy that's perfect for a cozy evening at home. The varied shapes and sizes offer a range of aesthetic options, and the natural rock exterior surprises with its smooth finish. 
 
@@ -46,9 +46,9 @@ I've been using the lamp for a few days now, and my favorite feature? The soft p
 Overall, this Himalayan salt lamp is a brilliant addition to any living space. Its natural beauty, soft light, and calming energy make it a fantastic accent piece. Give one a try and experience the magic for yourself! 
 
 
-### [Umaid Marble Onyx Lamp: Luxury Amber Lighting for Home & Office](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=umaid-marble-onyx-lamp-luxury-amber-lighting-for-home-office)
+### [Umaid Marble Onyx Lamp: Luxury Amber Lighting for Home & Office](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=umaid-marble-onyx-lamp-luxury-amber-lighting-for-home-office)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=umaid-marble-onyx-lamp-luxury-amber-lighting-for-home-office"><img alt="umaid-elegant-handcrafted-onyx-marble-table-lamp-warm-amber-glow-relaxing-table-lamp-for-office-bedr-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/umaid-elegant-handcrafted-onyx-marble-table-lamp-warm-amber-glow-relaxing-table-lamp-for-office-bedr-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=umaid-marble-onyx-lamp-luxury-amber-lighting-for-home-office"><img alt="umaid-elegant-handcrafted-onyx-marble-table-lamp-warm-amber-glow-relaxing-table-lamp-for-office-bedr-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/umaid-elegant-handcrafted-onyx-marble-table-lamp-warm-amber-glow-relaxing-table-lamp-for-office-bedr-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across the Umaid Elegant Handcrafted Onyx Marble Table Lamp and decided to give it a try. The onyx marble base was sleek and shiny, giving it a premium feel. 
 
@@ -59,18 +59,18 @@ However, I found the included dimmer cord a bit tricky to use at first, but once
 The natural variations in veining and pattern showcase the authentic beauty of each piece, making it truly one-of-a-kind. Overall, the Umaid Elegant Handcrafted Onyx Marble Table Lamp exceeded my expectations and enhanced the ambiance of my space. 
 
 
-### [Soho Home Remi Stone Large Table Lamp: Travertine Base with Brass Detailing - Natural Linen Shade Included](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=soho-home-remi-stone-large-table-lamp-travertine-base-with-brass-detailing-natural-linen-shade-included)
+### [Soho Home Remi Stone Large Table Lamp: Travertine Base with Brass Detailing - Natural Linen Shade Included](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=soho-home-remi-stone-large-table-lamp-travertine-base-with-brass-detailing-natural-linen-shade-included)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=soho-home-remi-stone-large-table-lamp-travertine-base-with-brass-detailing-natural-linen-shade-included"><img alt="soho-home-remi-stone-table-lamp-us-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/soho-home-remi-stone-table-lamp-us-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=soho-home-remi-stone-large-table-lamp-travertine-base-with-brass-detailing-natural-linen-shade-included"><img alt="soho-home-remi-stone-table-lamp-us-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/soho-home-remi-stone-table-lamp-us-large-1/h=540,fit=pad,background=black"/></a></div>
 
 This Soho Home Remi Stone Table Lamp exudes elegance and sophistication, featuring a unique cylindrical travertine base that showcases a variety of natural color variations and inclusions. The lamp adds warmth to any space with its charming brass detailing, designed to complement its natural linen shade. Users can enjoy optimal lighting, with a maximum of 60W provided by an E26 Type A bulb. 
 
 The lamp's design is inspired by the iconic 180 House on the Strand, making it a standout piece to enhance any room's ambiance. 
 
 
-### [Single Stone Handmade Lamp: Eco-Friendly Accent for Modern Homes](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=single-stone-handmade-lamp-eco-friendly-accent-for-modern-homes)
+### [Single Stone Handmade Lamp: Eco-Friendly Accent for Modern Homes](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=single-stone-handmade-lamp-eco-friendly-accent-for-modern-homes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=single-stone-handmade-lamp-eco-friendly-accent-for-modern-homes"><img alt="single-stone-lamp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/single-stone-lamp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=single-stone-handmade-lamp-eco-friendly-accent-for-modern-homes"><img alt="single-stone-lamp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/single-stone-lamp-1/h=540,fit=pad,background=black"/></a></div>
 
 The Single Stone Lamp is a stunning piece, expertly crafted to elevate your living space with its organic charm. This lamp is not just an accent, but a harmonious blend of refined design and raw natural beauty. 
 
@@ -79,36 +79,36 @@ With its rustic style and unique handmade paper shade, it gracefully complements
 However, be prepared for some variations in stone shape, size, color, texture, and weight, as they come with the territory of natural materials. Overall, the Single Stone Lamp is a timeless investment that adds a touch of nature to your interior. 
 
 
-### [Himalayan Salt Massage Stone Lamp with Wood Base and Adjustable Brightness](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=himalayan-salt-massage-stone-lamp-with-wood-base-and-adjustable-brightness)
+### [Himalayan Salt Massage Stone Lamp with Wood Base and Adjustable Brightness](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=himalayan-salt-massage-stone-lamp-with-wood-base-and-adjustable-brightness)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=himalayan-salt-massage-stone-lamp-with-wood-base-and-adjustable-brightness"><img alt="himalayan-salt-massage-stone-lamp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/himalayan-salt-massage-stone-lamp-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=himalayan-salt-massage-stone-lamp-with-wood-base-and-adjustable-brightness"><img alt="himalayan-salt-massage-stone-lamp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/himalayan-salt-massage-stone-lamp-1/h=540,fit=pad,background=black"/></a></div>
 
 Add a touch of natural elegance to your home with the Himalayan Salt Massage Stone Lamp. This stunning lamp combines the beauty of hand-carved Himalayan salt crystals with a wooden base to create a stable and eye-catching design. 
 
 The lamp features a 6-foot UL listed electrical cord and a dimmer switch, allowing you to adjust the brightness to your preference. Five ball-shaped stones give the lamp a captivating and unique appearance, making it a standout piece in any room. Whether used alone or with a color-changing bulb, this lamp brings a sophisticated ambiance and a touch of luxury to your living space. 
 
 
-### [Stylish Ceramic Stack Stone Table Lamp](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=stylish-ceramic-stack-stone-table-lamp)
+### [Stylish Ceramic Stack Stone Table Lamp](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=stylish-ceramic-stack-stone-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=stylish-ceramic-stack-stone-table-lamp"><img alt="oslo-ceramic-white-stacked-stone-27-inch-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oslo-ceramic-white-stacked-stone-27-inch-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=stylish-ceramic-stack-stone-table-lamp"><img alt="oslo-ceramic-white-stacked-stone-27-inch-table-lamp-orren-ellis-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/oslo-ceramic-white-stacked-stone-27-inch-table-lamp-orren-ellis-1/h=540,fit=pad,background=black"/></a></div>
 
 Embrace the charm of the Oslo Ceramic White Stacked Stone Table Lamp, a chic fusion of illumination and design. Crafted from high-quality ceramic, this 27-inch lamp boasts a timeless beauty that effortlessly complements any decor. Its architectural stacked stone design adds an alluring layer of depth to its presence, while a neutral color palette ensures a seamless integration into your space. 
 
 With no bulbs included, the lamp encourages your personal touch, providing a customizable glow for your interior. Despite its standout appearance, the Oslo Ceramic Table Lamp remains functional, lighting up your surroundings with a focused up-direction. 
 
 
-### [Posh Living Magdalena Marble Stone Table Lamp with Metal Accents](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=posh-living-magdalena-marble-stone-table-lamp-with-metal-accents)
+### [Posh Living Magdalena Marble Stone Table Lamp with Metal Accents](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=posh-living-magdalena-marble-stone-table-lamp-with-metal-accents)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=posh-living-magdalena-marble-stone-table-lamp-with-metal-accents"><img alt="posh-living-magdalena-marble-stone-metal-table-lamp-brass-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/posh-living-magdalena-marble-stone-metal-table-lamp-brass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=posh-living-magdalena-marble-stone-table-lamp-with-metal-accents"><img alt="posh-living-magdalena-marble-stone-metal-table-lamp-brass-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/posh-living-magdalena-marble-stone-metal-table-lamp-brass-1/h=540,fit=pad,background=black"/></a></div>
 
 Add warmth and sophistication to your living space with the Posh Living Magdalena Brass Table Lamp. With its stylish design, this lamp makes a great addition to any room of the house, including bedrooms, studies, dorms, and living spaces. The lamp features a polished marble square base, a sturdy metal frame, and comes equipped with a 5-feet power cord and a rotary switch to easily adjust the lighting. 
 
 Choose between a 100-watt incandescent or LED bulb to ensure sufficient lighting when you need it most. The lamp's smooth metal finish blends well with various decor, adding elegance and charm to your surroundings. 
 
 
-### [Kirkland's White Stoneware Stone Lamp](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=kirklands-white-stoneware-stone-lamp)
+### [Kirkland's White Stoneware Stone Lamp](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=kirklands-white-stoneware-stone-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=kirklands-white-stoneware-stone-lamp"><img alt="cement-table-lamp-white-small-stoneware-kirklands-home-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cement-table-lamp-white-small-stoneware-kirklands-home-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=kirklands-white-stoneware-stone-lamp"><img alt="cement-table-lamp-white-small-stoneware-kirklands-home-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cement-table-lamp-white-small-stoneware-kirklands-home-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added the White Cement Table Lamp to my living room and I absolutely love it. It's a small, yet powerful addition to the room that effortlessly elevates the ambiance. The monochrome design easily blends with any surrounding decor, and its modern yet chic appearance just adds to its charm. 
 
@@ -117,9 +117,9 @@ The stoneware construction of the lamp gives it a unique, yet traditional feel. 
 The socket can accommodate a 60-watt, type A E26 bulb, and the plug-in cord is conveniently black. The lamp is easy to maintain, just a quick dust with a soft, dry cloth and make sure not to exceed the specified wattage. Overall, I'm incredibly satisfied with this purchase and it has definitely become my favorite addition to the room. 
 
 
-### [Daveney Concrete Table Lamp - Distressed Black Base with White Shade](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=daveney-concrete-table-lamp-distressed-black-base-with-white-shade)
+### [Daveney Concrete Table Lamp - Distressed Black Base with White Shade](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=daveney-concrete-table-lamp-distressed-black-base-with-white-shade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=daveney-concrete-table-lamp-distressed-black-base-with-white-shade"><img alt="daveney-concrete-table-lamp-joss-main-base-color-distressed-black-shade-color-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daveney-concrete-table-lamp-joss-main-base-color-distressed-black-shade-color-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=daveney-concrete-table-lamp-distressed-black-base-with-white-shade"><img alt="daveney-concrete-table-lamp-joss-main-base-color-distressed-black-shade-color-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daveney-concrete-table-lamp-joss-main-base-color-distressed-black-shade-color-white-1/h=540,fit=pad,background=black"/></a></div>
 
 As I walked into my living room after a long day at work, the warm glow from my Daveney Concrete Table Lamp caught my eye. The distressed black finish, evoking a vintage aesthetic, added an element of charm to the space. The linen shade softened the illumination, creating a cozy ambiance that instantly put me at ease. 
 
@@ -128,9 +128,9 @@ What truly stood out to me was the lamp's size - it really filled the room with 
 However, I did notice a minor inconvenience: the standard cord that came with the lamp felt a bit short, which limited my placement options. But overall, the Daveney Concrete Table Lamp provided the perfect addition to my living space, transforming it into a truly inviting sanctuary. For anyone looking to bring a touch of vintage charm into their home, this lamp is a must-have. 
 
 
-### [Himalayan Salt Lamp: Natural, Peaceful, and Uplifting Crystal Lighting](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=himalayan-salt-lamp-natural-peaceful-and-uplifting-crystal-lighting)
+### [Himalayan Salt Lamp: Natural, Peaceful, and Uplifting Crystal Lighting](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=himalayan-salt-lamp-natural-peaceful-and-uplifting-crystal-lighting)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=himalayan-salt-lamp-natural-peaceful-and-uplifting-crystal-lighting"><img alt="himalayan-salt-lamp-with-gift-box-pink-crystal-rock-the-perfect-gift-for-mom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/himalayan-salt-lamp-with-gift-box-pink-crystal-rock-the-perfect-gift-for-mom-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=himalayan-salt-lamp-natural-peaceful-and-uplifting-crystal-lighting"><img alt="himalayan-salt-lamp-with-gift-box-pink-crystal-rock-the-perfect-gift-for-mom-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/himalayan-salt-lamp-with-gift-box-pink-crystal-rock-the-perfect-gift-for-mom-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to add a warm and cozy touch to my bedroom with the Himalayan Salt Lamp. The lamp came with a beautiful pink crystal rock and a wooden base, making it a perfect addition to my room decor. When I turned it on, it emitted a soft, calming glow that instantly set the mood for relaxation. 
 
@@ -141,9 +141,9 @@ However, there was a minor inconvenience with the lamp - it required a USB conne
 Overall, the Himalayan Salt Lamp brought a lovely ambiance to my room and provided me with a serene atmosphere for relaxation. Its unique features and energy-cleansing benefits made it a valuable addition to my daily life. 
 
 
-### [Threshold Designed with Studio McGee Medium Green Ceramic Table Lamp](https://serp.ly/@outrun/amazon/Stone+Lamp?utm\_term=threshold-designed-with-studio-mcgee-medium-green-ceramic-table-lamp)
+### [Threshold Designed with Studio McGee Medium Green Ceramic Table Lamp](https://serp.ly/@bar/amazon/Stone+Lamp?utm\_term=threshold-designed-with-studio-mcgee-medium-green-ceramic-table-lamp)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Stone+Lamp?utm_term=threshold-designed-with-studio-mcgee-medium-green-ceramic-table-lamp"><img alt="medium-ceramic-table-lamp-green-threshold-designed-with-studio-mcgee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/medium-ceramic-table-lamp-green-threshold-designed-with-studio-mcgee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Stone+Lamp?utm_term=threshold-designed-with-studio-mcgee-medium-green-ceramic-table-lamp"><img alt="medium-ceramic-table-lamp-green-threshold-designed-with-studio-mcgee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/medium-ceramic-table-lamp-green-threshold-designed-with-studio-mcgee-1/h=540,fit=pad,background=black"/></a></div>
 
 The Medium Ceramic Table Lamp from Threshold, designed with Studio McGee, brings an upscale touch to your indoor lighting. Its round ceramic base in a green finish creates a visually appealing base, paired with a cone shade for a striking look. This lamp's white drum shade diffuses light beautifully, providing a soft ambient glow, while the one-way light setting with an easy on/off switch makes it user-friendly. Place it on a side table or console table in your living room for a welcoming vibe. 
 
@@ -159,7 +159,7 @@ Welcome to our buyer's guide for stone lamps! In this section, we will discuss t
 
 1. Size: Determine the size of the stone lamp that fits your available space and the room's aesthetic. Smaller stone lamps can be more suitable for nightstands or desktops, while larger models can make a statement in a larger space like a living room or dining room. Measure the space and consider the height and weight of the stone lamp before making a final decision. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-2/h=540,fit=pad,background=black" alt="Stone-Lamp-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-2/h=540,fit=pad,background=black" alt="Stone-Lamp-2" height="540"></a></div>
 
 
 ### Lighting type and quality
@@ -171,7 +171,7 @@ Welcome to our buyer's guide for stone lamps! In this section, we will discuss t
 
 3. Style and design: Stone lamps come in various styles and designs, such as traditional, modern, or rustic. Consider the overall style and theme of your living space and pick a stone lamp that complements it. Look for unique designs, including intricate carvings or decorative elements that can elevate the appearance of your space. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-3/h=540,fit=pad,background=black" alt="Stone-Lamp-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-3/h=540,fit=pad,background=black" alt="Stone-Lamp-3" height="540"></a></div>
 
 
 ### Durability and maintenance
@@ -181,7 +181,7 @@ Welcome to our buyer's guide for stone lamps! In this section, we will discuss t
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-4/h=540,fit=pad,background=black" alt="Stone-Lamp-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-4/h=540,fit=pad,background=black" alt="Stone-Lamp-4" height="540"></a></div>
 
 
 ### What sets apart the conventional and stone lamp?
@@ -197,7 +197,7 @@ Indeed, stone lamps are generally easy to clean. Most stone varieties are non-po
 
 Avoid using abrasive or harsh chemicals, as they can damage the stone or its finish. Also, refrain from using extremely hot or boiling water, as it might damage the stone. Regular cleaning and maintenance can prolong the lamp's lifespan and keep it looking its best.
 
-<div><a href="https://serp.ly/@outrun/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-5/h=540,fit=pad,background=black" alt="Stone-Lamp-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-5/h=540,fit=pad,background=black" alt="Stone-Lamp-5" height="540"></a></div>
 
 
 ### What are the different types of stone lamps in the market?
@@ -213,7 +213,7 @@ Definitely, stone lamps are a great fit for indoor spaces, providing a warm, inv
 
 When using stone lamps indoors, ensure that the lamp does not release allergens or dust particles. Regular dusting and cleaning are essential to maintain their appearance and ensure a safe environment. Always consult the manufacturer's instructions for specific care guidelines.
 
-<div><a href="https://serp.ly/@outrun/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-6/h=540,fit=pad,background=black" alt="Stone-Lamp-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Stone+Lamp"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Stone-Lamp-6/h=540,fit=pad,background=black" alt="Stone-Lamp-6" height="540"></a></div>
 
 
 ### Are stone lamps suitable for outdoor use?

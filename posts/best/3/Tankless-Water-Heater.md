@@ -15,27 +15,27 @@ Welcome to our roundup of top Tankless Water Heaters in the market! If you're ti
 ## Reviews
 
 
-### [Suburban 5382A ST-60 Black Tankless Water Heater with Digital Controls and Scald Protection](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=suburban-5382a-st-60-black-tankless-water-heater-with-digital-controls-and-scald-protection)
+### [Suburban 5382A ST-60 Black Tankless Water Heater with Digital Controls and Scald Protection](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=suburban-5382a-st-60-black-tankless-water-heater-with-digital-controls-and-scald-protection)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=suburban-5382a-st-60-black-tankless-water-heater-with-digital-controls-and-scald-protection"><img alt="suburban-st-60-tankless-water-heat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/suburban-st-60-tankless-water-heat-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=suburban-5382a-st-60-black-tankless-water-heater-with-digital-controls-and-scald-protection"><img alt="suburban-st-60-tankless-water-heat-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/suburban-st-60-tankless-water-heat-1/h=540,fit=pad,background=black"/></a></div>
 
 The Suburban 5382A ST-60 tankless water heater offers an unlimited supply of hot water at a controlled temperature, saving energy with its efficient design. This black water heater comes with a wall-mount digital control center, allowing you to easily manage the temperature and usage. 
 
 Additionally, it includes scald protection features such as an internal high temperature kill switch and a child lock, ensuring safety for all users. With automatic flame out protection, freezing protection, and other safety measures built-in, this tankless water heater is a reliable and convenient choice for your RV or camping needs. However, some users have reported issues with delivery times and missing parts, so it's essential to be prepared for potential challenges when purchasing this product. 
 
 
-### [Black & Decker 6.1 GPM Electric Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=black-decker-6-1-gpm-electric-tankless-water-heater)
+### [Black & Decker 6.1 GPM Electric Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=black-decker-6-1-gpm-electric-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=black-decker-6-1-gpm-electric-tankless-water-heater"><img alt="black-decker-36-kw-6-1-gpm-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-decker-36-kw-6-1-gpm-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=black-decker-6-1-gpm-electric-tankless-water-heater"><img alt="black-decker-36-kw-6-1-gpm-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-decker-36-kw-6-1-gpm-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The BLACK+DECKER Electric Tankless Hot Water Heaters offer endless hot water on demand without the worry of running out. Unlike traditional tank heaters, this state-of-the-art technology instantly reduces energy consumption and saves you money on costs by heating water when it's needed. 
 
 Designed for durability, the heater features stainless steel, non-corrosive, lead-free internal canisters and piping, ensuring its longevity. The 6.1 GPM model serves the entire house, providing a steady hot water supply even with multiple simultaneous uses, while saving up to 50% on water heating costs. 
 
 
-### [Fogatti Tankless RV Water Heater with Advanced Safety Features](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=fogatti-tankless-rv-water-heater-with-advanced-safety-features)
+### [Fogatti Tankless RV Water Heater with Advanced Safety Features](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=fogatti-tankless-rv-water-heater-with-advanced-safety-features)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=fogatti-tankless-rv-water-heater-with-advanced-safety-features"><img alt="fogatti-rv-tankless-water-heater-2-9-gpm-gen-2-with-black-door-and-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fogatti-rv-tankless-water-heater-2-9-gpm-gen-2-with-black-door-and-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=fogatti-tankless-rv-water-heater-with-advanced-safety-features"><img alt="fogatti-rv-tankless-water-heater-2-9-gpm-gen-2-with-black-door-and-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fogatti-rv-tankless-water-heater-2-9-gpm-gen-2-with-black-door-and-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got a chance to use the Fogatti RV Tankless Water Heater, and it has been a game-changer for my camping trips. The high altitude suitability mode makes it perfect for my Denver visits, and the staged combustion technology ensures my water temperature stays just right even in the summer. 
 
@@ -50,9 +50,9 @@ Safety is yet another area where the Fogatti RV excels. It is CSA certified and 
 Overall, the Fogatti RV Tankless Water Heater has made my camping trips more comfortable and hassle-free. It's a worthy investment for any RV lover. 
 
 
-### [Titan Tankless N-270 Wall-Mounted Water Heater for Larger Homes](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=titan-tankless-n-270-wall-mounted-water-heater-for-larger-homes)
+### [Titan Tankless N-270 Wall-Mounted Water Heater for Larger Homes](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=titan-tankless-n-270-wall-mounted-water-heater-for-larger-homes)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=titan-tankless-n-270-wall-mounted-water-heater-for-larger-homes"><img alt="titan-tankless-n-270-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/titan-tankless-n-270-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=titan-tankless-n-270-wall-mounted-water-heater-for-larger-homes"><img alt="titan-tankless-n-270-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/titan-tankless-n-270-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The Titan Tankless N-270 Water Heater is a game-changer for larger homes and those in colder climates. Replacing your entire home's hot water heater system, this innovative device saves an incredible amount of space as it's wall-mounted and about 80 times smaller than a traditional tank. Say goodbye to running out of hot water with this endless supply; it's perfect for homes with multiple showerheads, shower panels, body sprayers, and large Jacuzzis. 
 
@@ -61,9 +61,9 @@ In colder climates, the N-270 model excels, providing endless hot water in tempe
 This investment will pay for itself over time, making it a cost-effective solution for your home. With its easy installation and impressive performance, the Titan Tankless N-270 Water Heater has earned itself a well-deserved 5-star rating from its customers. 
 
 
-### [EcoSmart Eco 11 Electric Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=ecosmart-eco-11-electric-tankless-water-heater)
+### [EcoSmart Eco 11 Electric Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=ecosmart-eco-11-electric-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=ecosmart-eco-11-electric-tankless-water-heater"><img alt="ecosmart-eco-11-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ecosmart-eco-11-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=ecosmart-eco-11-electric-tankless-water-heater"><img alt="ecosmart-eco-11-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ecosmart-eco-11-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 I've recently given the EcoSmart Eco 11 Electric Tankless Water Heater a spin, and I must say - it's been amazing! The built-in Self Modulating technology makes for a smooth and dependable operation, allowing for consistent delivery of hot water that's ideal for any situation.
 
@@ -76,9 +76,9 @@ Although there are undeniably benefits to utilizing this tankless water heater, 
 In conclusion, the EcoSmart Eco 11 Electric Tankless Water Heater is an excellent pick for individuals in search of a practical and efficient way to heat their water. With its distinctive features and user-friendly nature, it would undoubtedly be an asset to any household.
 
 
-### [Rheem 36kW Electric Tankless Water Heater for Efficient Heating](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=rheem-36kw-electric-tankless-water-heater-for-efficient-heating)
+### [Rheem 36kW Electric Tankless Water Heater for Efficient Heating](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=rheem-36kw-electric-tankless-water-heater-for-efficient-heating)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=rheem-36kw-electric-tankless-water-heater-for-efficient-heating"><img alt="rheem-rtex-36-36kw-tankless-electric-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-rtex-36-36kw-tankless-electric-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=rheem-36kw-electric-tankless-water-heater-for-efficient-heating"><img alt="rheem-rtex-36-36kw-tankless-electric-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-rtex-36-36kw-tankless-electric-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rheem RTEX-36 36kW Tankless Electric Water Heater has been my trusty companion for the past few months, and it has not failed me yet. The external digital thermostatic control with the LED display is a game-changer, offering precision that is unmatched by traditional water heaters. I've also appreciated the most advanced self-modulation feature, which allows the unit to adjust power according to hot water demand. 
 
@@ -89,9 +89,9 @@ While this water heater has certainly made my life more convenient, it's not wit
 Overall, I would say that this water heater has been a mostly positive experience. The advanced features, robust construction, and simple installation make it a worthy investment. However, potential buyers should be aware of the occasional fluctuations in water temperature and the somewhat enigmatic error codes that appear on the display. 
 
 
-### [Rinnai 180,000 BTU Indoor Gas Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=rinnai-180000-btu-indoor-gas-tankless-water-heater)
+### [Rinnai 180,000 BTU Indoor Gas Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=rinnai-180000-btu-indoor-gas-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=rinnai-180000-btu-indoor-gas-tankless-water-heater"><img alt="rinnai-ru180in-180000-btu-indoor-natural-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rinnai-ru180in-180000-btu-indoor-natural-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=rinnai-180000-btu-indoor-gas-tankless-water-heater"><img alt="rinnai-ru180in-180000-btu-indoor-natural-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rinnai-ru180in-180000-btu-indoor-natural-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rinnai RU180iN Natural Gas Tankless Water Heater is the perfect blend of efficiency and reliability. I was blown away by the 180,000 BTU output, easily providing enough hot water for my family. The 10.5 WC voltage and 2.6 maximum flow rate made sure that there was never a shortage of hot water. 
 
@@ -100,9 +100,9 @@ What really stands out about this product is the energy savings. With its smart 
 However, there was one minor issue I encountered. The installation manual could have provided a bit more guidance on the gas line capacity, which was a potential challenge for me. Overall, the Rinnai RU180iN Tankless Water Heater proved to be a smart investment, both in terms of savings and satisfaction. 
 
 
-### [Efficient Rheem RETEX-13 KW Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=efficient-rheem-retex-13-kw-tankless-water-heater)
+### [Efficient Rheem RETEX-13 KW Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=efficient-rheem-retex-13-kw-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=efficient-rheem-retex-13-kw-tankless-water-heater"><img alt="rheem-retex-13-kw-self-modulating-2-54-gpm-tankless-electric-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-retex-13-kw-self-modulating-2-54-gpm-tankless-electric-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=efficient-rheem-retex-13-kw-tankless-water-heater"><img alt="rheem-retex-13-kw-self-modulating-2-54-gpm-tankless-electric-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-retex-13-kw-self-modulating-2-54-gpm-tankless-electric-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the powerful and compact Rheem RETEX-13 Tankless Water Heater. This innovative heating system can be powered by either corded electric or battery, making it perfect for various residential applications. Its sleek design saves space, fitting conveniently under sinks and cabinets. The adjustable thermostat and variable temperature features are easily accessible through a digital display, while the water temperature range can be set from 80°F to 140°F. 
 
@@ -113,9 +113,9 @@ However, as with any appliance, there are a few drawbacks to consider. While it'
 Overall, the Rheem RETEX-13 Tankless Water Heater is a reliable and space-saving solution for those looking to reduce both their environmental footprint and energy bills. Its user-friendly design, combined with energy-efficient features, make it a top choice for those seeking a high-quality tankless water heater. 
 
 
-### [Tankless Propane Gas Water Heater for Hot Showers](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=tankless-propane-gas-water-heater-for-hot-showers)
+### [Tankless Propane Gas Water Heater for Hot Showers](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=tankless-propane-gas-water-heater-for-hot-showers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=tankless-propane-gas-water-heater-for-hot-showers"><img alt="ez-tankless-101-2-0-gpm-42500-btu-propane-gas-portable-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-tankless-101-2-0-gpm-42500-btu-propane-gas-portable-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=tankless-propane-gas-water-heater-for-hot-showers"><img alt="ez-tankless-101-2-0-gpm-42500-btu-propane-gas-portable-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ez-tankless-101-2-0-gpm-42500-btu-propane-gas-portable-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The EZ 101, a compact portable water heater, provides hot water on-the-go effortlessly. In my recent experience, using it during an outdoor excursion, it proved to be an indispensable companion. It's quick to install, taking under 15 minutes, and once operational, it operates fully automatically. With its simple water temperature regulation feature and integrated shower hose, the EZ 101 offers hassle-free convenience.
 
@@ -126,9 +126,9 @@ On the downside, I found the unit's size to be slightly limiting, making it unsu
 In conclusion, the EZ 101 is a reliable, efficient, portable water heater designed for effortless outdoor usage. However, be mindful of its size and susceptibility to freezing.
 
 
-### [Thermomate Portable Tankless Gas Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=thermomate-portable-tankless-gas-water-heater)
+### [Thermomate Portable Tankless Gas Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=thermomate-portable-tankless-gas-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=thermomate-portable-tankless-gas-water-heater"><img alt="tankless-gas-water-heater-5l-1-32-gpm-thermomate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tankless-gas-water-heater-5l-1-32-gpm-thermomate-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=thermomate-portable-tankless-gas-water-heater"><img alt="tankless-gas-water-heater-5l-1-32-gpm-thermomate-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tankless-gas-water-heater-5l-1-32-gpm-thermomate-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to use the Thermomate 5L Tankless Gas Water Heater, and my experience with it has been nothing short of impressive. From the moment I started using it, I couldn't help but notice how the innovative combustion technology made it safer and more energy-efficient than other water heaters I've tried in the past. It's amazing how such a small device can offer endless hot water with just a flick of a switch. 
 
@@ -139,9 +139,9 @@ However, the one downside I found is that the installation process could have be
 All in all, I'm really glad I got the chance to use this Tankless Gas Water Heater. It's a solid choice for anyone who needs a reliable, energy-efficient, and space-saving water heater for their campsite, cabin, RV, or outdoor garden. With the right installation, this little guy can make your life a whole lot easier. 
 
 
-### [Residential Natural Gas Tankless Water Heater for Space and Energy Savings](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=residential-natural-gas-tankless-water-heater-for-space-and-energy-savings)
+### [Residential Natural Gas Tankless Water Heater for Space and Energy Savings](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=residential-natural-gas-tankless-water-heater-for-space-and-energy-savings)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=residential-natural-gas-tankless-water-heater-for-space-and-energy-savings"><img alt="mizudo-comfortech-classic-cs100w-4-3-gpm-100000-btu-residential-natural-gas-tankless-water-heater-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mizudo-comfortech-classic-cs100w-4-3-gpm-100000-btu-residential-natural-gas-tankless-water-heater-in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=residential-natural-gas-tankless-water-heater-for-space-and-energy-savings"><img alt="mizudo-comfortech-classic-cs100w-4-3-gpm-100000-btu-residential-natural-gas-tankless-water-heater-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mizudo-comfortech-classic-cs100w-4-3-gpm-100000-btu-residential-natural-gas-tankless-water-heater-in-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the Mizudo Comfortech Classic CS100W, a top-notch residential natural gas tankless water heater designed for your comfort and convenience. It boasts an impressive 4.3 GPM hot water flow rate, ensuring quick and efficient delivery without overheating or sandwiched water temperature. The unit is outfitted with an oxygen-free copper water tank, which significantly reduces heat loss and enhances durability for extended life. 
 
@@ -152,18 +152,18 @@ While the product is easy to install and offers numerous benefits, potential use
 Overall, the Mizudo Comfortech Classic CS100W tankless water heater stands out for its versatility, energy savings, and user-friendly design. 
 
 
-### [High-Efficiency Indoor Recirculating Tankless Water Heater by Rheem](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=high-efficiency-indoor-recirculating-tankless-water-heater-by-rheem)
+### [High-Efficiency Indoor Recirculating Tankless Water Heater by Rheem](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=high-efficiency-indoor-recirculating-tankless-water-heater-by-rheem)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=high-efficiency-indoor-recirculating-tankless-water-heater-by-rheem"><img alt="rheem-performance-platinum-9-9-gpm-natural-gas-high-efficiency-indoor-recirculating-tankless-water-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-performance-platinum-9-9-gpm-natural-gas-high-efficiency-indoor-recirculating-tankless-water-h-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=high-efficiency-indoor-recirculating-tankless-water-heater-by-rheem"><img alt="rheem-performance-platinum-9-9-gpm-natural-gas-high-efficiency-indoor-recirculating-tankless-water-h-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-performance-platinum-9-9-gpm-natural-gas-high-efficiency-indoor-recirculating-tankless-water-h-1/h=540,fit=pad,background=black"/></a></div>
 
 This Rheem Tankless Water Heater is designed to provide instant hot water and unwavering performance. With built-in recirculation, it eliminates the need for long wait times at the tap while contributing to overall water and energy efficiency. 
 
 Its compatibility with Schedule 40 PVC venting and ability to be converted for outdoor installation with the Outdoor Conversion Kit make it versatile for most homes. Users have reported issues with the recirculating line and temperature sensor location, but overall, it provides consistent hot water and minimal installation costs. 
 
 
-### [Black & Decker Powerful Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=black-decker-powerful-tankless-water-heater)
+### [Black & Decker Powerful Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=black-decker-powerful-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=black-decker-powerful-tankless-water-heater"><img alt="black-decker-27-kw-5-3-gpm-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-decker-27-kw-5-3-gpm-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=black-decker-powerful-tankless-water-heater"><img alt="black-decker-27-kw-5-3-gpm-electric-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/black-decker-27-kw-5-3-gpm-electric-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest for an energy-efficient water heater, I came across the Black & Decker 27 KW 5.3 GPM Electric Tankless Water Heater. This compact powerhouse has been a game-changer in my household. 
 
@@ -176,9 +176,9 @@ However, I did experience minor installation challenges. As a first-time install
 Overall, I highly recommend the Black & Decker 27 KW 5.3 GPM Electric Tankless Water Heater to anyone in the market for an energy-saving, eco-friendly water heater. It's a reliable, efficient investment for your home. 
 
 
-### [Rheem Natural Gas Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=rheem-natural-gas-tankless-water-heater)
+### [Rheem Natural Gas Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=rheem-natural-gas-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=rheem-natural-gas-tankless-water-heater"><img alt="rheem-rtg-95dvln-1-natural-gas-indoor-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-rtg-95dvln-1-natural-gas-indoor-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=rheem-natural-gas-tankless-water-heater"><img alt="rheem-rtg-95dvln-1-natural-gas-indoor-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rheem-rtg-95dvln-1-natural-gas-indoor-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The Rheem RTG-95DVLN-1 is an efficient natural gas tankless water heater, perfect for heating water on demand. With a next-generation burner technology and a flow rate of up to 9.5GPM at 35 degree/s F, it can easily supply hot water to multiple showers simultaneously. The built-in electric blower ensures that the exhaust gas is vented outside to prevent the bathroom from getting too hot. The low Nox burner meets SCAQMD rule 1146 requirements and has a 0.26GPM minimum flow rate and a 0.4GPM minimum activation flow rate. However, a high altitude chip is required for installation above 3280'. 
 
@@ -187,9 +187,9 @@ The Rheem RTG-95DVLN-1 is designed to provide continuous hot water for up to 3 b
 Overall, the Rheem RTG-95DVLN-1 is an excellent tankless water heater that can provide hot water on demand without wasting energy. Its compact design and efficient burner technology make it a great choice for any household that needs reliable and consistent hot water. With proper installation and maintenance, this heater can last for years, providing endless hot water for showers, laundry, and dishwasher. 
 
 
-### [Bosch Greentherm 9000 Tankless Water Heater](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=bosch-greentherm-9000-tankless-water-heater)
+### [Bosch Greentherm 9000 Tankless Water Heater](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=bosch-greentherm-9000-tankless-water-heater)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=bosch-greentherm-9000-tankless-water-heater"><img alt="bosch-greentherm-t9900-se-160-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bosch-greentherm-t9900-se-160-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=bosch-greentherm-9000-tankless-water-heater"><img alt="bosch-greentherm-t9900-se-160-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bosch-greentherm-t9900-se-160-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 As a user of the Bosch Greentherm T9900 SE 160 Gas Tankless Water Heater, I can confirm that it was a game-changer for my daily water needs. The 160,000 BTU Condensing Tankless Water Heater was installed professionally by a licensed plumber, ensuring its efficient performance. One of its standout features was the recirculating pump and flush valves, which made obtaining hot water a breeze. 
 
@@ -200,9 +200,9 @@ However, there were a few downsides to this product. It must be installed profes
 Overall, the Bosch Greentherm T9900 SE 160 Gas Tankless Water Heater has provided me with endless hot water on demand, along with energy-saving performance and temperature stability. While it's not without its drawbacks, it has been a reliable and convenient addition to my home. 
 
 
-### [Eccotemp FVI12-NG Tankless Water Heater: Efficient and Energy-Saving Solution](https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm\_term=eccotemp-fvi12-ng-tankless-water-heater-efficient-and-energy-saving-solution)
+### [Eccotemp FVI12-NG Tankless Water Heater: Efficient and Energy-Saving Solution](https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm\_term=eccotemp-fvi12-ng-tankless-water-heater-efficient-and-energy-saving-solution)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater?utm_term=eccotemp-fvi12-ng-tankless-water-heater-efficient-and-energy-saving-solution"><img alt="eccotemp-fvi12-ng-indoor-natural-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eccotemp-fvi12-ng-indoor-natural-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater?utm_term=eccotemp-fvi12-ng-tankless-water-heater-efficient-and-energy-saving-solution"><img alt="eccotemp-fvi12-ng-indoor-natural-gas-tankless-water-heater-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/eccotemp-fvi12-ng-indoor-natural-gas-tankless-water-heater-1/h=540,fit=pad,background=black"/></a></div>
 
 The Eccotemp FVI12-NG is a sleek and modern natural gas tankless water heater designed for small to medium-sized hot water production in residential settings. Its true 1/2 inch NPT fittings provide a secure connection for better performance, and the power ventilation ensures safety and efficiency in operation. Boasting fully independent gas and water controls, users can adjust the temperature display to their desired settings. 
 
@@ -218,7 +218,7 @@ When it comes to selecting the right tankless water heater, there are several fa
 
 One of the most important factors to consider when choosing a tankless water heater is its energy efficiency. Look for models with high energy factor (EF) ratings, which indicate how efficiently the heater uses energy to provide hot water. A higher EF rating means that the heater will consume less energy, saving you money on utility bills over time. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-2/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-2/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-2" height="540"></a></div>
 
 
 ### Size and Installation Space
@@ -230,7 +230,7 @@ Tankless water heaters are generally smaller and more compact than traditional s
 
 Another critical aspect of tankless water heaters is their ability to provide sufficient hot water for your household's needs. Check the water flow rates of the models you are considering to determine whether they can meet your family's demand for hot water. If you have multiple bathrooms or plan to use multiple hot water appliances simultaneously, opt for a heater with a higher water flow rate. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-3/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-3/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-3" height="540"></a></div>
 
 
 ### Maintenance and Warranty
@@ -240,7 +240,7 @@ A well-maintained tankless water heater can last for many years. Make sure the h
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-4/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-4/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-4" height="540"></a></div>
 
 
 ### What is a tankless water heater?
@@ -256,7 +256,7 @@ There are several benefits to using a tankless water heater, including increased
 
 Tankless water heaters can provide an endless supply of hot water, as long as there is a sufficient gas or electric supply. This is because the water is heated as it flows through the unit, rather than being stored in a tank. As a result, tankless water heaters can help you save energy by not constantly heating stored water. Furthermore, because there is no need for a large storage tank, tankless water heaters can be installed in smaller spaces, making them ideal for homes and businesses with limited space. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-5/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-5/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-5" height="540"></a></div>
 
 
 ### How does a tankless water heater work?
@@ -272,7 +272,7 @@ The cost of a tankless water heater can vary depending on the model, capacity, a
 
 It is essential to consider the total cost of ownership when comparing the prices of tankless and tank-style water heaters. A tankless water heater will typically last between 15-20 years, while a tank-style water heater may only last 10-15 years. Additionally, a tankless water heater can save you up to 30% on your energy bills, which can significantly reduce the cost of ownership over time. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-6/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Tankless+Water+Heater"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tankless-Water-Heater-6/h=540,fit=pad,background=black" alt="Tankless-Water-Heater-6" height="540"></a></div>
 
 
 ### What is the lifespan of a tankless water heater?

@@ -15,9 +15,9 @@ Get ready to dive into the world of Funko Pops as we showcase an exciting collec
 ## Reviews
 
 
-### [Stylized Funko Pop! Daredevil Vinyl Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=stylized-funko-pop-daredevil-vinyl-figure)
+### [Stylized Funko Pop! Daredevil Vinyl Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=stylized-funko-pop-daredevil-vinyl-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=stylized-funko-pop-daredevil-vinyl-figure"><img alt="funko-pop-marvel-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=stylized-funko-pop-daredevil-vinyl-figure"><img alt="funko-pop-marvel-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-1/h=540,fit=pad,background=black"/></a></div>
 
 Funko Pop! Marvel: Daredevil caught my attention with his menacing helmet cover. 
 
@@ -26,9 +26,9 @@ Taking inspiration from the hit TV show, this POP vinyl stands at an adorable 3 
 Its cute size, combined with the quality of its finish, makes it a great gift or a stunning display at home! 
 
 
-### [Funko Pop! Marvel Holiday Daredevil Vinyl Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-holiday-daredevil-vinyl-figure)
+### [Funko Pop! Marvel Holiday Daredevil Vinyl Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-holiday-daredevil-vinyl-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-holiday-daredevil-vinyl-figure"><img alt="funko-pop-marvel-matt-murdock-vinyl-bobble-head-holiday-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-matt-murdock-vinyl-bobble-head-holiday-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-holiday-daredevil-vinyl-figure"><img alt="funko-pop-marvel-matt-murdock-vinyl-bobble-head-holiday-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-matt-murdock-vinyl-bobble-head-holiday-1/h=540,fit=pad,background=black"/></a></div>
 
 I got this Funko Pop! Marvel Matt Murdock Vinyl Bobble Head as a holiday gift and it's become one of my favorite items in my collection. The figure stands nearly 4 inches tall, making it quite noticeable on any shelf. The packaging is fantastic, and it comes with a window display box so you can show it off without even opening the package. 
 
@@ -41,18 +41,18 @@ The overall quality of this Funko Pop is impressive. The vinyl material is durab
 In conclusion, this Funko Pop! Marvel Matt Murdock Vinyl Bobble Head is a must-have for any Marvel Daredevil fan. Its unique design, attention to detail, and the perfect combination of holiday cheer and comic book nostalgia make it a standout item in any collection. Highly recommended! 
 
 
-### [Funko Daredevil TV Punisher Pop with Varying Styles](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=funko-daredevil-tv-punisher-pop-with-varying-styles)
+### [Funko Daredevil TV Punisher Pop with Varying Styles](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=funko-daredevil-tv-punisher-pop-with-varying-styles)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=funko-daredevil-tv-punisher-pop-with-varying-styles"><img alt="funko-marvel-daredevil-tv-punisher-styles-may-vary-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-marvel-daredevil-tv-punisher-styles-may-vary-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=funko-daredevil-tv-punisher-pop-with-varying-styles"><img alt="funko-marvel-daredevil-tv-punisher-styles-may-vary-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-marvel-daredevil-tv-punisher-styles-may-vary-1/h=540,fit=pad,background=black"/></a></div>
 
 This stylized POP vinyl figure features Punisher, a character from Daredevil TV, standing at an impressive 3 inches tall. It's the perfect addition to any collection adored by fans of the beloved Netflix series. With a range of unique designs, you can collect and proudly display all Punisher POP! 
 
 vinyls. This collectible item comes packaged in a window display box and is suitable for those aged 14 and up. Be prepared for the occasional surprise, as this item might vary slightly from the one shown in the picture. 
 
 
-### [Marvel Daredevil Netflix Funko Pop Punc](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=marvel-daredevil-netflix-funko-pop-punc)
+### [Marvel Daredevil Netflix Funko Pop Punc](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=marvel-daredevil-netflix-funko-pop-punc)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=marvel-daredevil-netflix-funko-pop-punc"><img alt="marvel-daredevil-netflix-funko-pop-marvel-punisher-vinyl-bobble-head-regular-version-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marvel-daredevil-netflix-funko-pop-marvel-punisher-vinyl-bobble-head-regular-version-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=marvel-daredevil-netflix-funko-pop-punc"><img alt="marvel-daredevil-netflix-funko-pop-marvel-punisher-vinyl-bobble-head-regular-version-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/marvel-daredevil-netflix-funko-pop-marvel-punisher-vinyl-bobble-head-regular-version-1/h=540,fit=pad,background=black"/></a></div>
 
 Get ready for some action-packed fun with the Marvel Daredevil Netflix Funko POP Marvel Punisher Vinyl Bobble Head! This regular version bobble head is officially licensed from Funko and features the iconic Punisher character from the popular Netflix series. With its eye-catching design and intricate detailing, it's perfect for any fan of the show. 
 
@@ -61,18 +61,18 @@ Plus, with all original tags and packaging, you'll feel like you're unboxing a t
 A must-have addition to any superhero collection, this exciting toy is sure to thrill. 
 
 
-### [Daredevil Yellow Suit Pop! Figure: Marvel Collection](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-yellow-suit-pop-figure-marvel-collection)
+### [Daredevil Yellow Suit Pop! Figure: Marvel Collection](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-yellow-suit-pop-figure-marvel-collection)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-yellow-suit-pop-figure-marvel-collection"><img alt="daredevil-in-yellow-suit-pop-figure-collectible-toys-more-funko-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-in-yellow-suit-pop-figure-collectible-toys-more-funko-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-yellow-suit-pop-figure-marvel-collection"><img alt="daredevil-in-yellow-suit-pop-figure-collectible-toys-more-funko-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-in-yellow-suit-pop-figure-collectible-toys-more-funko-1/h=540,fit=pad,background=black"/></a></div>
 
 Daredevil, the yellow-suited crime-fighter, makes his grand entrance as a unique and mysterious addition to your Pop! collection. 
 
 Whether you're a Marvel fan, a collector, or simply admire the sleek design of this Pop! , this Daredevil figure adds a thrill to your display. With his masked vigilante persona, this figure stands as a bold guardian against injustice, making it perfect for any superhero-themed collection. 
 
 
-### [Funko Daredevil Red Suit Marvel Pop](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=funko-daredevil-red-suit-marvel-pop)
+### [Funko Daredevil Red Suit Marvel Pop](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=funko-daredevil-red-suit-marvel-pop)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=funko-daredevil-red-suit-marvel-pop"><img alt="funko-pop-daredevil-red-suit-marvel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-daredevil-red-suit-marvel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=funko-daredevil-red-suit-marvel-pop"><img alt="funko-pop-daredevil-red-suit-marvel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-daredevil-red-suit-marvel-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Funko Pop! Daredevil Red Suit - Marvel, a stylish addition to any POP Marvel collection. 
 
@@ -81,9 +81,9 @@ At 3.8 inches tall, this figure brings the Netflix Daredevil adaptation to life,
 Each figure comes with window box packaging, showcasing the character's intricate design and adding a touch of elegance to the overall display. With a 4.8-star rating from 31 reviews, collectors and fans alike appreciate this fun and unique figure. 
 
 
-### [Daredevil Funko Pop: PREVIEWS Exclusive Action Pose](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-funko-pop-previews-exclusive-action-pose)
+### [Daredevil Funko Pop: PREVIEWS Exclusive Action Pose](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-funko-pop-previews-exclusive-action-pose)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-funko-pop-previews-exclusive-action-pose"><img alt="pop-marvel-daredevil-action-pose-previews-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-marvel-daredevil-action-pose-previews-exclusive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-funko-pop-previews-exclusive-action-pose"><img alt="pop-marvel-daredevil-action-pose-previews-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-marvel-daredevil-action-pose-previews-exclusive-1/h=540,fit=pad,background=black"/></a></div>
 
 This Pop! Marvel: Daredevil Action Pose is an exciting addition to your collection! Featuring the classic red suit and devil horns, this Daredevil figure stands approximately 4 inches tall. 
 
@@ -92,18 +92,18 @@ The window box packaging adds to the collector-friendly appeal, making it perfec
 With a rating of 4.9, this Funko Pop! is truly a must-have for any fan of Daredevil or Marvel. 
 
 
-### [Daredevil Elektra Marvel Funko Pop Collectible Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-elektra-marvel-funko-pop-collectible-figure)
+### [Daredevil Elektra Marvel Funko Pop Collectible Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-elektra-marvel-funko-pop-collectible-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-elektra-marvel-funko-pop-collectible-figure"><img alt="daredevil-elektra-marvel-funko-pop-comic-cover-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-elektra-marvel-funko-pop-comic-cover-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-elektra-marvel-funko-pop-collectible-figure"><img alt="daredevil-elektra-marvel-funko-pop-comic-cover-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-elektra-marvel-funko-pop-comic-cover-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Daredevil Elektra Funko Pop! - A thrilling addition to your Marvel collection. Standing at a sleek 9 inches, this vinyl figure masterfully captures Elektra's unique style and essence from "Hell's Kitchen. " The officially licensed Marvel Funko POP is based on Elektra's newly formed outfit inspired by Daredevil Vol. 6, issue #25. It comes in a charmingly designed collector's box, complete with a protective hard plastic casing that ensures safekeeping for your valuable pop figure. 
 
 A must-have for collectors and fans alike, the Daredevil Elektra Funko Pop! is an exceptional piece to complete your Marvel comic cover collection. Boasting intricate details and a well-balanced design, this pop figure will surely become a highlight in your comic book-themed display. 
 
 
-### [Daredevil TV POP! Vinyl Punisher Funko Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-tv-pop-vinyl-punisher-funko-figure)
+### [Daredevil TV POP! Vinyl Punisher Funko Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-tv-pop-vinyl-punisher-funko-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-tv-pop-vinyl-punisher-funko-figure"><img alt="pop-marvel-daredevil-tv-punisher-styles-may-vary-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-marvel-daredevil-tv-punisher-styles-may-vary-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-tv-pop-vinyl-punisher-funko-figure"><img alt="pop-marvel-daredevil-tv-punisher-styles-may-vary-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-marvel-daredevil-tv-punisher-styles-may-vary-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever since I got my hands on this stylized Pop! Marvel: Daredevil TV Punisher, it's been a go-to collectible for both me and my friends. At 3¾ inches tall, it's the perfect size to add a dash of excitement to any desk or shelf. 
 
@@ -114,9 +114,9 @@ The best part? It's durable enough to withstand a few rough playtimes, making it
 However, a note of caution: the charm of this collectible comes in the form of a small design, so it might be lost in a crowd if not displayed correctly. Other than that, it's a fantastic addition to any Marvel fan's collection. 
 
 
-### [Daredevil Wilson Fisk Pop! Vinyl Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-wilson-fisk-pop-vinyl-figure)
+### [Daredevil Wilson Fisk Pop! Vinyl Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-wilson-fisk-pop-vinyl-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-wilson-fisk-pop-vinyl-figure"><img alt="daredevil-wilson-fisk-pop-vinyl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-wilson-fisk-pop-vinyl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-wilson-fisk-pop-vinyl-figure"><img alt="daredevil-wilson-fisk-pop-vinyl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-wilson-fisk-pop-vinyl-1/h=540,fit=pad,background=black"/></a></div>
 
 In my daily life, I've come across the Daredevil Wilson Fisk Pop! Vinyl and it's been a delight to have him in my collection. The toy is produced neatly, giving a sturdy feel to it. The attention to detail is simply remarkable, with high-quality paint adding to the intricacy of the design. 
 
@@ -127,9 +127,9 @@ Like any other Pop! Vinyl figure, this one measures at about 3.5 inches in heigh
 Overall, the Daredevil Wilson Fisk Pop! Vinyl has been a pleasure to have around. Its vibrant colors and impressive attention to detail definitely make it a must-have for Daredevil fans and Pop! Vinyl enthusiasts alike. 
 
 
-### [Blind Justice: Underground Exclusive Marvel Daredevil Funko Pop](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=blind-justice-underground-exclusive-marvel-daredevil-funko-pop)
+### [Blind Justice: Underground Exclusive Marvel Daredevil Funko Pop](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=blind-justice-underground-exclusive-marvel-daredevil-funko-pop)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=blind-justice-underground-exclusive-marvel-daredevil-funko-pop"><img alt="funko-pop-marvel-daredevil-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-exclusive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=blind-justice-underground-exclusive-marvel-daredevil-funko-pop"><img alt="funko-pop-marvel-daredevil-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-exclusive-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Funko Pop! Marvel Daredevil Exclusive and let me tell you, it was a delight to add this little guy to my collection. Standing at around 9cm tall, this figure of Matt Murdock perfectly captures the essence of Daredevil in his iconic all red costume. The detail on this figure is impressive, and the paint job is truly remarkable. 
 
@@ -140,9 +140,9 @@ However, as with many pop figures, there are a few minor drawbacks. While this D
 All in all, the Funko Pop! Marvel Daredevil Exclusive is a fantastic addition to any collector's Marvel collection. Its intricate design, exclusive availability, and adorable charm make it a must-have. So, if you're a fan of Daredevil or simply enjoy collecting Marvel POP! figures, this little guy is definitely worth the space on your shelf. 
 
 
-### [Funko Pop! Marvel Venomized Daredevil - Collectible Bobblehead Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-venomized-daredevil-collectible-bobblehead-figure)
+### [Funko Pop! Marvel Venomized Daredevil - Collectible Bobblehead Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-venomized-daredevil-collectible-bobblehead-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-venomized-daredevil-collectible-bobblehead-figure"><img alt="funko-pop-marvel-venom-venomized-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-venom-venomized-daredevil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-venomized-daredevil-collectible-bobblehead-figure"><img alt="funko-pop-marvel-venom-venomized-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-venom-venomized-daredevil-1/h=540,fit=pad,background=black"/></a></div>
 
 Venomized Daredevil is a must-have for any Funko Pop collector. The adorable bobblehead captures the essence of one of the most legendary characters from Television, Movies, Gaming, and Fan moments. With a unique design featuring Venom's tendrils glowing, it's sure to make an amazing addition to any collection. 
 
@@ -151,9 +151,9 @@ Not only does it look fantastic, but the packaging is excellent, ensuring the co
 Just be aware that it's pretty popular, so you might have to do some hunting to find a new, mint condition one. 
 
 
-### [Funko Pop! Marvel Bullseye & Daredevil Collector Corps Exclusive](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive)
+### [Funko Pop! Marvel Bullseye & Daredevil Collector Corps Exclusive](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive"><img alt="funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive"><img alt="funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-bullseye-daredevil-collector-corps-exclusive-1/h=540,fit=pad,background=black"/></a></div>
 
 I've always been a fan of Funko Pop figurines, and when I got my hands on this Daredevil and Bullseye exclusive, my excitement levels were off the roof! The figurines are beautifully crafted, with exceptional attention to detail. They just stand out on my shelf, really attracting attention. 
 
@@ -162,18 +162,18 @@ What stood out the most was the vibrant coloring. It just brings the characters 
 However, one downside was the price. It was a bit steep for what it is, but then again, the exclusivity factor plays a role. Overall, the experience was a positive one. If you're a big fan of Daredevil and Bullseye or just love these Funko Pop figurines, I highly recommend it. After all, what's life without a little pop, right? 
 
 
-### [Elektra Funko Pop! Marvel Daredevil TV Collectible](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=elektra-funko-pop-marvel-daredevil-tv-collectible)
+### [Elektra Funko Pop! Marvel Daredevil TV Collectible](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=elektra-funko-pop-marvel-daredevil-tv-collectible)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=elektra-funko-pop-marvel-daredevil-tv-collectible"><img alt="funko-pop-marvel-daredevil-tv-elektra-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-tv-elektra-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=elektra-funko-pop-marvel-daredevil-tv-collectible"><img alt="funko-pop-marvel-daredevil-tv-elektra-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-marvel-daredevil-tv-elektra-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare to add the legendary Elektra to your Daredevil collection with this exceptional Funko Pop! Marvel figure. Crafted with exquisite attention to detail and vibrant coloring, this 3.5-inch tall bobblehead captures the essence of the character, making it a must-have for fans and collectors alike. 
 
 The packaging is a testament to Funko's commitment to preserving the authenticity of their products, making it an ideal gift for any pop culture enthusiast. Whether you're a seasoned collector or just starting your journey, this Elektra Funko Pop! marvel addition to your collection promises to deliver a delightful addition to your display. 
 
 
-### [Daredevil: Masked Vigilante Funko Pop](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-masked-vigilante-funko-pop)
+### [Daredevil: Masked Vigilante Funko Pop](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-masked-vigilante-funko-pop)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-masked-vigilante-funko-pop"><img alt="daredevil-masked-vigilante-pop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-masked-vigilante-pop-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-masked-vigilante-funko-pop"><img alt="daredevil-masked-vigilante-pop-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-masked-vigilante-pop-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare yourself for an adrenaline rush with the Daredevil (Masked Vigilante) Pop! by Funko. This stylized vinyl collectible is not only an eye-catching addition to your collection but also a masterpiece of detail and high-quality paint. Standing at a mighty 3.5 inches, this Pop! is perfect for adding a touch of excitement to your office or home. 
 
@@ -186,9 +186,9 @@ The Daredevil (Masked Vigilante) Pop! is more than just a toy; it is a symbol of
 In conclusion, the Daredevil (Masked Vigilante) Pop! by Funko is a must-have for collectors and fans alike. With its impeccable detail and high-quality paint, this collectible not only looks great but also adds a touch of excitement to any space it occupies. If you're a fan of the character or simply appreciate the art of collecting, this Pop! is a worthy addition to your collection. 
 
 
-### [Pop! Deluxe Marvel Street Art Collection - Daredevil Funko](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=pop-deluxe-marvel-street-art-collection-daredevil-funko)
+### [Pop! Deluxe Marvel Street Art Collection - Daredevil Funko](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=pop-deluxe-marvel-street-art-collection-daredevil-funko)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=pop-deluxe-marvel-street-art-collection-daredevil-funko"><img alt="pop-deluxe-marvel-street-art-collection-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-deluxe-marvel-street-art-collection-daredevil-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=pop-deluxe-marvel-street-art-collection-daredevil-funko"><img alt="pop-deluxe-marvel-street-art-collection-daredevil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pop-deluxe-marvel-street-art-collection-daredevil-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently added the Daredevil Funko Pop to my collection and I must say, it's a fantastic piece! The attention to detail in the stylized graffiti design is impressive, showcasing Daredevil's unique flair. What I love most about this collectible is the separate brick wall backdrop, which adds an authentic touch to each figure, celebrating the hero's neighborhood. 
 
@@ -197,9 +197,9 @@ The hand-dipped process ensures that each pop is one-of-a-kind, adding to the ov
 This product not only brings art and collectibles together but also comes beautifully packaged in a window-display box. I highly recommend adding this pop to your collection if you're a fan of Daredevil or the Marvel Street Art series. The customer support team is responsive, making the checkout process smooth and hassle-free. 
 
 
-### [Daredevil Funko Pop: Marvel's Matt Murdock Figure](https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-funko-pop-marvels-matt-murdock-figure)
+### [Daredevil Funko Pop: Marvel's Matt Murdock Figure](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-funko-pop-marvels-matt-murdock-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop?utm_term=daredevil-funko-pop-marvels-matt-murdock-figure"><img alt="daredevil-matt-murdock-funko-pop-vinyl-figure-marvel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-matt-murdock-funko-pop-vinyl-figure-marvel-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm_term=daredevil-funko-pop-marvels-matt-murdock-figure"><img alt="daredevil-matt-murdock-funko-pop-vinyl-figure-marvel-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/daredevil-matt-murdock-funko-pop-vinyl-figure-marvel-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine walking into your office or home and seeing your favorite Daredevil character standing right there, ready to greet you! That's exactly how I felt when I first received the Daredevil Matt Murdock Funko Pop! Vinyl Figure. Standing at just under 4 inches tall, this little guy is the perfect addition to any Marvel or Funko collection. 
 
@@ -219,7 +219,7 @@ Welcome to the Daredevil Funko Pop Buyer's Guide! This comprehensive guide will 
 
 Daredevil Funko Pops are one of the highly sought-after collectibles in the Funko Pop universe. Officially licensed, these figures capture the essence of Marvel's blind superhero, Matt Murdock. The collection features various iterations of Daredevil, from different comic renditions to unique pop culture references. They range in size from 3.75 to 6 inches, attracting collectors and fans alike. With a vast array of choices available, it's time to dive into the world of the Daredevil Funko Pops and select the one that speaks to you. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-2/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-2/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-2" height="540"></a></div>
 
 
 ### Important Features to Consider
@@ -233,7 +233,7 @@ When choosing a Daredevil Funko Pop, there are several essential features to con
 To ensure you make the most informed purchase, consider these shopping tips: 
 1) Check the authenticity of the product before buying, as there might be counterfeit pops on the market. 2) Aim for pops in good condition, free from scratches or damage. 3) Research the price range of the desired Daredevil Funko Pop to avoid overpaying, while also being mindful of potential price hikes or trends. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-3/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-3/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-3" height="540"></a></div>
 
 
 ### Where to Buy Daredevil Funko Pops
@@ -243,7 +243,7 @@ Now that you know what features and considerations to look for, let's discuss wh
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-4/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-4/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-4" height="540"></a></div>
 
 
 ### What are the Daredevil Funko Pops?
@@ -259,7 +259,7 @@ Daredevil, originally known as Matt Murdock, is a fictional character created by
 
 Throughout the years, Daredevil has been depicted in various comic series, cartoons, movies, and video games. The character's popularity stems from his unique abilities, relatable past, and the engaging storylines created around the character. Daredevil is often associated with the Marvel Cinematic Universe (MCU), with characters such as Spider-Man, Iron Man, Captain America, and Thor, among others. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-5/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-5/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-5" height="540"></a></div>
 
 
 ### Are Daredevil Funko Pops limited edition?
@@ -275,7 +275,7 @@ The price of a Daredevil Funko Pop can vary depending on several factors, such a
 
 It is essential to research and compare prices across various online marketplaces or at comic book conventions to find a fair price for a particular Daredevil Funko Pop. It is also a good idea to establish a budget based on your personal collection goals and the availability of the figures you are interested in. However, note that the value of collectibles can fluctuate over time, so it's always a good idea to stay updated on the market and potential investments. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-6/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Daredevil+Funko+Pop"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Daredevil-Funko-Pop-6/h=540,fit=pad,background=black" alt="Daredevil-Funko-Pop-6" height="540"></a></div>
 
 
 ### How can I purchase a Daredevil Funko Pop?

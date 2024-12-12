@@ -15,18 +15,18 @@ If you're a fan of the Man of Steel, then you'll be thrilled to know we've round
 ## Reviews
 
 
-### [Return of Superman MAFEX Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=return-of-superman-mafex-action-figure)
+### [Return of Superman MAFEX Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=return-of-superman-mafex-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=return-of-superman-mafex-action-figure"><img alt="return-of-superman-steel-mafex-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/return-of-superman-steel-mafex-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=return-of-superman-mafex-action-figure"><img alt="return-of-superman-steel-mafex-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/return-of-superman-steel-mafex-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 The Return of Superman Steel MAFEX Action Figure is a highly detailed addition to your collection. As part of the World A. D. line, it brings the Death and Return of Superman comics to life. Standing at 17 cm tall and with a movable figure stand, this action figure is perfect for display or playtime. 
 
 With three interchangeable head parts and hands, you can customize your Superman figure to match your personal style. Accessories include rocket boots for a superhuman touch and a hammer for those ready to fight. The packaging is well thought out, ensuring the figure stays in perfect shape during transit. Users have reported positive experiences with prompt shipping and no damage upon receipt. Overall, the Return of Superman Steel MAFEX Action Figure is a high-quality, fun, and visually impressive addition to any Superman fan's collection. 
 
 
-### [DC Microman Superman Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-microman-superman-action-figure)
+### [DC Microman Superman Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-microman-superman-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-microman-superman-action-figure"><img alt="dc-microman-superman-action-figure-ma-37-cyborg-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-microman-superman-action-figure-ma-37-cyborg-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-microman-superman-action-figure"><img alt="dc-microman-superman-action-figure-ma-37-cyborg-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-microman-superman-action-figure-ma-37-cyborg-1/h=540,fit=pad,background=black"/></a></div>
 
 As a huge fan of Superman, I recently got my hands on the Cyborg version of the MA-37 Superman action figure by Takara. Being officially licensed, the figure truly stands out with detailed craftsmanship and an animated look that fans of the character will adore. The figure stands about 10 cm tall, allowing it to dominate any display case or shelf it resides on. 
 
@@ -37,9 +37,9 @@ Equipped with seven accessory ports, including hand hooks and attachable energy-
 Overall, the Cyborg Superman MA-37 action figure by Takara is definitely a must-have for any serious Superman fan or collector. Despite the slightly steep price tag, it's well worth the investment for the quality, detail, and creative freedom it offers. 
 
 
-### [DC Comics Man of Steel Superman Solar Power Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-comics-man-of-steel-superman-solar-power-action-figure)
+### [DC Comics Man of Steel Superman Solar Power Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-comics-man-of-steel-superman-solar-power-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-comics-man-of-steel-superman-solar-power-action-figure"><img alt="dc-comics-superman-man-of-steel-solar-power-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-superman-man-of-steel-solar-power-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-comics-man-of-steel-superman-solar-power-action-figure"><img alt="dc-comics-superman-man-of-steel-solar-power-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-superman-man-of-steel-solar-power-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 Imagine giving your little one the power of Superman with the DC Comics Superman: Man of Steel Solar Power Action Figure. This toy is a charming addition to any comic book fan's collection, and it's perfect for any child who loves the Man of Steel. 
 
@@ -48,9 +48,9 @@ It's an authentic-looking figure from the movie and has a high level of articula
 When they want to see his power within, all they need to do is press the button and watch him light up! This action figure comes with one figure and a large weapon, making it a wonderful gift for any Superman fan. 
 
 
-### [Superman: Recovery Suit Edition One:12 Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=superman-recovery-suit-edition-one-12-action-figure)
+### [Superman: Recovery Suit Edition One:12 Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=superman-recovery-suit-edition-one-12-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=superman-recovery-suit-edition-one-12-action-figure"><img alt="superman-recovery-suit-edition-one-12-collective-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-recovery-suit-edition-one-12-collective-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=superman-recovery-suit-edition-one-12-action-figure"><img alt="superman-recovery-suit-edition-one-12-collective-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-recovery-suit-edition-one-12-collective-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first unboxed the Superman Recovery Suit Edition One: 12 Collective Action Figure, I was struck by its impeccable attention to detail. The all-black suit with the House of El family crest really gave off a strong, serious vibe, and the included rocket boots and rocket thruster FX added a touch of futuristic coolness to the figure. 
 
@@ -59,9 +59,9 @@ One of the standout features was the different head portraits, each capturing Su
 However, the size of the figure might be a bit of a letdown for some collectors, as it stands only about 6.3 inches tall. Overall, the Superman Recovery Suit Edition One: 12 Collective Action Figure is a must-have for any Superman fan, with its intricate design and various accessories that really bring the character to life. 
 
 
-### [DC Comics Blueline Superman Action Figure by Jim Lee - Ages 16 and Up](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-comics-blueline-superman-action-figure-by-jim-lee-ages-16-and-up)
+### [DC Comics Blueline Superman Action Figure by Jim Lee - Ages 16 and Up](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-comics-blueline-superman-action-figure-by-jim-lee-ages-16-and-up)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-comics-blueline-superman-action-figure-by-jim-lee-ages-16-and-up"><img alt="dc-comics-blueline-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-blueline-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-comics-blueline-superman-action-figure-by-jim-lee-ages-16-and-up"><img alt="dc-comics-blueline-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-blueline-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the DC Comics Blueline Superman action figure by Jim Lee. It's such a cool addition to my collection, standing at around 6 inches tall with 11 points of articulation. The figure features incredible detail, and I particularly love the Jim Lee sketch card that comes with it. 
 
@@ -70,9 +70,9 @@ One thing that stood out to me is the box it comes in, it's really nicely design
 However, one minor downside is that the box it comes in isn't as sturdy as I would have hoped, so I had to be extra careful when handling it. Overall, I'm really happy with this purchase and would recommend it to anyone who's a fan of Superman or just action figures in general. 
 
 
-### [Superman Man of Steel Power Attack Deluxe Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=superman-man-of-steel-power-attack-deluxe-action-figure)
+### [Superman Man of Steel Power Attack Deluxe Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=superman-man-of-steel-power-attack-deluxe-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=superman-man-of-steel-power-attack-deluxe-action-figure"><img alt="superman-man-of-steel-power-attack-deluxe-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-man-of-steel-power-attack-deluxe-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=superman-man-of-steel-power-attack-deluxe-action-figure"><img alt="superman-man-of-steel-power-attack-deluxe-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-man-of-steel-power-attack-deluxe-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're a fan of Superman, you'll be thrilled to get your hands on this Man of Steel Power Attack Deluxe Action Figure. Based on the summer blockbuster, this toy brings Superman's incredible strength to life like never before. 
 
@@ -81,9 +81,9 @@ The special feature allows you to initiate the Power Attack move, which can be e
 This set comes with one figure and one feature accessory, making it a must-have for any Superman enthusiast. 
 
 
-### [DC Super Heroes Loose Superman Action Figure [Used Condition]](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-super-heroes-loose-superman-action-figure-used-condition)
+### [DC Super Heroes Loose Superman Action Figure [Used Condition]](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-super-heroes-loose-superman-action-figure-used-condition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-super-heroes-loose-superman-action-figure-used-condition"><img alt="dc-super-heroes-superman-action-figure-loose-used-condition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-super-heroes-superman-action-figure-loose-used-condition-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-super-heroes-loose-superman-action-figure-used-condition"><img alt="dc-super-heroes-superman-action-figure-loose-used-condition-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-super-heroes-superman-action-figure-loose-used-condition-1/h=540,fit=pad,background=black"/></a></div>
 
 As a kid, I always admired Superman for his strength, powers, and bravery. One day, I stumbled upon this loose DC Super Heroes Superman action figure on a local flea market. With a sense of nostalgia, I grabbed it and brought it home to add it to my collection. 
 
@@ -94,9 +94,9 @@ However, as with any used item, there are some downsides. It lacks the original 
 Overall, this loose DC Super Heroes Superman action figure is a fantastic addition to any collector's collection. The iconic character, paired with the action-packed poses and Kryptonite ring, makes it a delightful find. Just remember to handle it with care and take proper measures to store it safely when not in use. 
 
 
-### [Imaginative Superman & Krypto Playset for Kids](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=imaginative-superman-krypto-playset-for-kids)
+### [Imaginative Superman & Krypto Playset for Kids](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=imaginative-superman-krypto-playset-for-kids)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=imaginative-superman-krypto-playset-for-kids"><img alt="fisher-price-dc-league-of-super-pets-superman-krypto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fisher-price-dc-league-of-super-pets-superman-krypto-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=imaginative-superman-krypto-playset-for-kids"><img alt="fisher-price-dc-league-of-super-pets-superman-krypto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fisher-price-dc-league-of-super-pets-superman-krypto-1/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, the Fisher-Price DC League of Super-Pets Superman & Krypto set has been both an entertaining and educational toy for my child. The set features Superman and his loyal dog, Krypto, standing 15cm and 10cm tall, respectively. The characters are well-articulated, allowing for realistic playtime. The highlight of the set is the rotating Superman figure, which can take shots at enemies. 
 
@@ -105,9 +105,9 @@ One of the standout features of this set is the quality of the figures. They are
 However, the set's size might be a drawback for some users. Since the figures are quite large, they may not be suitable for younger children who struggle with fine motor skills, as they might have difficulty holding or manipulating the toys. Additionally, the range of motion for the characters might be a bit limited, which could hinder the creative possibilities for some kids. Overall, the Fisher-Price DC League of Super-Pets Superman & Krypto set is a fun and engaging toy for children aged three and up who enjoy superhero stories. 
 
 
-### [Superman Action Figure by Zack Snyder's Justice League](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=superman-action-figure-by-zack-snyders-justice-league)
+### [Superman Action Figure by Zack Snyder's Justice League](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=superman-action-figure-by-zack-snyders-justice-league)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=superman-action-figure-by-zack-snyders-justice-league"><img alt="zack-snyders-justice-league-superman-mafex-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zack-snyders-justice-league-superman-mafex-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=superman-action-figure-by-zack-snyders-justice-league"><img alt="zack-snyders-justice-league-superman-mafex-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/zack-snyders-justice-league-superman-mafex-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 As a huge fan of Superman and Zack Snyder's Justice League, I was excited when I stumbled upon this MAFEX action figure. Holding the figure in my hands, I immediately noticed its sleek and intricate design, reminiscent of the movie. The black outfit, complete with a real cloth cape that flows seamlessly in the wind, was a definite highlight for me. The figure comes with four interchangeable heads and other hand parts, allowing me to customize my version of Superman to my liking. 
 
@@ -116,9 +116,9 @@ However, there were a couple of downsides as well. I found the joints to be some
 Overall, I believe this MAFEX action figure is worth adding to any Superman collection. Its sleek design and attention to detail make it a standout for fans of the character, even if the joints can be a bit finicky at times. 
 
 
-### [Justice League: Thermo-Blast Superman 6in Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=justice-league-thermo-blast-superman-6in-action-figure)
+### [Justice League: Thermo-Blast Superman 6in Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=justice-league-thermo-blast-superman-6in-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=justice-league-thermo-blast-superman-6in-action-figure"><img alt="justice-league-thermo-blast-superman-action-figure-6in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-thermo-blast-superman-action-figure-6in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=justice-league-thermo-blast-superman-6in-action-figure"><img alt="justice-league-thermo-blast-superman-action-figure-6in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-thermo-blast-superman-action-figure-6in-1/h=540,fit=pad,background=black"/></a></div>
 
 As a Superman fan, I was thrilled to get my hands on this Thermo-Blast Superman action figure. It's not just any Superman; it's one that comes from the Justice League movie. You can almost hear Zack Snyder's voice as you open this. 
 
@@ -131,27 +131,27 @@ However, it's not all smooth sailing. One of the issues I encountered was the sh
 But, all things considered, this is a great toy for children who are fans of Superman. The action figure is robust, the accessories are fun, and the price point is very reasonable. It's definitely a worthy addition to any collection. 
 
 
-### [Officially Licensed Superman Vinyl Figure Handmade by Robots](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=officially-licensed-superman-vinyl-figure-handmade-by-robots)
+### [Officially Licensed Superman Vinyl Figure Handmade by Robots](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=officially-licensed-superman-vinyl-figure-handmade-by-robots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=officially-licensed-superman-vinyl-figure-handmade-by-robots"><img alt="dc-comics-handmade-by-robots-superman-vinyl-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-handmade-by-robots-superman-vinyl-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=officially-licensed-superman-vinyl-figure-handmade-by-robots"><img alt="dc-comics-handmade-by-robots-superman-vinyl-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-handmade-by-robots-superman-vinyl-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fan of DC Comics, I was thrilled to get my hands on the Handmade by Robots Superman vinyl figure. The attention to detail is impressive, resembling knit fabric at first glance but being made of vinyl. Standing tall at approximately 5 inches, this figure is both perfect for display and play. 
 
 One of my favorite aspects is the signature vinyl tag on the figure, complete with a barcode decal to give it the appearance of a sewn-in label. The figure has a slight imperfection in its appearance, adding to the unique charm of the Handmade by Robots line. Though I wouldn't recommend it for younger kids, this collector's item will surely stand out in any display case. Overall, a wonderful addition to any DC Comics fan's collection. 
 
 
-### [Justice League Superman Blue/Red Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=justice-league-superman-blue-red-action-figure)
+### [Justice League Superman Blue/Red Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=justice-league-superman-blue-red-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=justice-league-superman-blue-red-action-figure"><img alt="justice-league-movie-superman-blue-red-7-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-movie-superman-blue-red-7-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=justice-league-superman-blue-red-action-figure"><img alt="justice-league-movie-superman-blue-red-7-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-movie-superman-blue-red-7-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare yourself for an iconic showdown with the Justice League Superman 7-inch Action Figure! This sleek, meticulously designed toy is crafted with the utmost care, boasting up to 22 moving parts for a level of articulation that is unmatched. Based on the blockbuster Justice League movie, the Superman figure radiates an air of confidence and heroism. 
 
 Not only does it capture Henry Cavill's on-screen presence, but it also comes complete with a flight stand, adding the touch of authenticity that collectors crave. However, some users have highlighted a few drawbacks, such as the potentially limited range of movement due to the sturdy articulation, and the oddly-posed hand. Overall, this stunning action figure is a must-have for Marvel die-hards and newcomers alike. 
 
 
-### [McFarlane DC Action Comics Action Figure Superman](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=mcfarlane-dc-action-comics-action-figure-superman)
+### [McFarlane DC Action Comics Action Figure Superman](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=mcfarlane-dc-action-comics-action-figure-superman)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=mcfarlane-dc-action-comics-action-figure-superman"><img alt="mcfarlane-dc-action-comics-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mcfarlane-dc-action-comics-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=mcfarlane-dc-action-comics-action-figure-superman"><img alt="mcfarlane-dc-action-comics-superman-action-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mcfarlane-dc-action-comics-superman-action-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fan of DC comics and Superman, I've been eagerly awaiting a high-quality action figure that captures the essence of the Man of Steel. McFarlane's DC Action Comics Superman figure definitely delivered. Standing at an impressive 11 inches tall, with 22 movable parts, this figure boasts exceptional detail and a wide range of posing options. 
 
@@ -160,9 +160,9 @@ The figure's Superman accessory, which includes a flight stand for aerial posing
 However, the figure does have its minor drawbacks, such as a quality control issue that caused the cape on my figure to become detached. Despite this, I still believe McFarlane's DC Action Comics Superman figure is a must-have for any DC fan. 
 
 
-### [DC Comics Superman Action Figure with Mystery Accessories: Adventure 3-4](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-comics-superman-action-figure-with-mystery-accessories-adventure-3-4)
+### [DC Comics Superman Action Figure with Mystery Accessories: Adventure 3-4](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-comics-superman-action-figure-with-mystery-accessories-adventure-3-4)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-comics-superman-action-figure-with-mystery-accessories-adventure-3-4"><img alt="dc-comics-superman-action-figure-with-3-mystery-accessories-adventure-3-4-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-superman-action-figure-with-3-mystery-accessories-adventure-3-4-in-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-comics-superman-action-figure-with-mystery-accessories-adventure-3-4"><img alt="dc-comics-superman-action-figure-with-3-mystery-accessories-adventure-3-4-in-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-comics-superman-action-figure-with-3-mystery-accessories-adventure-3-4-in-1/h=540,fit=pad,background=black"/></a></div>
 
 As a DC Comics fan, I recently got my hands on one of the Superman Action Figure with 3 Mystery Accessories. I must say, it's been quite the adventure! Upon opening the box, I found an adrenaline-pumping mission that could've taken place in Gotham City. My excitement rose as I began searching for the mystery accessories. Little did I know, the thrill was just beginning. 
 
@@ -175,9 +175,9 @@ However, though the idea of each box containing a unique and mysterious theme is
 All in all, the Superman Action Figure with 3 Mystery Accessories offers a thrilling and exciting experience for any DC Comics fan, and I eagerly await each new mission that awaits this Caped Crusader. 
 
 
-### [DC Multiverse Superman: Rebirth Sketch Edition Golden Label Collectible](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-multiverse-superman-rebirth-sketch-edition-golden-label-collectible)
+### [DC Multiverse Superman: Rebirth Sketch Edition Golden Label Collectible](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-multiverse-superman-rebirth-sketch-edition-golden-label-collectible)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-multiverse-superman-rebirth-sketch-edition-golden-label-collectible"><img alt="dc-multiverse-superman-rebirth-sketch-edition-gold-label-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-multiverse-superman-rebirth-sketch-edition-gold-label-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-multiverse-superman-rebirth-sketch-edition-golden-label-collectible"><img alt="dc-multiverse-superman-rebirth-sketch-edition-gold-label-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dc-multiverse-superman-rebirth-sketch-edition-gold-label-1/h=540,fit=pad,background=black"/></a></div>
 
 Meet the DC Multiverse Superman Rebirth Sketch Edition Gold Label action figure, a limited edition treasure for any die-hard Superman fan. With just 3,000 made, this gold-labeled gem not only represents the strength of the Man of Steel but also showcases his versatility in the world of comics. 
 
@@ -186,9 +186,9 @@ The figure is not only visually striking but also functional, featuring full art
 But before you dive in, remember that this limited edition figure is truly exclusive. Once you've got your hands on it, you'll be in possession of a one-of-a-kind piece of comic book and toy history. The DC Multiverse Superman Rebirth Sketch Edition Gold Label action figure - a must-have for any collector. 
 
 
-### [Justice League Superman 1/6 Scale Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=justice-league-superman-1-6-scale-figure)
+### [Justice League Superman 1/6 Scale Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=justice-league-superman-1-6-scale-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=justice-league-superman-1-6-scale-figure"><img alt="justice-league-superman-1-6-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-superman-1-6-figure-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=justice-league-superman-1-6-scale-figure"><img alt="justice-league-superman-1-6-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justice-league-superman-1-6-figure-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the action-packed world of Justice League with this stunning 1/6th scale Superman figure by Sideshow and Hot Toys! Meticulously crafted to mirror Henry Cavill's appearance in the movie, this incredible collectible boasts an impressive 4.9-star rating from satisfied customers. 
 
@@ -197,18 +197,18 @@ Featuring a LED-light-up head sculpt that captures Superman's heat vision abilit
 Despite the minor flaws mentioned by some reviewers, the overall quality and likeness of the figure are hard to ignore. With its Justice League-themed base, this Superman figure is set to impress fans and collectors alike. 
 
 
-### [DC Superman 50th Anniversary Bizarro Action Figure](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=dc-superman-50th-anniversary-bizarro-action-figure)
+### [DC Superman 50th Anniversary Bizarro Action Figure](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=dc-superman-50th-anniversary-bizarro-action-figure)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=dc-superman-50th-anniversary-bizarro-action-figure"><img alt="mego-wave-18-bizarro-superman-50th-anniversary-worlds-greatest-superheroes-8-action-figure-pre-order-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mego-wave-18-bizarro-superman-50th-anniversary-worlds-greatest-superheroes-8-action-figure-pre-order-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=dc-superman-50th-anniversary-bizarro-action-figure"><img alt="mego-wave-18-bizarro-superman-50th-anniversary-worlds-greatest-superheroes-8-action-figure-pre-order-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mego-wave-18-bizarro-superman-50th-anniversary-worlds-greatest-superheroes-8-action-figure-pre-order-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare to step back in time with the Mego Wave 18 8-inch Bizarro Superman action figure, an official edition celebrating the 50th anniversary of the World's Greatest Superheroes. This classic box contains a figure that boasts an impressive 26-point articulation, allowing you to customize and display your Superman in a variety of poses. 
 
 Enjoy the original detail and quality that the Mego Corporation has been known for since its inception in 1954, and embrace the legendary 8-inch scale figures that revolutionized the action figure industry. As a pre-order, the figure is set to ship in February 2024, giving collectors plenty of time to anticipate this exciting addition to their collection. 
 
 
-### [Superman Robot Playset for Imaginative Kids](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=superman-robot-playset-for-imaginative-kids)
+### [Superman Robot Playset for Imaginative Kids](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=superman-robot-playset-for-imaginative-kids)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=superman-robot-playset-for-imaginative-kids"><img alt="imaginext-dc-super-friends-superman-robot-robot-toy-playset-with-character-figures-for-preschool-kid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imaginext-dc-super-friends-superman-robot-robot-toy-playset-with-character-figures-for-preschool-kid-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=superman-robot-playset-for-imaginative-kids"><img alt="imaginext-dc-super-friends-superman-robot-robot-toy-playset-with-character-figures-for-preschool-kid-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/imaginext-dc-super-friends-superman-robot-robot-toy-playset-with-character-figures-for-preschool-kid-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse your little ones in the superhero world with Fisher-Price's Imaginext DC Super Friends Superman Robot playset. Designed for kids aged 3 to 8 years old, this playset lets them help Superman fight big trouble by having him wear the unstoppable suit. The robot suit is equipped with cool lights and sounds, which activate when children place the Superman figure inside. 
 
@@ -217,9 +217,9 @@ When it's time for battle with Brainiac, kids can slide the lever on the arm to 
 Made in China, this sturdy and colorful playset is a great gift that will encourage hours of fun for kids. 
 
 
-### [Big-Figs Tribute Series DC Originals 18-inch Superman Figure with Fabric Costume](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=big-figs-tribute-series-dc-originals-18-inch-superman-figure-with-fabric-costume)
+### [Big-Figs Tribute Series DC Originals 18-inch Superman Figure with Fabric Costume](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=big-figs-tribute-series-dc-originals-18-inch-superman-figure-with-fabric-costume)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=big-figs-tribute-series-dc-originals-18-inch-superman-figure-with-fabric-costume"><img alt="big-figs-tribute-series-dc-originals-18-inch-superman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/big-figs-tribute-series-dc-originals-18-inch-superman-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=big-figs-tribute-series-dc-originals-18-inch-superman-figure-with-fabric-costume"><img alt="big-figs-tribute-series-dc-originals-18-inch-superman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/big-figs-tribute-series-dc-originals-18-inch-superman-1/h=540,fit=pad,background=black"/></a></div>
 
 I remember the moment I laid my eyes on the Big-Figs Tribute Series DC Originals 18-inch Superman – a stunning piece of art that captured the essence of the Silver Age aesthetic. Standing at 18 inches tall, this Man of Steel immediately caught my attention with his meticulously crafted fabric costume, making him look more lifelike than ever before. 
 
@@ -232,9 +232,9 @@ However, I must note that no matter how impressive this figure is, it is still a
 Overall, the Big-Figs Tribute Series DC Originals 18-inch Superman is an extraordinary collectible for any DC comic fan. With its breathtaking design and attention to detail, it's sure to become a prized addition to any collection. 
 
 
-### [Retro Superman & Robin Action Figures (Limited Edition)](https://serp.ly/@outrun/amazon/Superman+Toys?utm\_term=retro-superman-robin-action-figures-limited-edition)
+### [Retro Superman & Robin Action Figures (Limited Edition)](https://serp.ly/@bar/amazon/Superman+Toys?utm\_term=retro-superman-robin-action-figures-limited-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Superman+Toys?utm_term=retro-superman-robin-action-figures-limited-edition"><img alt="superman-robin-retro-action-figures-dc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-robin-retro-action-figures-dc-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Superman+Toys?utm_term=retro-superman-robin-action-figures-limited-edition"><img alt="superman-robin-retro-action-figures-dc-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/superman-robin-retro-action-figures-dc-1/h=540,fit=pad,background=black"/></a></div>
 
 Step back in time with these retro-inspired Superman and Robin action figures from DC Comics. Each figure features 16 points of articulation and comes with an authentic cloth outfit. With only 100 pieces available worldwide, these collectibles are the perfect addition for any die-hard Superhero fan. 
 

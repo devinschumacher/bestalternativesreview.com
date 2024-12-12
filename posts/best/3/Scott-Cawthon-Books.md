@@ -15,25 +15,25 @@ Welcome to our roundup of Scott Cawthon books! If you're a fan of horror, suspen
 ## Reviews
 
 
-### [Spoonful of Murder: A Snowflake Culinary Mystery](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=spoonful-of-murder-a-snowflake-culinary-mystery)
+### [Spoonful of Murder: A Snowflake Culinary Mystery](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=spoonful-of-murder-a-snowflake-culinary-mystery)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=spoonful-of-murder-a-snowflake-culinary-mystery"><img alt="a-spoonful-of-murder-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a-spoonful-of-murder-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=spoonful-of-murder-a-snowflake-culinary-mystery"><img alt="a-spoonful-of-murder-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/a-spoonful-of-murder-book-1/h=540,fit=pad,background=black"/></a></div>
 
 A Spoonful of Murder" by Scott Cawthon is an enthralling cozy mystery set in the charming town of Snowflake, Vermont, during the bustling winter season. The novel weaves together the lives of Lucky, her family, and the people around her, combining elements of suspense and intrigue. The tantalizing prospect of a skiing holiday and the promise of heartwarming soups beckon but Lucky is left with more questions than answers. Can she protect her business, uncover the truth, and solve the murder, or has the icy chill of uncertainty taken root? 
 
 "A Spoonful of Murder" isn't just about mystery, it's also a culinary delight, complete with a collection of recipes to try. Whether you're already a fan of cozy mysteries or new to the genre, the thrilling plot and alluring recipes make this book a delightful read. So, if you're in need of good food and a great story, why not give it a try? Prepare to have your taste buds tantalized and your detective spirit stimulated! 
 
 
-### [In Days to Come: Extraterrestrial Enigmas & Cosmic Communication](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=in-days-to-come-extraterrestrial-enigmas-cosmic-communication)
+### [In Days to Come: Extraterrestrial Enigmas & Cosmic Communication](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=in-days-to-come-extraterrestrial-enigmas-cosmic-communication)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=in-days-to-come-extraterrestrial-enigmas-cosmic-communication"><img alt="in-days-to-come-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/in-days-to-come-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=in-days-to-come-extraterrestrial-enigmas-cosmic-communication"><img alt="in-days-to-come-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/in-days-to-come-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Embark on a celestial journey with "In Days to Come, " a thought-provoking book that delves into the realms of extraterrestrial contact and communication with beings beyond our world. This enlightening read will challenge your perception of reality, spark curiosity about life on other planets, and prompt you to ponder a brighter, more harmonious future shaped by cosmic wisdom. A must-read for UFO enthusiasts and curious minds alike. 
 
 
-### [Last Hit - An Unforgettable Book by Scott Cawthon](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=last-hit-an-unforgettable-book-by-scott-cawthon)
+### [Last Hit - An Unforgettable Book by Scott Cawthon](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=last-hit-an-unforgettable-book-by-scott-cawthon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=last-hit-an-unforgettable-book-by-scott-cawthon"><img alt="kenyattas-last-hit-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kenyattas-last-hit-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=last-hit-an-unforgettable-book-by-scott-cawthon"><img alt="kenyattas-last-hit-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kenyattas-last-hit-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Kenyatta's Last Hit has become my go-to book when I need a thrilling, gritty escape. As I turned the pages, I felt like I was right there in the midst of the battle-stricken streets, feeling the adrenaline rush from Kenyatta's quest to reclaim his city. 
 
@@ -44,9 +44,9 @@ One aspect that did stand out for me, however, were some of the language choices
 Overall, "Kenyatta's Last Hit" was an unforgettable read, and I'm excited to see what other adventures await the urban legend, Kenyatta, in the future. 
 
 
-### [The Silver Eyes by Scott Cawthon](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=the-silver-eyes-by-scott-cawthon)
+### [The Silver Eyes by Scott Cawthon](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=the-silver-eyes-by-scott-cawthon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=the-silver-eyes-by-scott-cawthon"><img alt="the-silver-eyes-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-silver-eyes-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=the-silver-eyes-by-scott-cawthon"><img alt="the-silver-eyes-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-silver-eyes-book-1/h=540,fit=pad,background=black"/></a></div>
 
 The Silver Eyes by Scott Cawthon was a thrilling read for me. As a fan of the Five Nights at Freddy's games, I couldn't resist diving into this book that promised to fill in some gaps in the story. The book takes place ten years after the murders at Freddy Fazbear's Pizza, and follows Charlie and her childhood friends as they revisit the abandoned pizza place on the anniversary of the event. 
 
@@ -57,18 +57,18 @@ However, one thing I noticed was that the book assumes a certain level of knowle
 Overall, The Silver Eyes was a fun and engaging read that added to my appreciation of the Five Nights at Freddy's universe. The detailed descriptions of the animatronics and the eerie atmosphere kept me on the edge of my seat until the very end. 
 
 
-### [Tales from the Pizzaplex #8: B7-2 by Scott Cawthon (Five Nights at Freddy's Book)](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=tales-from-the-pizzaplex-8-b7-2-by-scott-cawthon-five-nights-at-freddys-book)
+### [Tales from the Pizzaplex #8: B7-2 by Scott Cawthon (Five Nights at Freddy's Book)](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=tales-from-the-pizzaplex-8-b7-2-by-scott-cawthon-five-nights-at-freddys-book)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=tales-from-the-pizzaplex-8-b7-2-by-scott-cawthon-five-nights-at-freddys-book"><img alt="tales-from-the-pizzaplex-8-b7-2-an-afk-book-five-nights-at-freddys-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tales-from-the-pizzaplex-8-b7-2-an-afk-book-five-nights-at-freddys-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=tales-from-the-pizzaplex-8-b7-2-by-scott-cawthon-five-nights-at-freddys-book"><img alt="tales-from-the-pizzaplex-8-b7-2-an-afk-book-five-nights-at-freddys-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tales-from-the-pizzaplex-8-b7-2-an-afk-book-five-nights-at-freddys-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive deep into the dark corners of the Pizzaplex with Scott Cawthon's latest offering, B7-2: an AFK Book. This collection of three spine-chilling novellas will keep even the bravest readers on the edge of their seat. 
 
 Follow Billy's journey as he adjusts to a starkly different reality, or Rory's struggle to distinguish day from night as dreams blur the lines of reality. Be prepared to face the sinister side of the Five Nights at Freddy's universe in this gripping book. 
 
 
-### [The Twisted Ones: A Frightening Adventure for Teens](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=the-twisted-ones-a-frightening-adventure-for-teens)
+### [The Twisted Ones: A Frightening Adventure for Teens](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=the-twisted-ones-a-frightening-adventure-for-teens)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=the-twisted-ones-a-frightening-adventure-for-teens"><img alt="the-twisted-ones-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-twisted-ones-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=the-twisted-ones-a-frightening-adventure-for-teens"><img alt="the-twisted-ones-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-twisted-ones-book-1/h=540,fit=pad,background=black"/></a></div>
 
 The Twisted Ones, published by Turtleback Books since 2017, is a thrilling young adult novel that takes readers on an edge-of-their-seat adventure. Standing at 19.81 x 12.95 x 2.29 centimeters and categorized under Children's, Fiction, and Action & Adventure, this book is sure to captivate the hearts of teenage readers. Filled with suspense, the story revolves around a young girl, Charlie, who is eager to move on from the traumatic events at Freddy Fazbear's Pizza. 
 
@@ -77,9 +77,9 @@ However, the arrival of sinister creatures nearby threatens her newfound peace, 
 As the story unfolds, the intensity of the hunt for Charlie intensifies, turning the stakes higher and making for an unforgettable page-turner. 
 
 
-### [Scott Cawthon's The Bones at Point No Point](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=scott-cawthons-the-bones-at-point-no-point)
+### [Scott Cawthon's The Bones at Point No Point](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=scott-cawthons-the-bones-at-point-no-point)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=scott-cawthons-the-bones-at-point-no-point"><img alt="the-bones-at-point-no-point-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-bones-at-point-no-point-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=scott-cawthons-the-bones-at-point-no-point"><img alt="the-bones-at-point-no-point-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-bones-at-point-no-point-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently dived into "The Bones at Point No Point, " a gripping novel that kept me on the edge of my seat from start to finish. Set in a small beach town, our protagonist Thomas Austin, once a renowned NYPD detective, now runs a quaint café amidst mourning the loss of his wife. Little did he know that his past would catch up with him when an enigmatic bag of bones surfaces on the shore, and he is forced to take one last case. 
 
@@ -88,9 +88,9 @@ The plot thickens as Austin discovers the serial killer, The Holiday Baby Butche
 This thrilling debut crime novel from D. D. Black is perfect for fans of James Patterson, Lisa Regan, Michael Connelly, and David Baldacci. With its mesmerizing storytelling, captivating characters, and shocking twists, it's no wonder that readers keep asking for more. "The Bones at Point No Point" stands out as a must-read addition to your crime thriller collection. 
 
 
-### [Apothecary Diaries 01: Manga Series by Scott Cawthon](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=apothecary-diaries-01-manga-series-by-scott-cawthon)
+### [Apothecary Diaries 01: Manga Series by Scott Cawthon](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=apothecary-diaries-01-manga-series-by-scott-cawthon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=apothecary-diaries-01-manga-series-by-scott-cawthon"><img alt="the-apothecary-diaries-01-manga-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-apothecary-diaries-01-manga-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=apothecary-diaries-01-manga-series-by-scott-cawthon"><img alt="the-apothecary-diaries-01-manga-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-apothecary-diaries-01-manga-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I had the pleasure of diving into The Apothecary Diaries 01, and I must say, it's more than just an anime for me now. The story is set in an era that resembles Ancient China, but with a touch of magic and mystery, which makes it more appealing. Our protagonist, Maomao, starts off as a humble servant with a knack for herbal medicine and eventually gets promoted to the role of food taster in the palace. Her life takes an unexpected twist, as she becomes entangled in the palace intrigues. 
 
@@ -101,9 +101,9 @@ However, the story takes a bit of a mature turn when a scene involving Maomao an
 Overall, The Apothecary Diaries 01 is a thrilling read with an interesting blend of comedy, mystery, and a hint of romance. The engaging plot is kept alive by engaging characters and breathtaking visuals. I can't wait to see what unfolds in the rest of the series. 
 
 
-### [Intriguing Negotiating Techniques for Everyday Life](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=intriguing-negotiating-techniques-for-everyday-life)
+### [Intriguing Negotiating Techniques for Everyday Life](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=intriguing-negotiating-techniques-for-everyday-life)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=intriguing-negotiating-techniques-for-everyday-life"><img alt="never-split-the-difference-negotiating-as-if-your-life-depended-on-it-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/never-split-the-difference-negotiating-as-if-your-life-depended-on-it-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=intriguing-negotiating-techniques-for-everyday-life"><img alt="never-split-the-difference-negotiating-as-if-your-life-depended-on-it-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/never-split-the-difference-negotiating-as-if-your-life-depended-on-it-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently came across a book that has truly made a difference in my life, titled "Never Split the Difference: Negotiating As If Your Life Depended On It. " Written by a former international FBI hostage negotiator, this book provides practical insights into high-stakes negotiations that can be applied to everyday situations. 
 
@@ -116,9 +116,9 @@ However, like any other product, it had its cons. The book I received was used, 
 In summary, "Never Split the Difference" is a must-read for anyone who values effective communication, strategic negotiation, and making the most of every discussion. Whether you're working on professional projects or addressing personal challenges, the skills and knowledge this book provides can help you grow and succeed. 
 
 
-### [Five Nights at Freddy's Series 3 Books Set by Scott Cawthon - Used-LikeNew Condition](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-series-3-books-set-by-scott-cawthon-used-likenew-condition)
+### [Five Nights at Freddy's Series 3 Books Set by Scott Cawthon - Used-LikeNew Condition](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-series-3-books-set-by-scott-cawthon-used-likenew-condition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-series-3-books-set-by-scott-cawthon-used-likenew-condition"><img alt="five-nights-at-freddys-series-3-books-collection-set-by-scott-cawthon-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/five-nights-at-freddys-series-3-books-collection-set-by-scott-cawthon-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-series-3-books-set-by-scott-cawthon-used-likenew-condition"><img alt="five-nights-at-freddys-series-3-books-collection-set-by-scott-cawthon-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/five-nights-at-freddys-series-3-books-collection-set-by-scott-cawthon-1/h=540,fit=pad,background=black"/></a></div>
 
 As a fan of the Five Nights at Freddy's series, I was thrilled to read the books authored by Scott Cawthon. The collection set I received was in near-perfect condition, with pages and covers appearing clean and undamaged. The books themselves are immersive and engaging, making it easy to get lost in the spooky world of Freddy Fazbear's Pizza. 
 
@@ -127,9 +127,9 @@ One of the standout features of this set is the rich character development and n
 Overall, the Three Books Collection Set is an excellent addition to any fan's library. The engaging storytelling and flawless presentation make Cawthon's work an essential read for anyone interested in the Five Nights at Freddy's series. 
 
 
-### [Unraveling the Taffy Murder: A Scott Cawthon Mystery](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=unraveling-the-taffy-murder-a-scott-cawthon-mystery)
+### [Unraveling the Taffy Murder: A Scott Cawthon Mystery](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=unraveling-the-taffy-murder-a-scott-cawthon-mystery)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=unraveling-the-taffy-murder-a-scott-cawthon-mystery"><img alt="murder-at-the-taffy-shop-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/murder-at-the-taffy-shop-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=unraveling-the-taffy-murder-a-scott-cawthon-mystery"><img alt="murder-at-the-taffy-shop-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/murder-at-the-taffy-shop-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the world of cozy mysteries with the delightful "Murder at the Taffy Shop" by Maddie Day, a captivating book in the A Cozy Capers Book Group Mystery series. Filled with a charismatic cast of characters and set in the charming town of Westham, Massachusetts, this novel guarantees a relaxing read where you can immerse yourself in a web of suspects and hidden motives. 
 
@@ -138,9 +138,9 @@ As we follow the investigations of Mac and her friends, avid readers of cozy mys
 However, "Murder at the Taffy Shop" is not without its flaws. The pacing can be slow at times, and the repetitive nature of certain phrases might become distracting. Certain readers may also find the whodunit to be a bit predictable and easily solved. Overall, if you're looking for an engaging cozy mystery with a touch of lightheartedness, "Murder at the Taffy Shop" might just be the one to suit your needs. 
 
 
-### [Endangered Species: A Terran Republic Thriller [Hardback]](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=endangered-species-a-terran-republic-thriller-hardback)
+### [Endangered Species: A Terran Republic Thriller [Hardback]](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=endangered-species-a-terran-republic-thriller-hardback)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=endangered-species-a-terran-republic-thriller-hardback"><img alt="endangered-species-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/endangered-species-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=endangered-species-a-terran-republic-thriller-hardback"><img alt="endangered-species-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/endangered-species-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the pleasure of delving into the Endangered Species series by Scott Cawthon - quite the immersive and thrilling experience, I must say. This epic space saga unfolds in the far reaches of uncharted space, where our protagonist, Caine Riordan, and his crew face the challenges of survival against harsh alien environments, devolved transgen humans, and even encounters with humanity's sworn enemy, the Ktor. 
 
@@ -151,9 +151,9 @@ Despite the high-stakes premise and the author's penchant for action-packed sequ
 In summary, fans of military science fiction and those who appreciate well-executed worldbuilding are sure to find Endangered Species a thrilling and engaging read. With its intricate plot, strong character development, and thought-provoking themes, this series is well worth the dive into uncharted territory. 
 
 
-### [Mysterious Scott Cawthon Novel, The Syndicate Six Murder](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=mysterious-scott-cawthon-novel-the-syndicate-six-murder)
+### [Mysterious Scott Cawthon Novel, The Syndicate Six Murder](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=mysterious-scott-cawthon-novel-the-syndicate-six-murder)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=mysterious-scott-cawthon-novel-the-syndicate-six-murder"><img alt="the-syndicate-six-murder-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-syndicate-six-murder-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=mysterious-scott-cawthon-novel-the-syndicate-six-murder"><img alt="the-syndicate-six-murder-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-syndicate-six-murder-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Immerse yourself in the gripping world of "The Syndicate Six Murder". This book is a must-read for any detective novel enthusiast. With intricate plot twists and unexpected turns, the story takes you on a wild ride through the heart of rural Hampshire, where the Police Staff College has become a battleground. 
 
@@ -164,18 +164,18 @@ As the plot thickens, the author masterfully explores themes of love triangles, 
 With a gripping narrative and an unforgettable cast of characters, this book will capture your imagination and keep you on the edge of your seat until the very end. Dive in and unravel the layers of mystery that await you within the pages of this masterful tale. 
 
 
-### [Scott Cawthon's "Fetch" - An Enthralling Read](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=scott-cawthons-fetch-an-enthralling-read)
+### [Scott Cawthon's "Fetch" - An Enthralling Read](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=scott-cawthons-fetch-an-enthralling-read)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=scott-cawthons-fetch-an-enthralling-read"><img alt="fetch-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fetch-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=scott-cawthons-fetch-an-enthralling-read"><img alt="fetch-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fetch-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrilling and chilling tales of the Fazbear Frights series with Fetch, the second volume featuring three novella-length stories. Scott Cawthon, the creator of the popular Five Nights at Freddy's, takes us on a sinister journey through the world of Five Nights at Freddy's, with illustrations by fan-favorite artist LadyFiszi. 
 
 This collection of terrifying tales is guaranteed to keep even the most hardened fans awake at night. With its immersive storytelling and bone-chilling illustrations, Fetch delivers a spine-tingling experience that you won't soon forget. 
 
 
-### [Award-Winning Scott Cawthon's Collector's Edition Novel](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=award-winning-scott-cawthons-collectors-edition-novel)
+### [Award-Winning Scott Cawthon's Collector's Edition Novel](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=award-winning-scott-cawthons-collectors-edition-novel)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=award-winning-scott-cawthons-collectors-edition-novel"><img alt="red-white-royal-blue-collectors-edition-a-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/red-white-royal-blue-collectors-edition-a-novel-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=award-winning-scott-cawthons-collectors-edition-novel"><img alt="red-white-royal-blue-collectors-edition-a-novel-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/red-white-royal-blue-collectors-edition-a-novel-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I couldn't wait to get my hands on the Collector's Edition of Red, White & Royal Blue. Let me tell you, it did not disappoint! The moment I opened the book, I was greeted with beautiful illustrated endpapers. I love a good hardcover book, and this one was a perfect addition to my bookshelf. 
 
@@ -188,18 +188,18 @@ However, I did notice a couple of negatives. The book I received was actually us
 Overall, I would highly recommend this novel to anyone looking for a sweet and charming romance. The Collector's Edition is definitely worth the extra cost for the beautiful hardcover and the added content. Just be prepared for a used copy! 
 
 
-### [Five Nights at Freddy's Graphic Novel #2 - The Twisted Ones](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-graphic-novel-2-the-twisted-ones)
+### [Five Nights at Freddy's Graphic Novel #2 - The Twisted Ones](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-graphic-novel-2-the-twisted-ones)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-graphic-novel-2-the-twisted-ones"><img alt="the-twisted-ones-five-nights-at-freddys-graphic-novel-2-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-twisted-ones-five-nights-at-freddys-graphic-novel-2-3/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-graphic-novel-2-the-twisted-ones"><img alt="the-twisted-ones-five-nights-at-freddys-graphic-novel-2-3" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-twisted-ones-five-nights-at-freddys-graphic-novel-2-3/h=540,fit=pad,background=black"/></a></div>
 
 The Twisted Ones" is a captivating graphic novel that delves into the chilling world of Freddy Fazbear's Pizza and the terrifying animatronics. This installment, set a year after the harrowing events, follows Charlie, who's trying to start anew. However, the horrifying nightmares of a masked killer and twisted animatronics keep haunting her. 
 
 This graphic novel masterfully transports readers back into the world of the iconic five-night-long event while leaving them in suspense about who or what is hunting Charlie. The intriguing storyline, coupled with the gripping illustrations, makes it an unputdownable addition to any graphic novel or horror enthusiast's collection. 
 
 
-### [Busca / Fetch: Scott Cawthon's Mysterious Story](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=busca-fetch-scott-cawthons-mysterious-story)
+### [Busca / Fetch: Scott Cawthon's Mysterious Story](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=busca-fetch-scott-cawthons-mysterious-story)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=busca-fetch-scott-cawthons-mysterious-story"><img alt="busca-fetch-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/busca-fetch-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=busca-fetch-scott-cawthons-mysterious-story"><img alt="busca-fetch-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/busca-fetch-book-1/h=540,fit=pad,background=black"/></a></div>
 
 In my experience, I found "Busca / Fetch" to be a thrilling read that kept me on the edge of my seat. As a fan of the Five Nights at Freddy's series, I was eager to delve into the world of Fazbear Frights once again. 
 
@@ -212,9 +212,9 @@ In terms of the size and feel of the book, it was a nice and compact read that e
 Overall, "Busca / Fetch" is a must-read for any Five Nights at Freddy's fan who is looking for a thrilling experience. Just be prepared for some intense moments! 
 
 
-### [Five Nights at Freddy's: The Silver Eyes Graphic Novel Adaptation](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-the-silver-eyes-graphic-novel-adaptation)
+### [Five Nights at Freddy's: The Silver Eyes Graphic Novel Adaptation](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=five-nights-at-freddys-the-silver-eyes-graphic-novel-adaptation)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-the-silver-eyes-graphic-novel-adaptation"><img alt="5-nights-at-freddys-the-silver-eyes-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-nights-at-freddys-the-silver-eyes-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=five-nights-at-freddys-the-silver-eyes-graphic-novel-adaptation"><img alt="5-nights-at-freddys-the-silver-eyes-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-nights-at-freddys-the-silver-eyes-book-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently gave "The Silver Eyes" a try, and I must say, the graphic novel adaptation of the fan favorite video game, Five Nights at Freddy's, did not disappoint. As a fan of the games, it was an absolute pleasure to see the beloved characters come to life in illustrations brought to us by the talented Claudia Schröder. 
 
@@ -225,18 +225,18 @@ One thing that stood out in my experience was the art's uniqueness. While some r
 In conclusion, "The Silver Eyes" is a must-read for Five Nights at Freddy's fans and a great introduction to the series for newcomers. The captivating art and thrilling storyline make it a worthwhile addition to any book collection. 
 
 
-### [Complete Fazbear Frights Box Set: New York Times Bestselling Series by Scott Cawthon](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=complete-fazbear-frights-box-set-new-york-times-bestselling-series-by-scott-cawthon)
+### [Complete Fazbear Frights Box Set: New York Times Bestselling Series by Scott Cawthon](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=complete-fazbear-frights-box-set-new-york-times-bestselling-series-by-scott-cawthon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=complete-fazbear-frights-box-set-new-york-times-bestselling-series-by-scott-cawthon"><img alt="fazbear-frights-box-set-an-afk-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fazbear-frights-box-set-an-afk-book-book-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=complete-fazbear-frights-box-set-new-york-times-bestselling-series-by-scott-cawthon"><img alt="fazbear-frights-box-set-an-afk-book-book-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fazbear-frights-box-set-an-afk-book-book-1/h=540,fit=pad,background=black"/></a></div>
 
 Fazbear Frights Box Set: An Afk Book [Book] provides a comprehensive compilation of eleven Fazbear Frights novels, accompanied by a twelfth book featuring bonus stories. This fantastic package offers incredible value and enjoyment for an enticing price. As an ardent follower of the Fazbear Frights series, I was ecstatic to receive this box set as a thoughtful holiday present. Each book is meticulously crafted to suit young readers' interests, resulting in a thrilling experience complete with exhilarating scares and spine-tingling tales. 
 
 Although the packaging consists of flimsy cardboard, the captivating content and the overall benefits of this set far surpass this drawback. Five Nights at Freddy's enthusiasts will undoubtedly relish this remarkable addition to their collection. 
 
 
-### [Into the Pit: Five Nights at Freddy's Fazbear Frights #1 - Dark Tales by Scott Cawthon](https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm\_term=into-the-pit-five-nights-at-freddys-fazbear-frights-1-dark-tales-by-scott-cawthon)
+### [Into the Pit: Five Nights at Freddy's Fazbear Frights #1 - Dark Tales by Scott Cawthon](https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm\_term=into-the-pit-five-nights-at-freddys-fazbear-frights-1-dark-tales-by-scott-cawthon)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Scott+Cawthon+Books?utm_term=into-the-pit-five-nights-at-freddys-fazbear-frights-1-dark-tales-by-scott-cawthon"><img alt="into-the-pit-five-nights-at-freddys-fazbear-frights-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/into-the-pit-five-nights-at-freddys-fazbear-frights-2/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Scott+Cawthon+Books?utm_term=into-the-pit-five-nights-at-freddys-fazbear-frights-1-dark-tales-by-scott-cawthon"><img alt="into-the-pit-five-nights-at-freddys-fazbear-frights-2" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/into-the-pit-five-nights-at-freddys-fazbear-frights-2/h=540,fit=pad,background=black"/></a></div>
 
 Introducing "Into The Pit, " the pulse-pounding first installment of the Fazbear Frights series, perfect for avid Five Nights at Freddy's fans. This spine-chilling collection of three novella-length tales will keep even the most daring reader up at night, as they delve into the twisted world of Oswald, Sarah, and Millie's deepest desires. 
 

@@ -15,18 +15,18 @@ Are you in the market for a premium mattress that offers exceptional comfort and
 ## Reviews
 
 
-### [Purple Premium Smart Base - Split King Mattress](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-premium-smart-base-split-king-mattress)
+### [Purple Premium Smart Base - Split King Mattress](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-premium-smart-base-split-king-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-premium-smart-base-split-king-mattress"><img alt="purple-premium-smart-base-split-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-premium-smart-base-split-king-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-premium-smart-base-split-king-mattress"><img alt="purple-premium-smart-base-split-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-premium-smart-base-split-king-1/h=540,fit=pad,background=black"/></a></div>
 
 The Purple Premium Smart Base has been a game-changer for my sleep experience. The app and wireless remote control make adjusting the head and foot elevation a breeze, and the Zero-Gravity preset offers an excellent tension relief. However, the adjustable-height legs are not quite as sturdy as I'd like, and I wish the base was a bit prettier. 
 
 Overall, the benefits outweigh the negatives, and I highly recommend this to anyone looking to upgrade their sleep experience. 
 
 
-### [Purple Restore Premier Soft Queen Mattress - GelFlex Grid and Adaptive Comfort for Cool and Supportive Sleep](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-restore-premier-soft-queen-mattress-gelflex-grid-and-adaptive-comfort-for-cool-and-supportive-sleep)
+### [Purple Restore Premier Soft Queen Mattress - GelFlex Grid and Adaptive Comfort for Cool and Supportive Sleep](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-restore-premier-soft-queen-mattress-gelflex-grid-and-adaptive-comfort-for-cool-and-supportive-sleep)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-restore-premier-soft-queen-mattress-gelflex-grid-and-adaptive-comfort-for-cool-and-supportive-sleep"><img alt="purple-queen-restore-premier-soft-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-queen-restore-premier-soft-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-restore-premier-soft-queen-mattress-gelflex-grid-and-adaptive-comfort-for-cool-and-supportive-sleep"><img alt="purple-queen-restore-premier-soft-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-queen-restore-premier-soft-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently upgraded to the Purple Restore Premier Soft Queen Mattress after struggling with lower back pain for years. The mattress felt incredibly comfortable, and I loved how it contoured to my body and provided excellent support. The 3" GelFlex grid drew heat away, keeping me cool and comfortable throughout the night, which was a major plus for me. However, I did notice that the mattress was a bit firmer than expected, making it a bit challenging for my partner, who prefers a softer mattress. 
 
@@ -37,9 +37,9 @@ One of the best things about this mattress was the edge-to-edge coils that worke
 In conclusion, the Purple Restore Premier Soft Queen Mattress offers exceptional comfort and support. While the firmness may not be ideal for everyone, the edge-to-edge coils make it a great choice for those who need extra support. With its heat-wicking capabilities and easy-to-clean cover, this mattress is definitely worth considering for an excellent night's sleep. 
 
 
-### [Purple Rejuvenate Hybrid Sleep Twin XL](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-rejuvenate-hybrid-sleep-twin-xl)
+### [Purple Rejuvenate Hybrid Sleep Twin XL](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-rejuvenate-hybrid-sleep-twin-xl)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-rejuvenate-hybrid-sleep-twin-xl"><img alt="purple-rejuvenate-mattress-twin-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-rejuvenate-mattress-twin-xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-rejuvenate-hybrid-sleep-twin-xl"><img alt="purple-rejuvenate-mattress-twin-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-rejuvenate-mattress-twin-xl-1/h=540,fit=pad,background=black"/></a></div>
 
 During my quest for a comfortable and supportive mattress, I picked up the Rejuvenate Twin XL from the Purple mattress line. I have to admit, it's made a huge difference in my sleep! The cushioning from the Euro Top feels luxurious and the GelFlex Grid Plus offers stability without sacrificing comfort. It's like sleeping on a cloud but also supportive, which seemed impossible before. 
 
@@ -48,9 +48,9 @@ There's one thing, however, that did catch me off guard. My husband and I love f
 Overall, my experience with the Purple Rejuvenate has been largely positive. I'm just waiting to see if our preferences align better with this one after a few more nights. If you're also in the market for a mattress that's a blend of comfort and support, give the Purple Rejuvenate a try! 
 
 
-### [Nectar Premier Hybrid Twin Mattress: Luxurious Support & Breathability](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=nectar-premier-hybrid-twin-mattress-luxurious-support-breathability)
+### [Nectar Premier Hybrid Twin Mattress: Luxurious Support & Breathability](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=nectar-premier-hybrid-twin-mattress-luxurious-support-breathability)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=nectar-premier-hybrid-twin-mattress-luxurious-support-breathability"><img alt="nectar-premier-hybrid-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nectar-premier-hybrid-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=nectar-premier-hybrid-twin-mattress-luxurious-support-breathability"><img alt="nectar-premier-hybrid-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nectar-premier-hybrid-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're in search of a comfortable, dependable mattress that won't break the bank, the Nectar Premier Hybrid might just be your new best friend. I've been using this mattress for a few months now, and let me tell you - it's been an improvement in my sleep quality. 
 
@@ -63,9 +63,9 @@ Of course, there are a few minor drawbacks. For one, the mattress has a slight o
 In conclusion, the Nectar Premier Hybrid has been a reliable and comfortable addition to my sleep routine. While it may not be perfect, its balance of comfort, support, and affordability make it a solid choice for anyone looking to upgrade their mattress. 
 
 
-### [Purple RejuvenatePremier 18.5" Medium Hybrid Mattress - Queen](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-rejuvenatepremier-18-5-medium-hybrid-mattress-queen)
+### [Purple RejuvenatePremier 18.5" Medium Hybrid Mattress - Queen](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-rejuvenatepremier-18-5-medium-hybrid-mattress-queen)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-rejuvenatepremier-18-5-medium-hybrid-mattress-queen"><img alt="purple-rejuvenate-premier-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-rejuvenate-premier-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-rejuvenatepremier-18-5-medium-hybrid-mattress-queen"><img alt="purple-rejuvenate-premier-mattress-queen-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-rejuvenate-premier-mattress-queen-1/h=540,fit=pad,background=black"/></a></div>
 
 The Purple RejuvenatePremier mattress offers a luxurious blend of comfort and support, perfect for those seeking the ultimate sleep experience. With its 18.5-inch thickness and hybrid construction, this mattress is designed to cater to a wide range of sleep preferences. Featuring classic comfort layers made of Talalay Latex and advanced GelFlex Grid Plus technology, the RejuvenatePremier mattress provides tailored pressure relief and optimal sleep temperatures for an unparalleled night's rest. 
 
@@ -74,18 +74,18 @@ The mattress's 5-zoned coil system is specifically engineered to provide respons
 Despite the high price tag, customers generally love the mattress for its comfort, ease of setup, and durability. However, some have reported an unpleasant odor upon arrival and find the mattress to be difficult to clean. Nevertheless, the Purple RejuvenatePremier mattress continues to receive high ratings from those who have experienced its life-changing sleep benefits. 
 
 
-### [DreamCloud Premier Hybrid Mattress - Luxurious, Comfortable, and Perfect for Couples](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=dreamcloud-premier-hybrid-mattress-luxurious-comfortable-and-perfect-for-couples)
+### [DreamCloud Premier Hybrid Mattress - Luxurious, Comfortable, and Perfect for Couples](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=dreamcloud-premier-hybrid-mattress-luxurious-comfortable-and-perfect-for-couples)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=dreamcloud-premier-hybrid-mattress-luxurious-comfortable-and-perfect-for-couples"><img alt="dreamcloud-14-premier-hybrid-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dreamcloud-14-premier-hybrid-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=dreamcloud-premier-hybrid-mattress-luxurious-comfortable-and-perfect-for-couples"><img alt="dreamcloud-14-premier-hybrid-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dreamcloud-14-premier-hybrid-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
 
 The DreamCloud Premier Hybrid Euro Top mattress promises a luxurious sleep experience, with a combination of soft-to-the-touch materials and the support of innerspring coils. It's designed to offer your body the perfect balance of comfort and support as you drift into dreamland. 
 
 With a focus on temperature regulation and motion isolation, this mattress can be a game-changer for couples who struggle with sharing a comfortable sleeping space. Offering a 365-night trial and a lifetime warranty, DreamCloud backs up their promise of providing a sleep oasis to their customers, making it a worthwhile investment for those searching for a high-quality hybrid mattress. 
 
 
-### [Purple Newday Gel Memory Foam Mattress - King](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-newday-gel-memory-foam-mattress-king)
+### [Purple Newday Gel Memory Foam Mattress - King](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-newday-gel-memory-foam-mattress-king)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-newday-gel-memory-foam-mattress-king"><img alt="purple-newday-mattress-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-newday-mattress-king-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-newday-gel-memory-foam-mattress-king"><img alt="purple-newday-mattress-king-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-newday-mattress-king-1/h=540,fit=pad,background=black"/></a></div>
 
 I was given the opportunity to test out the Purple Newday Mattress, and let me tell you, it has revolutionized my sleep experience. The GelFlex Grid technology is truly remarkable, as it not only cradles my body with unparalleled comfort but also offers the crucial support that my lower back had been yearning for. One aspect that caught my attention was the mattress's ability to adapt instantly to my position, while simultaneously springing back into its original shape once I shift. 
 
@@ -96,9 +96,9 @@ Of course, no product is immune to minor flaws. I did experience a minor issue w
 In conclusion, the Purple Newday Mattress has proven to be a fantastic addition to my bedroom. It's comfortable, supportive, and strikes the perfect balance between firmness and softness. For those who place great importance on getting high-quality sleep every night, investing in this mattress is definitely worth it. 
 
 
-### [Purple Plus King 3 Hybrid Premier Mattress](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-plus-king-3-hybrid-premier-mattress)
+### [Purple Plus King 3 Hybrid Premier Mattress](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-plus-king-3-hybrid-premier-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-plus-king-3-hybrid-premier-mattress"><img alt="purple-plus-king-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-plus-king-mattress-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-plus-king-3-hybrid-premier-mattress"><img alt="purple-plus-king-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-plus-king-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Purple Plus King Mattress, and I must say, it's a game-changer for my sleep. The first thing I noticed was the cool temperature - it truly lived up to its promise of open air channels and temperature-neutral materials. I also appreciated the motion-isolating technology, which meant I wouldn't disturb my husband if I tossed and turned during the night. The gel-infused foam base provides great pressure point relief and a perfect balance of softness and firmness. 
 
@@ -107,9 +107,9 @@ The mattress arrived quickly and neatly rolled in a box, making it easy to set u
 Overall, the Purple Plus King Mattress has significantly improved my sleep experience. While it has a few minor drawbacks, the benefits far outweigh them. I'd highly recommend this mattress to anyone looking for a comfortable and cool sleeping experience. 
 
 
-### [Purple 3 Hybrid Premier Twin Mattress](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-3-hybrid-premier-twin-mattress)
+### [Purple 3 Hybrid Premier Twin Mattress](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-3-hybrid-premier-twin-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-3-hybrid-premier-twin-mattress"><img alt="purple-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-3-hybrid-premier-twin-mattress"><img alt="purple-mattress-twin-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-mattress-twin-1/h=540,fit=pad,background=black"/></a></div>
 
 As a reviewer, I recently tried the Purple Mattress and wanted to share my experience with you all. I was excited to see if it would be worth all the hype it's been getting. 
 
@@ -122,9 +122,9 @@ However, there were a couple of drawbacks. I did notice a slight unpleasant odor
 Overall, the Purple Mattress was quite comfortable, but then again, everyone's preferences are different. I would definitely recommend trying it out for yourself to see if it's the right fit for you. 
 
 
-### [Purple Premium Plus Queen Smart Base: Elevated Sleep Experience with 3 Hybrid Premiere Mattress](https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-premium-plus-queen-smart-base-elevated-sleep-experience-with-3-hybrid-premiere-mattress)
+### [Purple Premium Plus Queen Smart Base: Elevated Sleep Experience with 3 Hybrid Premiere Mattress](https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm\_term=purple-premium-plus-queen-smart-base-elevated-sleep-experience-with-3-hybrid-premiere-mattress)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-premium-plus-queen-smart-base-elevated-sleep-experience-with-3-hybrid-premiere-mattress"><img alt="purple-premium-plus-queen-smart-base-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-premium-plus-queen-smart-base-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress?utm_term=purple-premium-plus-queen-smart-base-elevated-sleep-experience-with-3-hybrid-premiere-mattress"><img alt="purple-premium-plus-queen-smart-base-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/purple-premium-plus-queen-smart-base-1/h=540,fit=pad,background=black"/></a></div>
 
 The Purple Premium Plus Smart Base is a game-changer for those seeking ultimate comfort in their sleep. This smart base provides superior support with personalized alignment, allowing you to customize your comfort level to perfectly complement your sleeping style. With enhanced lumbar support and pillow tilt, presets for effortless snoozing, dual massage settings for ultimate relaxation, and even convenient underbed lighting, this product boasts features that cater to various needs and preferences. 
 
@@ -142,7 +142,7 @@ Welcome to our buyer's guide for the Purple 3 Hybrid Premier Mattress! This sect
 
 There are several types of Purple 3 Hybrid Premier Mattresses available in the market, each with its unique features and specifications. Some common types include the Original Hybrid, Hybrid 2, and the Hybrid Premier. Research each type to determine which one best fits your needs and preferences. Consider factors such as firmness, support, and pressure relief when making your decision. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-2/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-2/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-2" height="540"></a></div>
 
 
 ### Materials Used in Purple 3 Hybrid Premier Mattresses
@@ -154,7 +154,7 @@ Purple 3 Hybrid Premier Mattresses are constructed using a combination of materi
 
 Purple 3 Hybrid Premier Mattresses are available in various sizes, catering to different needs and preferences. Common sizes include twin, full, queen, king, and California king. Additionally, consider the weight capacity of the mattress when making your selection. This will ensure that the mattress can accommodate your weight without compromising its support and durability. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-3/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-3/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-3" height="540"></a></div>
 
 
 ### Warranty and Return Policies
@@ -164,7 +164,7 @@ Before making a purchase, it is crucial to understand the warranty and return po
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-4/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-4/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-4" height="540"></a></div>
 
 
 ### What makes the Purple 3 Hybrid Premier Mattress unique?
@@ -180,7 +180,7 @@ The Purple 3 Hybrid Premier Mattress is offered in three firmness levels to ensu
 
 All firmness levels feature the same innovative Purple Grid technology, providing exceptional support and pressure relief for a wide range of users. If you're unsure about the best firmness level for you, Purple offers an in-home trial period so you can test out the mattress and return it if needed, giving you complete peace of mind. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-5/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-5/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-5" height="540"></a></div>
 
 
 ### What is the trial period for the Purple 3 Hybrid Premier Mattress?
@@ -196,7 +196,7 @@ The Purple 3 Hybrid Premier Mattress is available in two sizes: Twin (39 inches 
 
 The mattress's dimensions and weights are designed to balance comfort and portability, making it easy for users to transport and maneuver as needed. The Purple 3 Hybrid Premier Mattress is also compatible with most standard bed frames and foundations, offering added flexibility for customers who may want to modify their sleeping environment at a later time. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-6/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Purple+3+Hybrid+Premier+Mattress"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Purple-3-Hybrid-Premier-Mattress-6/h=540,fit=pad,background=black" alt="Purple-3-Hybrid-Premier-Mattress-6" height="540"></a></div>
 
 
 ### Can I try out the Purple 3 Hybrid Premier Mattress in a store before buying?

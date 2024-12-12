@@ -15,9 +15,9 @@ Calling all cowboy boot enthusiasts! Are you looking for stylish and comfortable
 ## Reviews
 
 
-### [Premium Handcrafted Cowboy Boot - Gray Square Toe](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=premium-handcrafted-cowboy-boot-gray-square-toe)
+### [Premium Handcrafted Cowboy Boot - Gray Square Toe](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=premium-handcrafted-cowboy-boot-gray-square-toe)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=premium-handcrafted-cowboy-boot-gray-square-toe"><img alt="tony-lama-mens-moore-western-boot-square-toe-grey-10-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tony-lama-mens-moore-western-boot-square-toe-grey-10-d-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=premium-handcrafted-cowboy-boot-gray-square-toe"><img alt="tony-lama-mens-moore-western-boot-square-toe-grey-10-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tony-lama-mens-moore-western-boot-square-toe-grey-10-d-1/h=540,fit=pad,background=black"/></a></div>
 
 When I first laid eyes on these Tony Lama Men's boots, I couldn't help but admire their gleaming grey hue and the intricately designed quill ostrich detailing. The leather has a natural, supple texture that's both comfortable and eye-catching, and the round toe adds a casual, stylish touch. However, a key disappointment came to light when I discovered they were actually a deep shade of blue, rather than the advertised grey. 
 
@@ -28,9 +28,9 @@ Unfortunately, the sizing issue is a drawback; the boots run large, which is a p
 Despite the slight setback in color and sizing, these boots have potential. With a few key adjustments, they could turn into a must-have for anyone in need of a stylish, supportive pair of western boots. 
 
 
-### [Cowtown Men's Print Brown Square Toe Western Boots: Stylish and Comfortable Choice](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=cowtown-mens-print-brown-square-toe-western-boots-stylish-and-comfortable-choice)
+### [Cowtown Men's Print Brown Square Toe Western Boots: Stylish and Comfortable Choice](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=cowtown-mens-print-brown-square-toe-western-boots-stylish-and-comfortable-choice)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=cowtown-mens-print-brown-square-toe-western-boots-stylish-and-comfortable-choice"><img alt="cowtown-mens-print-brown-square-toe-western-boots-q6064-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cowtown-mens-print-brown-square-toe-western-boots-q6064-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=cowtown-mens-print-brown-square-toe-western-boots-stylish-and-comfortable-choice"><img alt="cowtown-mens-print-brown-square-toe-western-boots-q6064-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cowtown-mens-print-brown-square-toe-western-boots-q6064-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the world of Western style with the Cowtown Men's Print Brown Square Toe Western Boots Q6064. These boots offer a distinct look, featuring a full grain leather upper in a rich cognac hue. 
 
@@ -39,9 +39,9 @@ The eye-catching ostrich print on the foot adds a touch of elegance, complemente
 Experience the perfect blend of comfort and fashion with these Western boots. 
 
 
-### [Ferrini Kingston Square Toe Western Boots for Men](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ferrini-kingston-square-toe-western-boots-for-men)
+### [Ferrini Kingston Square Toe Western Boots for Men](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ferrini-kingston-square-toe-western-boots-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ferrini-kingston-square-toe-western-boots-for-men"><img alt="ferrini-mens-kingston-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ferrini-mens-kingston-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ferrini-kingston-square-toe-western-boots-for-men"><img alt="ferrini-mens-kingston-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ferrini-mens-kingston-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Ferrini Men's Kingston Square Toe Western Boots for a new look. The full-grain leather felt buttery soft and added to the premium feel of the boots. The 11" upper shaft gave me confidence in its durability, and the square toe looked great! 
 
@@ -50,18 +50,18 @@ The leather pull tabs and two-tone construction with the stitching pattern on th
 Overall, the Ferrini Men's Kingston Square Toe Western Boots are a great investment if you're looking for a combination of style and long-lasting comfort. Just be prepared to break them in a bit! 
 
 
-### [Laredo Men's Square Toe Cowboy Boots: Stylish Tan and Black Option](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=laredo-mens-square-toe-cowboy-boots-stylish-tan-and-black-option)
+### [Laredo Men's Square Toe Cowboy Boots: Stylish Tan and Black Option](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=laredo-mens-square-toe-cowboy-boots-stylish-tan-and-black-option)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=laredo-mens-square-toe-cowboy-boots-stylish-tan-and-black-option"><img alt="laredo-mens-kosar-tan-black-square-toe-cowboy-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laredo-mens-kosar-tan-black-square-toe-cowboy-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=laredo-mens-square-toe-cowboy-boots-stylish-tan-and-black-option"><img alt="laredo-mens-kosar-tan-black-square-toe-cowboy-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laredo-mens-kosar-tan-black-square-toe-cowboy-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 After wearing these Laredo Men's Kosar Tan/Black Square Toe Cowboy Boots for a few weeks, I've grown quite fond of their comfortable fit and rugged appearance. The leather upper is both durable and breathable, while the pointed toe adds a touch of elegance to the boots. I especially appreciate the copper and cream stitching, which adds a unique touch to their design. 
 
 However, I've noticed that the insole could use a bit more cushioning for longer wear. Overall, these boots are a great choice for anyone looking to add a bit of western style to their wardrobe. 
 
 
-### [Stetson Cheyenne Ostrich Square Toe Cowboy Boots for Men in Tan Size 8EE](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=stetson-cheyenne-ostrich-square-toe-cowboy-boots-for-men-in-tan-size-8ee)
+### [Stetson Cheyenne Ostrich Square Toe Cowboy Boots for Men in Tan Size 8EE](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=stetson-cheyenne-ostrich-square-toe-cowboy-boots-for-men-in-tan-size-8ee)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=stetson-cheyenne-ostrich-square-toe-cowboy-boots-for-men-in-tan-size-8ee"><img alt="mens-stetson-cheyenne-ostrich-boots-square-toe-handcrafted-jbs-collection-tan-size-8ee-beige-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-stetson-cheyenne-ostrich-boots-square-toe-handcrafted-jbs-collection-tan-size-8ee-beige-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=stetson-cheyenne-ostrich-square-toe-cowboy-boots-for-men-in-tan-size-8ee"><img alt="mens-stetson-cheyenne-ostrich-boots-square-toe-handcrafted-jbs-collection-tan-size-8ee-beige-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-stetson-cheyenne-ostrich-boots-square-toe-handcrafted-jbs-collection-tan-size-8ee-beige-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the rich heritage of Stetson boots with the Men's Stetson Cheyenne Ostrich Boots Square Toe. These stylish and comfortable boots are designed for those seeking an authentic western look and feel. Crafted with an Antique Saddle Full Ostrich Oiled Vamp, these boots exude an air of quality and durability. The intricate hand-stitching and intricate cording channel welt create a visually appealing design that's as functional as it is fashionable. 
 
@@ -70,9 +70,9 @@ The leather-lined Poron insole ensures a comfortable fit, while the beveled bott
 One potential downside is the sizing, as some reviewers have noted that they run small and require ordering a size larger than usual. However, the overall comfort and style of these boots make them a worthwhile investment for those looking to add a touch of the Wild West to their wardrobe. Overall, the Men's Stetson Cheyenne Ostrich Boots Square Toe offers a combination of heritage, durability, and style that sets it apart from other cowboy boots on the market. 
 
 
-### [Tony Lama Men's Leather Square Toe Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=tony-lama-mens-leather-square-toe-cowboy-boots)
+### [Tony Lama Men's Leather Square Toe Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=tony-lama-mens-leather-square-toe-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=tony-lama-mens-leather-square-toe-cowboy-boots"><img alt="tony-lama-mens-rowel-square-toe-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tony-lama-mens-rowel-square-toe-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=tony-lama-mens-leather-square-toe-cowboy-boots"><img alt="tony-lama-mens-rowel-square-toe-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tony-lama-mens-rowel-square-toe-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into the world of fashionable footwear with Tony Lama's Men's Rowel Square Toe Boots. Crafted with a focus on durability and style, these boots boast a leather upper, standing at an impressive 11" height. The broad square toe offers a comfortable fit, while the leather pull tabs make it easy to slide into these high-quality boots. 
 
@@ -81,18 +81,18 @@ What sets these boots apart, though, are the carefully crafted stitched embroide
 However, even with these top-notch features, these boots may not be the lightest on your feet, thanks to its 5 lb weight. Nonetheless, if you're looking for a fashionable and comfortable pair of cowboy boots, the Tony Lama's Men's Rowel Square Toe Boots won't disappoint. 
 
 
-### [Ariat Western Square Toe Cowboy Boots - Pecan Brown Style](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-western-square-toe-cowboy-boots-pecan-brown-style)
+### [Ariat Western Square Toe Cowboy Boots - Pecan Brown Style](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-western-square-toe-cowboy-boots-pecan-brown-style)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-western-square-toe-cowboy-boots-pecan-brown-style"><img alt="ariat-mens-ridin-high-pecan-brown-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-ridin-high-pecan-brown-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-western-square-toe-cowboy-boots-pecan-brown-style"><img alt="ariat-mens-ridin-high-pecan-brown-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-ridin-high-pecan-brown-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 These Ariat Ridin' High Pecan Brown Square Toe Western Boots were a real game changer for my college kid who used to only wear sneakers. The first time he put them on, he exclaimed, "Wow, these feel so comfortable! " I was pleasantly surprised by their fit and comfort, considering they are square-toe boots. The insole is incredibly supportive and has made a huge difference in his posture and overall comfort while wearing them. 
 
 One thing I noticed is that the leather lining and the Pro Performance insole seem to attract a lot of dust. I recommend wiping them down regularly to maintain their appearance and keep them looking as good as new. But overall, the durability of the soles and the breathability of the leather make these boots a great investment for anyone looking for a high-quality, comfortable, and stylish pair of western boots. We'll definitely be keeping an eye out for more Ariat products in the future! 
 
 
-### [Horsepower Men's Bleached Western Boots - Wide Square Toe](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=horsepower-mens-bleached-western-boots-wide-square-toe)
+### [Horsepower Men's Bleached Western Boots - Wide Square Toe](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=horsepower-mens-bleached-western-boots-wide-square-toe)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=horsepower-mens-bleached-western-boots-wide-square-toe"><img alt="horsepower-mens-bleached-bone-western-boots-wide-square-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/horsepower-mens-bleached-bone-western-boots-wide-square-toe-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=horsepower-mens-bleached-western-boots-wide-square-toe"><img alt="horsepower-mens-bleached-bone-western-boots-wide-square-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/horsepower-mens-bleached-bone-western-boots-wide-square-toe-1/h=540,fit=pad,background=black"/></a></div>
 
 Slip into a pair of Horsepower Men's Bleached Bone Western Boots - Wide Square Toe for that classic western look. The full-quill ostrich print foot meets a full-grain leather upper, providing a stunning combination of style and comfort. 
 
@@ -101,18 +101,18 @@ With a wide square toe for a roomier fit, the leather lining ensures your feet s
 Perfect for cowboy boots enthusiasts, the slip-on closure and leather sole make these boots as practical as they are stylish. 
 
 
-### [Ariat Booker Ultra Square Toe Western Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-booker-ultra-square-toe-western-boots)
+### [Ariat Booker Ultra Square Toe Western Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-booker-ultra-square-toe-western-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-booker-ultra-square-toe-western-boots"><img alt="ariat-booker-ultra-square-toe-western-boots-mens-boots-oily-distressed-tan-7-d-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-booker-ultra-square-toe-western-boots-mens-boots-oily-distressed-tan-7-d-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-booker-ultra-square-toe-western-boots"><img alt="ariat-booker-ultra-square-toe-western-boots-mens-boots-oily-distressed-tan-7-d-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-booker-ultra-square-toe-western-boots-mens-boots-oily-distressed-tan-7-d-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 This stylish and practical Ariat Booker Ultra Square Toe Western Boots Men's Boots Oily Distressed Tan is perfect for both casual and dressy occasions. Made from distressed tan full-grain leather, these boots boast easy pull-on silhouettes with side stretch elastic panels, making them comfortable and easy to put on. The single stitch welt and lightweight Bantamweight outsole contribute to the boots' overall durability and comfort. With an all-day cushioning insole and a 1.5-inch horseman heel, these boots offer optimal support and comfort. 
 
 While some users have reported issues with fit and color, the majority of reviewers praise the boots' quality, comfort, and stylish design. Ariat Booker Western Boots are a great investment for those in search of comfortable and fashionable footwear for various occasions. 
 
 
-### [Ariat Men's Wiley Western Square Toe Leather Boot](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-wiley-western-square-toe-leather-boot)
+### [Ariat Men's Wiley Western Square Toe Leather Boot](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-wiley-western-square-toe-leather-boot)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-wiley-western-square-toe-leather-boot"><img alt="ariat-mens-wiley-western-square-toe-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-wiley-western-square-toe-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-wiley-western-square-toe-leather-boot"><img alt="ariat-mens-wiley-western-square-toe-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-wiley-western-square-toe-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Ariat Men's Wiley Western Square Toe Boots make a perfect addition to your wardrobe. The stunning pecan coastal cream color complements your western attire, while the full-grain leather upper ensures durability and style. The pull-on entry design saves time and effort, making these boots a convenient choice, especially after a long day. 
 
@@ -123,9 +123,9 @@ The Ariat Men's Wiley Western Square Toe Boots have a traditional leather outsol
 Overall, these boot provide maximum comfort, durability, and stylish functionality, making them an excellent addition to your western-wear collection. 
 
 
-### [Ariat Rusty Brown & Suntan Western Square Toe Boots for Men](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-rusty-brown-suntan-western-square-toe-boots-for-men)
+### [Ariat Rusty Brown & Suntan Western Square Toe Boots for Men](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-rusty-brown-suntan-western-square-toe-boots-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-rusty-brown-suntan-western-square-toe-boots-for-men"><img alt="ariat-mens-brush-rider-rusty-brown-suntan-western-boots-10046853-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-brush-rider-rusty-brown-suntan-western-boots-10046853-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-rusty-brown-suntan-western-square-toe-boots-for-men"><img alt="ariat-mens-brush-rider-rusty-brown-suntan-western-boots-10046853-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-brush-rider-rusty-brown-suntan-western-boots-10046853-1/h=540,fit=pad,background=black"/></a></div>
 
 Ariat Men's Brush Rider Rusty Brown & Suntan Western Boots - These boots are a stylish choice for riders looking for both comfort and classic style. One of the most appealing features is the ATS lightweight forked shank, providing enhanced support for all-day wear. 
 
@@ -134,9 +134,9 @@ The full-grain leather foot and upper, as well as the synthetic lining, ensure a
 The Duratread outsole offers a strong grip and excellent traction on wet surfaces, allowing for safer, more dependable performance. Overall, these boots combine style, comfort, and functionality, making them a top choice for cowboys and equestrians alike. 
 
 
-### [Smoky Mountain Napa Square Toe Cowboy Boots for Women](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=smoky-mountain-napa-square-toe-cowboy-boots-for-women)
+### [Smoky Mountain Napa Square Toe Cowboy Boots for Women](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=smoky-mountain-napa-square-toe-cowboy-boots-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=smoky-mountain-napa-square-toe-cowboy-boots-for-women"><img alt="smoky-mountain-napa-square-toe-womens-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smoky-mountain-napa-square-toe-womens-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=smoky-mountain-napa-square-toe-cowboy-boots-for-women"><img alt="smoky-mountain-napa-square-toe-womens-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/smoky-mountain-napa-square-toe-womens-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Slip into comfort and style with the Smoky Mountain Napa Boots for women. Made of high-quality leather, these classy brown boots feature a square toe profile for ample space and added comfort. 
 
@@ -145,27 +145,27 @@ The rubber sole adds comfort and ease, providing soft cushioning and shock absor
 Though the craftsmanship is excellent, it's a shame that some users have reported issues with sizing, making it a bit of a risk for some potential buyers. However, for those who manage to find the right fit, these boots offer a combination of style and comfort that's hard to beat. 
 
 
-### [Ariat Men's Stylish Square Toe Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-stylish-square-toe-cowboy-boots)
+### [Ariat Men's Stylish Square Toe Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-stylish-square-toe-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-stylish-square-toe-cowboy-boots"><img alt="ariat-mens-sport-western-wide-square-toe-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-sport-western-wide-square-toe-boot-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-stylish-square-toe-cowboy-boots"><img alt="ariat-mens-sport-western-wide-square-toe-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-sport-western-wide-square-toe-boot-1/h=540,fit=pad,background=black"/></a></div>
 
 The Ariat Men's Sport Western Boot is a stylish and versatile choice for everyday wear. It boasts a traditional four-row stitch pattern on its full-grain leather upper, showcasing an elegant blend of tradition and comfort. 
 
 The Duratread outsole provides maximum wear resistance and flexibility, ensuring durability even in the most demanding environments. The synthetic air mesh lining works in tandem with 4LR technology, providing optimal support and cushioning for your feet throughout the day. This classic Western-style boot is perfect for dressier occasions and casual outings alike, offering a mix of style, comfort, and functionality that is truly unmatched. 
 
 
-### [Ariat Men's Heritage Square Toe Western Boots - Earth/Brown Bomber](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-heritage-square-toe-western-boots-earth-brown-bomber)
+### [Ariat Men's Heritage Square Toe Western Boots - Earth/Brown Bomber](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-heritage-square-toe-western-boots-earth-brown-bomber)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-heritage-square-toe-western-boots-earth-brown-bomber"><img alt="ariat-mens-heritage-roughstock-boots-earth-brown-bomber-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-heritage-roughstock-boots-earth-brown-bomber-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-heritage-square-toe-western-boots-earth-brown-bomber"><img alt="ariat-mens-heritage-roughstock-boots-earth-brown-bomber-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-heritage-roughstock-boots-earth-brown-bomber-1/h=540,fit=pad,background=black"/></a></div>
 
 These boots are a perfect mix of style and comfort, boasting high-quality materials like full-grain leather that provides a snug fit and durability. Ariat has nailed the balance between performance and design, with its ATS technology offering unparalleled support and resilience. The heat-sensitive EVA orthotic footbed ensures cushioned comfort, while the ATSO forefoot and heel strike zones provide enhanced protection. 
 
 The oil-resistant Duratread outsole not only provides excellent grip but also stands up to tough conditions. Additionally, the boots are available in extra widths and feature a western-style heel. Some users have noted a slightly longer break-in period and insole discomfort, but these issues are easily addressed with proper sizing or adjustments. Overall, the Ariat Men's Heritage Roughstock Boots-Earth/Brown Bomber are a top-tier choice for those seeking both style and performance in their cowboy boots. 
 
 
-### [Comfortable and Stylish Square Toe Women's Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfortable-and-stylish-square-toe-womens-cowboy-boots)
+### [Comfortable and Stylish Square Toe Women's Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfortable-and-stylish-square-toe-womens-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=comfortable-and-stylish-square-toe-womens-cowboy-boots"><img alt="ariat-womens-round-up-square-toe-boots-vintage-bomber-8-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-round-up-square-toe-boots-vintage-bomber-8-b-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=comfortable-and-stylish-square-toe-womens-cowboy-boots"><img alt="ariat-womens-round-up-square-toe-boots-vintage-bomber-8-b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-round-up-square-toe-boots-vintage-bomber-8-b-1/h=540,fit=pad,background=black"/></a></div>
 
 It feels like I've been wearing these Ariat Women's Round Up Square Toe Boots non-stop for weeks. They feel incredibly comfy, and I love the stylish touch. The distressed leather upper and ornate western stitching give it a vintage vibe, but the modern touch is all in the comfort and support. 
 
@@ -178,9 +178,9 @@ One thing that's a bit disappointing is the heel. It is a square toe, but not as
 Overall, these Ariat boots are a win for me. Their durability and comfort leave me satisfied, and their vintage touch adds a special flair. They just need a bit more realism in terms of their presentation, but I'd definitely recommend them to anyone looking for a comfy, stylish boot. 
 
 
-### [Ariat Women's Round Up Western Boots - Breathable, Durable, & Stylish](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-womens-round-up-western-boots-breathable-durable-stylish)
+### [Ariat Women's Round Up Western Boots - Breathable, Durable, & Stylish](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-womens-round-up-western-boots-breathable-durable-stylish)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-womens-round-up-western-boots-breathable-durable-stylish"><img alt="ariat-womens-round-up-wide-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-round-up-wide-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-womens-round-up-western-boots-breathable-durable-stylish"><img alt="ariat-womens-round-up-wide-square-toe-western-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-round-up-wide-square-toe-western-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of comfort and style with the Ariat Womens Round Up Western Boots. These boots are crafted with top-quality materials, ensuring durability and flexibility with their full-grain leather foot and upper. The 4LR technology provides lightweight support, and the removable All Day Cushioning insole offers breathable comfort all-day long. 
 
@@ -189,9 +189,9 @@ The boots feature an easy-to-use pull-on style, making them a great choice for b
 However, these boots might not be ideal for everyone, as they're reported to run slightly narrow and some users may experience issues with the sizing. Despite this, the overall consensus is that these boots are comfortable and stylish, making them a great addition to any woman's wardrobe. 
 
 
-### [Ariat Men's Stylish Square Toe Western Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-stylish-square-toe-western-boots)
+### [Ariat Men's Stylish Square Toe Western Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-stylish-square-toe-western-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-stylish-square-toe-western-boots"><img alt="ariat-mens-sport-wide-square-toe-western-boots-mens-14m-barley-brown-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-sport-wide-square-toe-western-boots-mens-14m-barley-brown-matte-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-stylish-square-toe-western-boots"><img alt="ariat-mens-sport-wide-square-toe-western-boots-mens-14m-barley-brown-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-sport-wide-square-toe-western-boots-mens-14m-barley-brown-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
 When it comes to blending style and comfort, Ariat Men's Sport Wide Square Toe Western Boots truly outshine the competition. In addition to their eye-catching appearance, these boots feature cushioning for optimal wear and a breathable mesh lining that makes them perfect for various activities. Whether you don these boots for team roping or an evening out, one thing is for sure - they'll make a statement wherever you wear them. 
 
@@ -204,9 +204,9 @@ However, while these boots receive high praise for their comfort and durability,
 In conclusion, Ariat Men's Sport Wide Square Toe Western Boots offer a perfect mix of style, comfort, and practicality. They blend classic Western designs with innovative features to create a boots experience that's hard to forget. While there may be a few minor drawbacks, these boots' numerous pros far outweigh the cons, making them a top choice for anyone in search of a quality cowboy boot. 
 
 
-### [Ariat Women's Square Toe Round Up Ruidoso B/11 Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-womens-square-toe-round-up-ruidoso-b-11-cowboy-boots)
+### [Ariat Women's Square Toe Round Up Ruidoso B/11 Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-womens-square-toe-round-up-ruidoso-b-11-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-womens-square-toe-round-up-ruidoso-b-11-cowboy-boots"><img alt="ariat-womens-boots-square-toe-round-up-ruidoso-b-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-boots-square-toe-round-up-ruidoso-b-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-womens-square-toe-round-up-ruidoso-b-11-cowboy-boots"><img alt="ariat-womens-boots-square-toe-round-up-ruidoso-b-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-womens-boots-square-toe-round-up-ruidoso-b-11-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon these Ariat Women's Square Toe Boots, and let me tell you, they instantly became a staple in my wardrobe. The genuine leather foot with a burnished chestnut leather vamp adds a touch of class and style. The removable All Day Cushioning insole is a game-changer for long days on my feet. 
 
@@ -215,9 +215,9 @@ One feature that stood out to me is the Duratread sole, which provides maximum w
 Overall, I'd highly recommend these boots for anyone looking for a stylish and comfortable pair to add to their wardrobe. With the perfect mix of style and functionality, they've become my go-to choice for Western events. 
 
 
-### [Laredo Men's Kane Black Square Toe Western Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=laredo-mens-kane-black-square-toe-western-boots)
+### [Laredo Men's Kane Black Square Toe Western Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=laredo-mens-kane-black-square-toe-western-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=laredo-mens-kane-black-square-toe-western-boots"><img alt="laredo-mens-kane-black-square-toe-cowgirl-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laredo-mens-kane-black-square-toe-cowgirl-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=laredo-mens-kane-black-square-toe-western-boots"><img alt="laredo-mens-kane-black-square-toe-cowgirl-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/laredo-mens-kane-black-square-toe-cowgirl-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 Embrace your inner cowboy with Laredo's Men's Kane Black Square Toe Cowgirl Boots. Crafted with premium leather, these boots provide a stylish addition to any western-inspired outfit. 
 
@@ -226,9 +226,9 @@ Stand tall and sturdy with their circumference of 13 inches and the reliable sto
 With their square toe design and Laredo's signature western stitching, these boots are perfect for showcasing your unique style and flair for the wild west. 
 
 
-### [Justin Men's Rugged Tan Stampede Cowhide Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=justin-mens-rugged-tan-stampede-cowhide-cowboy-boots)
+### [Justin Men's Rugged Tan Stampede Cowhide Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=justin-mens-rugged-tan-stampede-cowhide-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=justin-mens-rugged-tan-stampede-cowhide-cowboy-boots"><img alt="justin-mens-rugged-tan-cowhide-stampede-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justin-mens-rugged-tan-cowhide-stampede-work-boots-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=justin-mens-rugged-tan-stampede-cowhide-cowboy-boots"><img alt="justin-mens-rugged-tan-cowhide-stampede-work-boots-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justin-mens-rugged-tan-cowhide-stampede-work-boots-1/h=540,fit=pad,background=black"/></a></div>
 
 The Justin Men's Rugged Tan Cowhide Stampede Work Boots are a durable and sturdy footwear option that's perfect for those working in tough work environments. Made from full-grain leather, these boots are designed to protect your feet from rain, snow, and mud while ensuring a comfortable and supportive fit. 
 
@@ -237,9 +237,9 @@ The J-flex comfort system, along with a removable comfort insole, makes for a co
 Available in a variety of sizes, these boots offer both style and function, making them a great choice for anyone who needs a reliable and long-lasting work boot. 
 
 
-### [Old West Men's Stylish Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=old-west-mens-stylish-cowboy-boots)
+### [Old West Men's Stylish Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=old-west-mens-stylish-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=old-west-mens-stylish-cowboy-boots"><img alt="old-west-mens-broad-square-toe-brown-burnt-red-waxy-cowboy-boots-bsm1838-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/old-west-mens-broad-square-toe-brown-burnt-red-waxy-cowboy-boots-bsm1838-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=old-west-mens-stylish-cowboy-boots"><img alt="old-west-mens-broad-square-toe-brown-burnt-red-waxy-cowboy-boots-bsm1838-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/old-west-mens-broad-square-toe-brown-burnt-red-waxy-cowboy-boots-bsm1838-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been wearing the Old West Men's Broad Square Toe Brown/Burnt Red Waxy Cowboy Boots for a while now, and I must say, these boots are quite impressive. Made from full-grain leather, they have a fabulous texture and a sturdy build. The broad square toe adds a traditional touch to these boots while providing ample comfort with their cushioned footbed. 
 
@@ -248,18 +248,18 @@ As I moved around in these boots, I appreciated the rubber outsole that provided
 However, like any pair of boots, there were a few minor drawbacks. I noticed that the heel was not as flexible as I would've liked. It produced a slight clacky sound with every step, which some people might find a bit bothersome. Nevertheless, these cowboy boots are the perfect addition to my wardrobe. They are a blend of quality, comfort, and style that is hard to find in other footwear options. 
 
 
-### [Comfy Old West Square Toe Boys' Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfy-old-west-square-toe-boys-cowboy-boots)
+### [Comfy Old West Square Toe Boys' Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfy-old-west-square-toe-boys-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=comfy-old-west-square-toe-boys-cowboy-boots"><img alt="cody-james-boys-stitched-cowboy-boot-square-toe-bsc1877-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cody-james-boys-stitched-cowboy-boot-square-toe-bsc1877-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=comfy-old-west-square-toe-boys-cowboy-boots"><img alt="cody-james-boys-stitched-cowboy-boot-square-toe-bsc1877-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cody-james-boys-stitched-cowboy-boot-square-toe-bsc1877-1/h=540,fit=pad,background=black"/></a></div>
 
 These Old West children's boots are perfect for your little cowpoke. Crafted from genuine leather, they boast a unique yellow and white fancy stitch pattern on the olive green leather shaft. 
 
 The natural leather welt and midsole ensure durability, while the rubber outsole provides stability. The comfy square toe profile and easy-on pull straps make them a stylish and practical choice for your child. Plus, with a rating of 4.7 and 9 positive reviews, these boots are a crowd favorite! 
 
 
-### [Justin Men's Caddo Square Toe Cowboy Boots - Beige](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=justin-mens-caddo-square-toe-cowboy-boots-beige)
+### [Justin Men's Caddo Square Toe Cowboy Boots - Beige](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=justin-mens-caddo-square-toe-cowboy-boots-beige)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=justin-mens-caddo-square-toe-cowboy-boots-beige"><img alt="justin-mens-bent-rail-caddo-beige-square-toe-cowboy-boots-br744-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justin-mens-bent-rail-caddo-beige-square-toe-cowboy-boots-br744-size-11-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=justin-mens-caddo-square-toe-cowboy-boots-beige"><img alt="justin-mens-bent-rail-caddo-beige-square-toe-cowboy-boots-br744-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/justin-mens-bent-rail-caddo-beige-square-toe-cowboy-boots-br744-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to try on these Bent Rail Boots, and I must say, it exceeded my expectations. The first thing that caught my attention was the unique color - it's like a perfect blend of white and light brown that gives the boots a vintage and rustic look. Slipping into them was a breeze, and I appreciated the comfortable insole. 
 
@@ -270,9 +270,9 @@ Now, no product is perfect, and there were a couple of minor drawbacks. Firstly,
 Overall, these Bent Rail Cowboy Boots are the perfect addition to any cowboy's collection. With their unique colors, durable construction, and comfortable fit, it's no wonder these boots have such a stellar rating, and I'm definitely looking forward to adding more to my collection. 
 
 
-### [VentTEK 360° Ariat Men's Rowder Cowboy Boot - Black/Dark Teal](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=venttek-360-ariat-mens-rowder-cowboy-boot-black-dark-teal)
+### [VentTEK 360° Ariat Men's Rowder Cowboy Boot - Black/Dark Teal](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=venttek-360-ariat-mens-rowder-cowboy-boot-black-dark-teal)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=venttek-360-ariat-mens-rowder-cowboy-boot-black-dark-teal"><img alt="ariat-mens-rowder-venttek-360-cowboy-boot-blackdark-teal-blackdark-teal-7-5-ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-rowder-venttek-360-cowboy-boot-blackdark-teal-blackdark-teal-7-5-ee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=venttek-360-ariat-mens-rowder-cowboy-boot-black-dark-teal"><img alt="ariat-mens-rowder-venttek-360-cowboy-boot-blackdark-teal-blackdark-teal-7-5-ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-rowder-venttek-360-cowboy-boot-blackdark-teal-blackdark-teal-7-5-ee-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the Ariat Men's Rowder VentTEK 360° Cowboy Boot, and I must say, it feels like having air conditioning for my feet! The VentTEK panels boost airflow while the self-cooling lining keeps me comfortable, even on hot days. I loved the lightweight and flexible bantam sole, making every walk, ride, or work feel effortless. 
 
@@ -283,9 +283,9 @@ Sizing was true to form, with my cowboy boots fitting perfectly. I found the 11-
 One downside was the sole discoloration, which I found disappointing. However, the repair program offered by Ariat seemed like a great option to keep these boots in top shape. Overall, the Ariat Men's Rowder VentTEK 360° Cowboy Boot exceeded my expectations, providing both comfort and style in one package. 
 
 
-### [Stylish White and Turquoise Cowhide Square Toe Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=stylish-white-and-turquoise-cowhide-square-toe-cowboy-boots)
+### [Stylish White and Turquoise Cowhide Square Toe Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=stylish-white-and-turquoise-cowhide-square-toe-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=stylish-white-and-turquoise-cowhide-square-toe-cowboy-boots"><img alt="corral-boots-z5139-womens-boots-white-turquoise-11-b-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/corral-boots-z5139-womens-boots-white-turquoise-11-b-medium-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=stylish-white-and-turquoise-cowhide-square-toe-cowboy-boots"><img alt="corral-boots-z5139-womens-boots-white-turquoise-11-b-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/corral-boots-z5139-womens-boots-white-turquoise-11-b-medium-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried on the Z5139 women's boots from Corral in a beautiful white and turquoise color combination. The boots feature a square toe, which gives them a stylish edge. The leather upper adds a touch of luxuriousness, and the easy pull tabs make slipping them on a breeze. 
 
@@ -294,9 +294,9 @@ To top it off, the boots have a lovely floral embroidery design on the vamp, add
 Overall, these boots are a great addition to any cowboy boot enthusiast's collection, blending both practicality and style. 
 
 
-### [Ariat Men's Square Toe Beasty Brown Cowboy Boot](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-square-toe-beasty-brown-cowboy-boot)
+### [Ariat Men's Square Toe Beasty Brown Cowboy Boot](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-mens-square-toe-beasty-brown-cowboy-boot)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-square-toe-beasty-brown-cowboy-boot"><img alt="ariat-mens-beasty-brown-slingshot-cowboy-boot-9ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-beasty-brown-slingshot-cowboy-boot-9ee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-mens-square-toe-beasty-brown-cowboy-boot"><img alt="ariat-mens-beasty-brown-slingshot-cowboy-boot-9ee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-mens-beasty-brown-slingshot-cowboy-boot-9ee-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Ariat Men's Beasty Brown Slingshot Cowboy Boot 9EE, and let me tell you, they've been a game-changer in my daily life. These boots are not just perfect for the ranch or a Wild West-themed party; they're also comfy enough for everyday wear. 
 
@@ -309,9 +309,9 @@ I've noticed a few minor drawbacks, though. When I first tried these boots, I di
 Overall, I'm thrilled with my Ariat Men's Beasty Brown Slingshot Cowboy Boot 9EE purchase. They've become my go-to boots for both work and play, and I have no regrets about investing in such a versatile and stylish pair. I highly recommend these boots to anyone looking for a reliable, comfortable, and fashionable cowboy boot option. 
 
 
-### [Ariat Rambler Square Toe Brown Cowboy Boots](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-rambler-square-toe-brown-cowboy-boots)
+### [Ariat Rambler Square Toe Brown Cowboy Boots](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=ariat-rambler-square-toe-brown-cowboy-boots)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-rambler-square-toe-brown-cowboy-boots"><img alt="ariat-rambler-mens-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-rambler-mens-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=ariat-rambler-square-toe-brown-cowboy-boots"><img alt="ariat-rambler-mens-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-rambler-mens-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the opportunity to try out the Ariat Rambler Men's Western Boots in the earth brown cowboy boots style. As someone who appreciates both functionality and style, I was eager to see if these boots would meet my expectations. 
 
@@ -324,9 +324,9 @@ However, there were a few downsides to these boots. Firstly, I found that they h
 Overall, the Ariat Rambler Men's Western Boots were a solid choice for anyone in need of durable, stylish work boots. With their comfortable fit, great traction, and rugged aesthetic, these boots are a worthwhile investment for anyone who values both functionality and fashion. 
 
 
-### [Classic Leather Square Toe Western Boots for Men](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=classic-leather-square-toe-western-boots-for-men)
+### [Classic Leather Square Toe Western Boots for Men](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=classic-leather-square-toe-western-boots-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=classic-leather-square-toe-western-boots-for-men"><img alt="wrangler-mens-brown-square-toe-western-shoes-kmc0008-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wrangler-mens-brown-square-toe-western-shoes-kmc0008-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=classic-leather-square-toe-western-boots-for-men"><img alt="wrangler-mens-brown-square-toe-western-shoes-kmc0008-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/wrangler-mens-brown-square-toe-western-shoes-kmc0008-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently got my hands on the Wrangler Men's Brown Square Toe Western Shoes KMC0008. At first, I was skeptical about how comfortable a pair of western-style boots could be, but I was pleasantly surprised. The genuine full-grain leather upper paired with the western square toe profile gave it a polished look, making it perfect for any occasion. 
 
@@ -337,18 +337,18 @@ Moreover, the durability of these boots became evident thanks to their oil and s
 Overall, these boots have become my go-to for casual occasions. While they might not be suitable for harsh weather conditions, they're more than capable of handling everyday wear and tear. 
 
 
-### [Comfortable Square Toe Cowboy Boots for Western Adventures](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfortable-square-toe-cowboy-boots-for-western-adventures)
+### [Comfortable Square Toe Cowboy Boots for Western Adventures](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=comfortable-square-toe-cowboy-boots-for-western-adventures)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=comfortable-square-toe-cowboy-boots-for-western-adventures"><img alt="searchers-sc200917brl-brown-cowboy-boots-for-men-square-toe-embroidered-western-boot-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/searchers-sc200917brl-brown-cowboy-boots-for-men-square-toe-embroidered-western-boot-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=comfortable-square-toe-cowboy-boots-for-western-adventures"><img alt="searchers-sc200917brl-brown-cowboy-boots-for-men-square-toe-embroidered-western-boot-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/searchers-sc200917brl-brown-cowboy-boots-for-men-square-toe-embroidered-western-boot-large-1/h=540,fit=pad,background=black"/></a></div>
 
 One day, I decided to give these budget-friendly cowboy boots a try - it's hard to resist the classic design! The first thing I noticed was the comfortable fit. The square toe was roomy, preventing any discomfort on my morning walks. The faux leather gave a luxurious feel, making me look like a true cowboy. I appreciated the durability of the wear-resistant rubber sole, which kept my feet dry no matter the terrain. 
 
 However, there was a slight downside. The sizing seemed to be a bit off, as they arrived in a size too big. I had to exchange them, which was a bit of a hassle. Despite the issue, I can say that these boots are a fantastic option for anyone looking for a comfortable, stylish, and wear-resistant cowboy boot that won't break the bank. Just make sure to double-check the sizing! 
 
 
-### [Waterproof Square Toe Work Boots by Ariat](https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm\_term=waterproof-square-toe-work-boots-by-ariat)
+### [Waterproof Square Toe Work Boots by Ariat](https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm\_term=waterproof-square-toe-work-boots-by-ariat)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe?utm_term=waterproof-square-toe-work-boots-by-ariat"><img alt="ariat-groundbreaker-wide-square-toe-h20-10-mens-dark-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-groundbreaker-wide-square-toe-h20-10-mens-dark-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe?utm_term=waterproof-square-toe-work-boots-by-ariat"><img alt="ariat-groundbreaker-wide-square-toe-h20-10-mens-dark-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ariat-groundbreaker-wide-square-toe-h20-10-mens-dark-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try on the Ariat Groundbreaker Wide Square Toe H20 Men's Dark Brown boots, and let me tell you, they certainly lived up to the name. From the moment I slipped them on, I could feel the extra comfort and support from the 90-degree heel and the square toe design. 
 
@@ -368,7 +368,7 @@ Welcome to our dedicated Buyer's Guide for Square Toe Cowboy Boots. In this segm
 
 When perusing for square toe cowboy boots, contemplate the following features to guarantee comfort and stability. These elements are vital in fostering the boots' longevity and providing a pleasurable wearing experience, time and time again. The features encompass materials, design, and fit. Verify genuine leather or artificial materials, along with the boot's assembly. Also, take heed of the boot's shape and dimension to secure a flawless fit. Moreover, scrutinize the boot's robustness, encompassing stitching and fortifications. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-2/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-2/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-2" height="540"></a></div>
 
 
 ### General Factors
@@ -380,7 +380,7 @@ Prior to finalizing your purchase, take into account your lifestyle and necessit
 
 One of the most crucial aspects to take into account when procuring square toe cowboy boots is comfort. A snugly fitted boot can offer all-day comfort, even during extended wear. Ensure to try on the boots in a brick-and-mortar store and walk around for a few minutes to get a sense of them. Additionally, inspect for adequate padding and cushioning in the insole, as well as suitable support and arch comfort. A comfortable boot is a necessity for any footwear, particularly when planning prolonged periods on your feet. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-3/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-3/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-3" height="540"></a></div>
 
 
 ### Durability Matters
@@ -390,7 +390,7 @@ Another crucial factor to consider is the durability of the boots. Cowboy boots 
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-4/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-4/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-4" height="540"></a></div>
 
 
 ### What's the scoop on square-toed cowboy boots?
@@ -406,7 +406,7 @@ Comfort reigns supreme when it comes to square-toed cowboy boots. Their flat and
 
 The versatility of square-toed cowboy boots is another bonus. They can be dressed up or down, depending on the occasion. Pair a casual pair with jeans or shorts, while a dressier option can be paired with a skirt or dress for a more formal event. And don't forget the decorative embellishments like embroidery, sequins, or beading that can add a touch of personal style to your outfit. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-5/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-5/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-5" height="540"></a></div>
 
 
 ### What materials are used in making square-toed cowboy boots?
@@ -420,7 +420,7 @@ To maintain the longevity and beauty of your square-toed cowboy boots, proper ca
 
 If your boots are made of leather, remember to condition them periodically using a high-quality leather conditioner or cream. This will help keep the leather soft, supple, and resistant to damage caused by drying out. Avoid using harsh chemicals like polish or wax, as they can damage the finish of your boots and potentially alter their appearance. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-6/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Cowboy+Boots+Square+Toe"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Cowboy-Boots-Square-Toe-6/h=540,fit=pad,background=black" alt="Cowboy-Boots-Square-Toe-6" height="540"></a></div>
 
 
 ### Who makes some of the best square-toed cowboy boots?

@@ -15,9 +15,9 @@ Welcome to the wonderful world of Herman Miller Desk! If you're in the market fo
 ## Reviews
 
 
-### [Herman Miller Nelson Swag Leg Adjustable Desk with Walnut Sides - Orange, Spa Blue, and Chartreuse Dividers](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-nelson-swag-leg-adjustable-desk-with-walnut-sides-orange-spa-blue-and-chartreuse-dividers)
+### [Herman Miller Nelson Swag Leg Adjustable Desk with Walnut Sides - Orange, Spa Blue, and Chartreuse Dividers](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-nelson-swag-leg-adjustable-desk-with-walnut-sides-orange-spa-blue-and-chartreuse-dividers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-nelson-swag-leg-adjustable-desk-with-walnut-sides-orange-spa-blue-and-chartreuse-dividers"><img alt="herman-miller-nelson-swag-leg-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-nelson-swag-leg-desk-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-nelson-swag-leg-adjustable-desk-with-walnut-sides-orange-spa-blue-and-chartreuse-dividers"><img alt="herman-miller-nelson-swag-leg-desk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-nelson-swag-leg-desk-1/h=540,fit=pad,background=black"/></a></div>
 
 After using the Herman Miller Nelson Swag Leg Desk for a while, I can confidently say that this desk is a true piece of art. Its curved metal legs, inspired by George Nelson, make it a standout piece in any room, while its walnut sides and white laminate top provide a sleek, modern look. The two black pencil drawers and dividers are a practical and convenient addition, perfect for keeping your workspace organized. 
 
@@ -26,18 +26,18 @@ One of the key highlights of this desk is its adjustable glides and grommet for 
 Despite this minor issue, I am still extremely happy with my purchase of the Herman Miller Nelson Swag Leg Desk. It's a beautiful and functional addition to my workspace, and I appreciate the attention to design and quality that Herman Miller is known for. 
 
 
-### [Herman Miller OE1 Modern Wood-Top Office Table](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-oe1-modern-wood-top-office-table)
+### [Herman Miller OE1 Modern Wood-Top Office Table](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-oe1-modern-wood-top-office-table)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-oe1-modern-wood-top-office-table"><img alt="herman-miller-oe1-table-30-x-73" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-oe1-table-30-x-73/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-oe1-modern-wood-top-office-table"><img alt="herman-miller-oe1-table-30-x-73" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-oe1-table-30-x-73/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller OE1 table is a versatile and sleek addition to any workspace or dining area. Crafted from sustainable materials, this desk boasts a minimalist design, making it a perfect fit for modern interiors. Its durable metal bracing ensures the top doesn't sag in the middle, while adjustable glides on the feet allow for easy leveling. 
 
 Customizable leg finishes add a touch of personalization to the piece. Some users have experienced delivery delays and missing parts, while others have praised the simple assembly process and high-quality design. 
 
 
-### [Herman Miller Airia Desk - Premium Workspace](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-airia-desk-premium-workspace)
+### [Herman Miller Airia Desk - Premium Workspace](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-airia-desk-premium-workspace)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-airia-desk-premium-workspace"><img alt="airia-desk-by-herman-miller-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/airia-desk-by-herman-miller-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-airia-desk-premium-workspace"><img alt="airia-desk-by-herman-miller-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/airia-desk-by-herman-miller-1/h=540,fit=pad,background=black"/></a></div>
 
 The Airia Desk by Herman Miller has become a staple in my home office, providing not only a sleek, modern appearance but also practical features for my daily work. Made from solid walnut and aluminum, the desk offers a stunning combination of timeless beauty and contemporary functionality. 
 
@@ -46,9 +46,9 @@ One of the highlights of this desk is its cork-lined drawers, which provide an o
 On the other hand, the shipping process for this desk was less than ideal, with delays and scheduling issues that left me feeling frustrated. However, the positive and useful aspects of the desk itself far outweigh this minor inconvenience. Overall, I'm very satisfied with the Airia Desk and its blend of style and practicality, making it a worthwhile investment for my home office. 
 
 
-### [Herman Miller Workstation: 18x48 Inch OE1 Table for Office Efficiency](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-workstation-18x48-inch-oe1-table-for-office-efficiency)
+### [Herman Miller Workstation: 18x48 Inch OE1 Table for Office Efficiency](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-workstation-18x48-inch-oe1-table-for-office-efficiency)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-workstation-18x48-inch-oe1-table-for-office-efficiency"><img alt="herman-miller-oe1-table-18-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-oe1-table-18-x-49/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-workstation-18x48-inch-oe1-table-for-office-efficiency"><img alt="herman-miller-oe1-table-18-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-oe1-table-18-x-49/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller OE1 table is a top-quality piece that caters to the needs of the modern workspace. Designed to simplify your life, this table is perfect for those who require a flexible and adaptable workspace. 
 
@@ -57,9 +57,9 @@ With a stunning wood-top office table, you can easily switch up your workspace s
 This versatile, sturdy desk provides the perfect solution for those seeking a blend of elegance and efficiency. Despite minor assembly challenges and potential shipping issues, the Herman Miller Desk is a reliable and impressive addition to any office or workspace. 
 
 
-### [Streamlined Herman Miller Mode Desk for Home Offices](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=streamlined-herman-miller-mode-desk-for-home-offices)
+### [Streamlined Herman Miller Mode Desk for Home Offices](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=streamlined-herman-miller-mode-desk-for-home-offices)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=streamlined-herman-miller-mode-desk-for-home-offices"><img alt="herman-miller-mode-desk-in-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-mode-desk-in-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=streamlined-herman-miller-mode-desk-for-home-offices"><img alt="herman-miller-mode-desk-in-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-mode-desk-in-black-1/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller Mode Desk (2021) has been a handy addition to my home office setup. Its slim and compact design fits perfectly in a small nook, allowing me to maximize my space. The built-in cord management system with a cable trough keeps my workspace looking tidy while the back leg wire routing ensures a clutter-free environment. 
 
@@ -68,9 +68,9 @@ One of my favorite aspects of the desk is the option to install drawer cabinets 
 Despite these minor quirks, the Mode Desk has proven to be a practical and attractive choice for my home office. I've enjoyed the process of personalizing it with various color options available, making it truly my own. Although I've heard some other users experiencing delays in delivery, my experience has been smooth, and I would definitely recommend this desk to anyone in the market for a small, stylish, and functional workspace solution. 
 
 
-### [Herman Miller 2500 Series Executive Desk (24" x 48")](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-2500-series-executive-desk-24-x-48)
+### [Herman Miller 2500 Series Executive Desk (24" x 48")](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-2500-series-executive-desk-24-x-48)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-2500-series-executive-desk-24-x-48"><img alt="herman-miller-eames-2500-series-executive-desk-24-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-eames-2500-series-executive-desk-24-x-49/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-2500-series-executive-desk-24-x-48"><img alt="herman-miller-eames-2500-series-executive-desk-24-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-eames-2500-series-executive-desk-24-x-49/h=540,fit=pad,background=black"/></a></div>
 
 As an assistant writer, I had the opportunity to test the Herman Miller Eames 2500 Series Executive Desk in my own workspace. Being a fan of sleek, modern designs, I was immediately drawn to the clean T-leg design and expansive desktop that this desk boasted. I was also delighted by the variety of premium veneers and leather inlay options available, allowing me to truly personalize the desk to match my style. 
 
@@ -81,27 +81,27 @@ However, one minor drawback I encountered was the assembly process. While I appr
 Overall, my experience with the Herman Miller Eames 2500 Series Executive Desk has been nothing short of impressive. It's a beautifully designed piece of furniture that not only looks great but also provides practicality. Despite the minor assembly hiccup, this desk has become an essential part of my workspace, enhancing my productivity and adding a touch of elegance to my daily routine. 
 
 
-### [Herman Miller Motia Gaming Sit-to-Stand Desk](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-motia-gaming-sit-to-stand-desk)
+### [Herman Miller Motia Gaming Sit-to-Stand Desk](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-motia-gaming-sit-to-stand-desk)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-motia-gaming-sit-to-stand-desk"><img alt="herman-miller-motia-gaming-sit-to-stand-desk-30-x-60-in-studio-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-gaming-sit-to-stand-desk-30-x-60-in-studio-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-motia-gaming-sit-to-stand-desk"><img alt="herman-miller-motia-gaming-sit-to-stand-desk-30-x-60-in-studio-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-gaming-sit-to-stand-desk-30-x-60-in-studio-white-1/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller Motia Gaming Desk offers a height-adjustable design that lets you change the desk's height to suit your needs. The integrated, anti-glare soft-touch matte finish not only looks sleek but also functions as a smudge-proof surface for easy maintenance. The quiet motor makes for a smooth and seamless adjustment, and the sturdy build ensures stability even when fully extended. 
 
 The desk comes with a surge protector to manage power cables, and the long, extendable power cable allows for better cable management. Overall, the Herman Miller Motia Gaming Desk provides a high-quality workspace solution for both work and play. 
 
 
-### [Herman Miller Walnut Airia Desk](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-miller-walnut-airia-desk)
+### [Herman Miller Walnut Airia Desk](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-miller-walnut-airia-desk)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-miller-walnut-airia-desk"><img alt="herman-miller-airia-desk-in-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-airia-desk-in-walnut-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-miller-walnut-airia-desk"><img alt="herman-miller-airia-desk-in-walnut-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-airia-desk-in-walnut-1/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller Airia Desk, featured in a rich walnut finish, seamlessly combines beauty and functionality in one sleek package. Its cork-lined organizer tray in the center drawer provides a convenient storage space for papers and mementos, while the elevated back serves as a shelf for a task lamp and accessories. The white laminate inset highlights the work surface, creating a concentrated workspace. 
 
 One of the standout features of this desk is its integrated cord management system, keeping unsightly cables neatly tucked away in the body of the desk. This desk is environmentally conscious, comprising 54% recycled content and earning a prestigious 2008 Good Design Award. With its stylish design, excellent construction, and practical storage solutions, the Herman Miller Airia Desk is a top choice for those seeking both beauty and performance in their office setup. 
 
 
-### [Herman Miller's Modern Sit-to-Stand Desk for Active Workspaces](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=herman-millers-modern-sit-to-stand-desk-for-active-workspaces)
+### [Herman Miller's Modern Sit-to-Stand Desk for Active Workspaces](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=herman-millers-modern-sit-to-stand-desk-for-active-workspaces)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=herman-millers-modern-sit-to-stand-desk-for-active-workspaces"><img alt="herman-miller-motia-sit-to-stand-desk-30-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-sit-to-stand-desk-30-x-49/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=herman-millers-modern-sit-to-stand-desk-for-active-workspaces"><img alt="herman-miller-motia-sit-to-stand-desk-30-x-49" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-sit-to-stand-desk-30-x-49/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Herman Miller Motia Sit-to-Stand Desk, a game-changer in the world of office furniture. This sleek, modern desk is designed to energize your workspace and promote healthy work habits, all with just a touch of a button. The electric lift, capable of supporting up to 250 lbs, makes it a perfect fit for an entire workstation setup. 
 
@@ -110,9 +110,9 @@ The desk's laminate surface is both easy to clean and stylish, while the adjusta
 Of course, no product is without its drawbacks. Some customers have reported issues with assembly manuals, while others have experienced issues with the sit-to-stand mechanism. However, overall, the Herman Miller Motia Sit-to-Stand Desk has received positive feedback from users who appreciate its versatility, style, and support for healthy work habits. 
 
 
-### [Motia Sit-to-Stand Desk by Herman Miller: Promote Healthy Work Habits](https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm\_term=motia-sit-to-stand-desk-by-herman-miller-promote-healthy-work-habits)
+### [Motia Sit-to-Stand Desk by Herman Miller: Promote Healthy Work Habits](https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm\_term=motia-sit-to-stand-desk-by-herman-miller-promote-healthy-work-habits)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk?utm_term=motia-sit-to-stand-desk-by-herman-miller-promote-healthy-work-habits"><img alt="herman-miller-motia-sit-to-stand-desk-30-x-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-sit-to-stand-desk-30-x-61/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk?utm_term=motia-sit-to-stand-desk-by-herman-miller-promote-healthy-work-habits"><img alt="herman-miller-motia-sit-to-stand-desk-30-x-61" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/herman-miller-motia-sit-to-stand-desk-30-x-61/h=540,fit=pad,background=black"/></a></div>
 
 The Herman Miller Motia Sit-to-Stand Desk is a game-changer in the workplace. I've been fortunate enough to try it out for myself, and I must say, it's been a lifesaver. The electric lift is a breeze to use and supports up to 250 pounds, making it a great fit for my workstation. 
 
@@ -132,7 +132,7 @@ When it comes to office furniture, Herman Miller desks are renowned for their hi
 
 Herman Miller offers a wide range of desk sizes to suit different workspaces and individual preferences. Consider the amount of surface area you need for your monitor, keyboard, and any other equipment or documents you'll be working with. The size of your desk also plays a role in functionality and ergonomics, so it's important to choose a size that will allow you to work comfortably and efficiently. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-2/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-2/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-2" height="540"></a></div>
 
 
 ### Assess the Storage Space
@@ -144,7 +144,7 @@ Many Herman Miller desks come with integrated storage solutions, such as drawers
 
 Adjustability is a key feature in Herman Miller desks. You may want to consider a desk with height adjustability, which can provide a more ergonomic work environment and help prevent strain on your back, neck, and shoulders. Some Herman Miller desks also come with adjustable panels to accommodate different computer configurations or to accommodate standing or sitting positions as needed. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-3/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-3/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-3" height="540"></a></div>
 
 
 ### Choose a Style That Fits Your Space
@@ -154,7 +154,7 @@ Aesthetics may not be your primary concern when purchasing office furniture, but
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-4/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-4/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-4" height="540"></a></div>
 
 
 ### What makes Herman Miller desks unique?
@@ -170,7 +170,7 @@ Yes, Herman Miller offers a wide range of desk styles to suit different workspac
 
 Other designs include the OE1 Storage Workstation, which features ample storage space and a clean, modern look, and the Cosm Desk, a minimalist and elegant option for those seeking a sophisticated design aesthetic. Herman Miller's extensive lineup ensures that there is a desk to suit every type of workspace and personal style. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-5/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-5/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-5" height="540"></a></div>
 
 
 ### How durable are Herman Miller desks?
@@ -186,7 +186,7 @@ Yes, Herman Miller desks are available in various sizes to accommodate different
 
 Furthermore, Herman Miller's customization options allow you to create a tailored desk solution that fits perfectly within your workspace. Their team of experts can help you choose the right size and configuration for your specific requirements, ensuring a desk that is functional, comfortable, and aesthetically pleasing. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-6/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Herman+Miller+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Herman-Miller-Desk-6/h=540,fit=pad,background=black" alt="Herman-Miller-Desk-6" height="540"></a></div>
 
 
 ### What ergonomic features are available in Herman Miller desks?

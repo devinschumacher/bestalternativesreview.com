@@ -15,18 +15,18 @@ Get ready to make a fashion statement with Death Note Shirt! This article featur
 ## Reviews
 
 
-### [Death Note: Ryuk Design Men's T-Shirt (Small)](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=death-note-ryuk-design-mens-t-shirt-small)
+### [Death Note: Ryuk Design Men's T-Shirt (Small)](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=death-note-ryuk-design-mens-t-shirt-small)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=death-note-ryuk-design-mens-t-shirt-small"><img alt="death-note-mens-t-shirt-ryuk-image-with-death-note-text-small-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/death-note-mens-t-shirt-ryuk-image-with-death-note-text-small-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=death-note-ryuk-design-mens-t-shirt-small"><img alt="death-note-mens-t-shirt-ryuk-image-with-death-note-text-small-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/death-note-mens-t-shirt-ryuk-image-with-death-note-text-small-1/h=540,fit=pad,background=black"/></a></div>
 
 This stylish Death Note t-shirt, featuring the iconic Ryuk image and intricate Death Note text, is a must-have for any fan. The small size ensures a comfortable fit, while the black color adds an edgy touch. However, depending on individual preferences, some might find the graphic design a bit overwhelming. 
 
 Overall, it's a great option for those looking to show off their Death Note fandom. 
 
 
-### [Death Note White Shirt: Light Yagami Design](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=death-note-white-shirt-light-yagami-design)
+### [Death Note White Shirt: Light Yagami Design](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=death-note-white-shirt-light-yagami-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=death-note-white-shirt-light-yagami-design"><img alt="light-with-book-death-note-white-shirt-ripple-junction-xx-large-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/light-with-book-death-note-white-shirt-ripple-junction-xx-large-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=death-note-white-shirt-light-yagami-design"><img alt="light-with-book-death-note-white-shirt-ripple-junction-xx-large-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/light-with-book-death-note-white-shirt-ripple-junction-xx-large-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to wear this striking Death Note shirt featuring Light Yagami, looking mighty as he grips a book in his hands. The crimson ink accenting his name and the series title adds an extra touch to the overall design. 
 
@@ -35,9 +35,9 @@ Made of soft fabric, this shirt offers a comfortable and sleek fit that fits per
 However, I've noticed that it tends to shrink a bit after the first wash, so it's essential to follow the care instructions provided. Overall, the Death Note shirt has become my go-to item, adding a little bit of edginess to my everyday look. 
 
 
-### [Death Note Misa Amane Unisex Sweater - Pull On Design](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=death-note-misa-amane-unisex-sweater-pull-on-design)
+### [Death Note Misa Amane Unisex Sweater - Pull On Design](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=death-note-misa-amane-unisex-sweater-pull-on-design)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=death-note-misa-amane-unisex-sweater-pull-on-design"><img alt="maener-mens-death-note-sweater-misa-amane-knit-pullover-top-for-women-unisex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/maener-mens-death-note-sweater-misa-amane-knit-pullover-top-for-women-unisex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=death-note-misa-amane-unisex-sweater-pull-on-design"><img alt="maener-mens-death-note-sweater-misa-amane-knit-pullover-top-for-women-unisex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/maener-mens-death-note-sweater-misa-amane-knit-pullover-top-for-women-unisex-1/h=540,fit=pad,background=black"/></a></div>
 
 This comfy hoodie is a must-have for your autumn wardrobe. With its versatile style, it's perfect for both casual wear and outdoor activities. 
 
@@ -48,27 +48,27 @@ The pullover closure makes it easy to slip on and off, ensuring a snug, cozy fit
 Plus, its slim fit ensures that it flatters the figure beautifully. Don't forget to take care of your new hoodie with proper hand washing and drying instructions to keep its quality at its peak. 
 
 
-### [Officially Licensed Death Note Deathnote Men's Shirt](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=officially-licensed-death-note-deathnote-mens-shirt)
+### [Officially Licensed Death Note Deathnote Men's Shirt](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=officially-licensed-death-note-deathnote-mens-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=officially-licensed-death-note-deathnote-mens-shirt"><img alt="hybrid-apparel-death-note-deathnote-mens-t-shirt-justice-of-kira-splattered-word-image-mens-size-3xl-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hybrid-apparel-death-note-deathnote-mens-t-shirt-justice-of-kira-splattered-word-image-mens-size-3xl-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=officially-licensed-death-note-deathnote-mens-shirt"><img alt="hybrid-apparel-death-note-deathnote-mens-t-shirt-justice-of-kira-splattered-word-image-mens-size-3xl-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/hybrid-apparel-death-note-deathnote-mens-t-shirt-justice-of-kira-splattered-word-image-mens-size-3xl-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been living with this Hybrid Apparel Death Note Deathnote Mens T-Shirt for a little while now, and I must say, it's the perfect addition to my wardrobe. As an avid fan of Death Note, this shirt just screams fandom. The splattered "Justice of Kira" image adds a touch of edginess that I love. 
 
 The fit is great, and I appreciate the short sleeve style in the summer heat. But what really stands out is the high-quality fabric. It's comfortable and feels like it'll last. However, one thing I noticed is that the shirt tends to shrink a bit in the dryer. So, make sure to take that into consideration when washing. Overall, it's a fantastic shirt that any Death Note fan would be proud to add to their collection. 
 
 
-### [Stylish Death Note Men's Short Sleeve Graphic Tee - 3XL, Gray](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=stylish-death-note-mens-short-sleeve-graphic-tee-3xl-gray)
+### [Stylish Death Note Men's Short Sleeve Graphic Tee - 3XL, Gray](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=stylish-death-note-mens-short-sleeve-graphic-tee-3xl-gray)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=stylish-death-note-mens-short-sleeve-graphic-tee-3xl-gray"><img alt="death-note-mens-short-sleeve-graphic-tee-size-3xl-gray-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/death-note-mens-short-sleeve-graphic-tee-size-3xl-gray-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=stylish-death-note-mens-short-sleeve-graphic-tee-3xl-gray"><img alt="death-note-mens-short-sleeve-graphic-tee-size-3xl-gray-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/death-note-mens-short-sleeve-graphic-tee-size-3xl-gray-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the thrilling world of Death Note with this comfortable and stylish short-sleeve graphic tee. Perfect for fans of both Light Yagami and L, this men's 3XL size tee is sure to become your favorite. With a crew neck and short sleeve style, it's the perfect addition to your casual wardrobe. 
 
 Embrace the battle between genius and detective with this unique and attention-grabbing shirt. 
 
 
-### [Anime-Inspired Death Note Crew Neck T-Shirt](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=anime-inspired-death-note-crew-neck-t-shirt)
+### [Anime-Inspired Death Note Crew Neck T-Shirt](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=anime-inspired-death-note-crew-neck-t-shirt)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=anime-inspired-death-note-crew-neck-t-shirt"><img alt="ripple-junction-death-note-adult-unisex-ryuk-light-contrast-red-light-weight-100-cotton-crew-t-shirt-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ripple-junction-death-note-adult-unisex-ryuk-light-contrast-red-light-weight-100-cotton-crew-t-shirt-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=anime-inspired-death-note-crew-neck-t-shirt"><img alt="ripple-junction-death-note-adult-unisex-ryuk-light-contrast-red-light-weight-100-cotton-crew-t-shirt-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ripple-junction-death-note-adult-unisex-ryuk-light-contrast-red-light-weight-100-cotton-crew-t-shirt-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently stumbled upon this Ripple Junction Death Note adult unisex t-shirt featuring the iconic characters Ryuk and Light. As a huge fan of the anime, I couldn't resist giving it a try. 
 
@@ -77,9 +77,9 @@ The pull-on closure made it super comfortable and easy to wear, and I appreciate
 However, the wash instructions could be more specific - I accidentally used a high temperature setting, which caused a bit of fading. Overall, it was a thrilling and stylish experience wearing this Death Note t-shirt, and I'd definitely recommend it to fellow fans! 
 
 
-### [Gothic Death Note Misa Stud Tee for Girls](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=gothic-death-note-misa-stud-tee-for-girls)
+### [Gothic Death Note Misa Stud Tee for Girls](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=gothic-death-note-misa-stud-tee-for-girls)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=gothic-death-note-misa-stud-tee-for-girls"><img alt="death-note-misa-stud-boyfriend-fit-girls-t-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-misa-stud-boyfriend-fit-girls-t-shirt-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=gothic-death-note-misa-stud-tee-for-girls"><img alt="death-note-misa-stud-boyfriend-fit-girls-t-shirt-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-misa-stud-boyfriend-fit-girls-t-shirt-1/h=540,fit=pad,background=black"/></a></div>
 
 In my quest for new and unique anime-inspired shirts, I stumbled upon the Death Note Misa stud boyfriend fit girl's T-shirt. The design stood out to me immediately, featuring a striking image of the beloved character Misa, encircled by an array of studs, filigree, and intricately patterned wings. 
 
@@ -90,18 +90,18 @@ Despite this, I found the shirt to be a lovely addition to my wardrobe, particul
 Overall, I am quite happy with the Death Note Misa stud boyfriend fit girl's T-shirt. It is a stylish and comfortable addition to my collection, and I'm sure it will be a hit among other fans of the show. 
 
 
-### [Officially Licensed Death Note T-Shirt for Men](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=officially-licensed-death-note-t-shirt-for-men)
+### [Officially Licensed Death Note T-Shirt for Men](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=officially-licensed-death-note-t-shirt-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=officially-licensed-death-note-t-shirt-for-men"><img alt="ripple-junction-mens-death-note-anime-t-shirt-death-note-light-yagami-mens-fashion-shirt-death-note--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ripple-junction-mens-death-note-anime-t-shirt-death-note-light-yagami-mens-fashion-shirt-death-note--1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=officially-licensed-death-note-t-shirt-for-men"><img alt="ripple-junction-mens-death-note-anime-t-shirt-death-note-light-yagami-mens-fashion-shirt-death-note--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ripple-junction-mens-death-note-anime-t-shirt-death-note-light-yagami-mens-fashion-shirt-death-note--1/h=540,fit=pad,background=black"/></a></div>
 
 The Ripple Junction Death Note Anime T-Shirt is an officially licensed piece of merchandise for fans of the popular Japanese manga series, Death Note. Crafted from 100% cotton, it features a comfortable crew cut neckline and short sleeves for a relaxed and stylish fit. 
 
 The design showcases the main character, Light Yagami, and the iconic Death Note in bold, eye-catching graphics. Machine washable for easy care, this t-shirt is available in various sizes, making it a great gift option for men of all ages. 
 
 
-### [Classic Death Note Ryuk Skull and Apple Men's Shirt White](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=classic-death-note-ryuk-skull-and-apple-mens-shirt-white)
+### [Classic Death Note Ryuk Skull and Apple Men's Shirt White](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=classic-death-note-ryuk-skull-and-apple-mens-shirt-white)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=classic-death-note-ryuk-skull-and-apple-mens-shirt-white"><img alt="death-note-ryuk-skull-and-apple-mens-white-graphic-tee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-ryuk-skull-and-apple-mens-white-graphic-tee-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=classic-death-note-ryuk-skull-and-apple-mens-shirt-white"><img alt="death-note-ryuk-skull-and-apple-mens-white-graphic-tee-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-ryuk-skull-and-apple-mens-white-graphic-tee-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the Death Note Ryuk Skull and Apple Men's White Graphic Tee, the perfect addition to any anime lover's wardrobe. This stylish and high-quality shirt features a bold graphic of the Ryuk, the main antagonist from the famous Death Note series. The vivid print is professionally done, ensuring longevity and excellent print quality. 
 
@@ -110,9 +110,9 @@ Made from 100% preshrunk cotton jersey, this t-shirt comes in a classic white co
 As an officially licensed product, this incredible shirt makes an ideal gift for fellow manga and anime enthusiasts. Perfectly showcasing your love for the Death Note series, this tee will have everyone asking where you got it. Don't miss out on this amazing opportunity to add style to your wardrobe with this Death Note Ryuk Skull and Apple Men's White Graphic Tee. 
 
 
-### [Death Note T-Shirt: Ryuk Design - How to Use A Death Note](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=death-note-t-shirt-ryuk-design-how-to-use-a-death-note)
+### [Death Note T-Shirt: Ryuk Design - How to Use A Death Note](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=death-note-t-shirt-ryuk-design-how-to-use-a-death-note)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=death-note-t-shirt-ryuk-design-how-to-use-a-death-note"><img alt="death-note-mens-t-shirt-ryuk-over-how-to-use-a-death-note-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-mens-t-shirt-ryuk-over-how-to-use-a-death-note-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=death-note-t-shirt-ryuk-design-how-to-use-a-death-note"><img alt="death-note-mens-t-shirt-ryuk-over-how-to-use-a-death-note-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-mens-t-shirt-ryuk-over-how-to-use-a-death-note-1/h=540,fit=pad,background=black"/></a></div>
 
 For those who've been intrigued by the popular anime series, Death Note, this men's t-shirt is a chic addition to their wardrobe. Crafted with attention to detail, the tee is an officially licensed product that boasts high-quality materials. 
 
@@ -121,9 +121,9 @@ The design features a stylish graphic that will surely catch the eye of fellow D
 Available in adult sizes, this t-shirt is perfect for Death Note fans seeking to add an element of the supernatural to their fashion. 
 
 
-### [Death Note Ryuk Box Shirt for Men](https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm\_term=death-note-ryuk-box-shirt-for-men)
+### [Death Note Ryuk Box Shirt for Men](https://serp.ly/@bar/amazon/Death+Note+Shirt?utm\_term=death-note-ryuk-box-shirt-for-men)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt?utm_term=death-note-ryuk-box-shirt-for-men"><img alt="death-note-mens-t-shirt-box-ryuk-with-apple-along-how-to-use-it-skull-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-mens-t-shirt-box-ryuk-with-apple-along-how-to-use-it-skull-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt?utm_term=death-note-ryuk-box-shirt-for-men"><img alt="death-note-mens-t-shirt-box-ryuk-with-apple-along-how-to-use-it-skull-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/death-note-mens-t-shirt-box-ryuk-with-apple-along-how-to-use-it-skull-1/h=540,fit=pad,background=black"/></a></div>
 
 Death Note" fans will love this men's t-shirt by Box Ryuk with the iconic apple and skull design. The high-quality materials ensure a comfortable and durable fit, perfect for both casual wear and fan events. 
 
@@ -139,7 +139,7 @@ Death Note is a popular anime series that has captivated fans worldwide. One of 
 
 Before diving into the world of Death Note shirts, it's essential to consider your style preferences and the type of shirt that you want. Are you a fan of the classic anime art or do you like more modern takes on the design? Finding the perfect shirt for you comes down to your personal preference and style. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-2/h=540,fit=pad,background=black" alt="Death-Note-Shirt-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-2/h=540,fit=pad,background=black" alt="Death-Note-Shirt-2" height="540"></a></div>
 
 
 ### Quality Matters
@@ -151,7 +151,7 @@ When purchasing a Death Note shirt, always check the fabric quality. Look for sh
 
 Another crucial factor when choosing a Death Note shirt is the fit. You'll want a shirt that not only looks great, but also fits comfortably. Check the size chart provided by the seller to ensure your shirt fits well. Make sure to take accurate measurements and choose a size that will accommodate you. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-3/h=540,fit=pad,background=black" alt="Death-Note-Shirt-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-3/h=540,fit=pad,background=black" alt="Death-Note-Shirt-3" height="540"></a></div>
 
 
 ### Check the Designs
@@ -161,7 +161,7 @@ When looking for a Death Note shirt, take a moment to explore the different desi
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-4/h=540,fit=pad,background=black" alt="Death-Note-Shirt-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-4/h=540,fit=pad,background=black" alt="Death-Note-Shirt-4" height="540"></a></div>
 
 
 ### An In-Depth Look at Death Note Shirt - Shopping Guide
@@ -179,7 +179,7 @@ Death Note is a dark fantasy manga and anime series written by Tsugumi Ohba and 
 
 Our comprehensive guide on Death Note Shirt encompasses various designs inspired by the acclaimed anime and manga series, ranging from simple logo prints to intricate graphic designs. These shirts not only provide a trendy flair but also can be perfectly integrated into cosplays at events.
 
-<div><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-5/h=540,fit=pad,background=black" alt="Death-Note-Shirt-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-5/h=540,fit=pad,background=black" alt="Death-Note-Shirt-5" height="540"></a></div>
 
 
 ### Who Should Buy a Death Note Shirt?
@@ -193,7 +193,7 @@ To ensure your newly purchased Death Note Shirt remains in top-notch condition, 
 
 When storing your Death Note Shirt, it's also advisable to use a hanger, fold it smartly, or retain it in a garment bag to prevent creases or damage. Taking proper care, therefore, helps prolong your shirt's quality and vibrancy for a longer period, allowing you to flaunt your love for Death Note. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-6/h=540,fit=pad,background=black" alt="Death-Note-Shirt-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Death+Note+Shirt"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Death-Note-Shirt-6/h=540,fit=pad,background=black" alt="Death-Note-Shirt-6" height="540"></a></div>
 
 
 ### What Brands are Featured in the Death Note Shirt Roundup?

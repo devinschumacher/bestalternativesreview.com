@@ -15,9 +15,9 @@ Welcome, golf enthusiasts! In this roundup article, we're diving into the world 
 ## Reviews
 
 
-### [Graphite Iron Shaft for Superior Performance](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-iron-shaft-for-superior-performance)
+### [Graphite Iron Shaft for Superior Performance](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-iron-shaft-for-superior-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-iron-shaft-for-superior-performance"><img alt="xxio-x-single-iron-2022-right-7-miyazaki-ax-ii-graphite-regular-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/xxio-x-single-iron-2022-right-7-miyazaki-ax-ii-graphite-regular-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-iron-shaft-for-superior-performance"><img alt="xxio-x-single-iron-2022-right-7-miyazaki-ax-ii-graphite-regular-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/xxio-x-single-iron-2022-right-7-miyazaki-ax-ii-graphite-regular-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried the XXIO X Single Iron, and it was a game-changer for my golfing experience. The Miyazaki AX-II Graphite shaft felt incredibly lightweight and responsive, enhancing my swing speed and distance. The club was designed for precision play, allowing me to swing easy and strike the ball pure, making a noticeable difference in my ball speed. 
 
@@ -28,27 +28,27 @@ However, I did notice that the XXIO X Single Iron could benefit from a slightly 
 Overall, the XXIO X Single Iron was an enjoyable and exciting addition to my golfing gear. The lightweight and responsive design, coupled with the exceptional ball speed and control, made it a worthwhile investment for mid to low handicap golfers seeking to improve their game. 
 
 
-### [SteelFiber 70CW Iron Shaft - High-Performance Graphite Shaft for 37.5" 8 Iron](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=steelfiber-70cw-iron-shaft-high-performance-graphite-shaft-for-37-5-8-iron)
+### [SteelFiber 70CW Iron Shaft - High-Performance Graphite Shaft for 37.5" 8 Iron](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=steelfiber-70cw-iron-shaft-high-performance-graphite-shaft-for-37-5-8-iron)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=steelfiber-70cw-iron-shaft-high-performance-graphite-shaft-for-37-5-8-iron"><img alt="at-steelfiber-70cw-iron-shaft-355-r-flex-37-5-8-iron-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/at-steelfiber-70cw-iron-shaft-355-r-flex-37-5-8-iron-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=steelfiber-70cw-iron-shaft-high-performance-graphite-shaft-for-37-5-8-iron"><img alt="at-steelfiber-70cw-iron-shaft-355-r-flex-37-5-8-iron-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/at-steelfiber-70cw-iron-shaft-355-r-flex-37-5-8-iron-1/h=540,fit=pad,background=black"/></a></div>
 
 The SteelFiber 70CW Iron Shaft. 355-R Flex-37.5" 8 Iron is a top-tier option for those who crave distance but also value precision. This Aerotech graphite iron masterpiece promises to outperform competitors in its class. The shaft's sturdy construction yields exceptional control, balancing power and finesse beautifully. 
 
 It's almost a perfect combination for serious golf enthusiasts looking to level up their game. However, one drawback is that the shaft might not be ideal for beginners who lack experience in managing power during swings. 
 
 
-### [Aerotech SteelFiber Graphite Iron Shafts Tour Shop Fresno 6 Set](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-graphite-iron-shafts-tour-shop-fresno-6-set)
+### [Aerotech SteelFiber Graphite Iron Shafts Tour Shop Fresno 6 Set](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-graphite-iron-shafts-tour-shop-fresno-6-set)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-graphite-iron-shafts-tour-shop-fresno-6-set"><img alt="aerotech-steelfiber-i80cw-graphite-iron-shafts-355-taper-tip-5-shaft-set-tour-shop-fresno-6-pw-stiff-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-i80cw-graphite-iron-shafts-355-taper-tip-5-shaft-set-tour-shop-fresno-6-pw-stiff-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-graphite-iron-shafts-tour-shop-fresno-6-set"><img alt="aerotech-steelfiber-i80cw-graphite-iron-shafts-355-taper-tip-5-shaft-set-tour-shop-fresno-6-pw-stiff-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-i80cw-graphite-iron-shafts-355-taper-tip-5-shaft-set-tour-shop-fresno-6-pw-stiff-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of control and consistency with the Aerotech SteelFiber i80cw Graphite Iron Shafts. This 5-shaft set (6 through PW) is perfect for players seeking to regain yardage lost in the past or those in need of a more consistent performance. The SteelFiber i80 features an impressive 59 miles of steel fiber wrapped over its surface, providing unparalleled durability and performance. The shafts themselves are available in both taper tip and parallel tip configurations, catering to a range of needs and play styles. 
 
 With varying lengths of 36.5" to 38.5", you can find the perfect fit to complement your game. Despite their lightweight nature, these shafts maintain impressive accuracy by utilizing constant weight technology across all lengths. Experience the full potential of SteelFiber technology by incorporating the Aerotech i80cw into your arsenal, and unlock your true hitting potential. 
 
 
-### [Graphite Design Tour Ad XC 5 Iron Shaft Bundle](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-xc-5-iron-shaft-bundle)
+### [Graphite Design Tour Ad XC 5 Iron Shaft Bundle](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-xc-5-iron-shaft-bundle)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-xc-5-iron-shaft-bundle"><img alt="graphite-design-tour-ad-xc-5-graphite-shaft-adapter-grip-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-xc-5-graphite-shaft-adapter-grip-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-xc-5-iron-shaft-bundle"><img alt="graphite-design-tour-ad-xc-5-graphite-shaft-adapter-grip-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-xc-5-graphite-shaft-adapter-grip-1/h=540,fit=pad,background=black"/></a></div>
 
 The Graphite Design Tour Ad XC 5 Graphite Shaft is a high-quality, custom-assembled product designed to provide a premium replacement for your current driver. This shaft is built using an adapter and grip of your choice and is compatible with most clubs on the market. The finished shaft arrives ready to use, requiring only a wrench to swap it into your existing club. 
 
@@ -59,9 +59,9 @@ Users of this product have consistently reported positive experiences, with comm
 Overall, the Tour Ad XC 5 Graphite Shaft is a highly regarded and solid choice for golfers looking to replace their club's shaft. 
 
 
-### [Graphite Iron Shaft for High-Performance Golf Clubs](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-iron-shaft-for-high-performance-golf-clubs)
+### [Graphite Iron Shaft for High-Performance Golf Clubs](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-iron-shaft-for-high-performance-golf-clubs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-iron-shaft-for-high-performance-golf-clubs"><img alt="graphite-design-g-tech-iron-shaft-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-g-tech-iron-shaft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-iron-shaft-for-high-performance-golf-clubs"><img alt="graphite-design-g-tech-iron-shaft-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-g-tech-iron-shaft-1/h=540,fit=pad,background=black"/></a></div>
 
 For golfers seeking a premium shaft experience, the Graphite Design G-Tech Iron Shaft delivers in both performance and quality. During a recent game, I got the opportunity to try this shaft and was blown away by its performance. 
 
@@ -72,18 +72,18 @@ While using this shaft, I noticed its compatibility with speed recommendations r
 Overall, the Graphite Design G-Tech Iron Shaft showcases excellent value for its quality and offers a truly enjoyable golfing experience. While the high launch trajectory and tip size are essential considerations, the shaft's performance makes it a worthwhile investment for avid golfers seeking a dependable and powerful option. 
 
 
-### [Grafalloy ProLaunch Platinum X-Stiff Graphite Shaft](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-platinum-x-stiff-graphite-shaft)
+### [Grafalloy ProLaunch Platinum X-Stiff Graphite Shaft](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-platinum-x-stiff-graphite-shaft)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-platinum-x-stiff-graphite-shaft"><img alt="2019-grafalloy-prolaunch-platinum-graphite-wood-shaft-x-stiff-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/2019-grafalloy-prolaunch-platinum-graphite-wood-shaft-x-stiff-flex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-platinum-x-stiff-graphite-shaft"><img alt="2019-grafalloy-prolaunch-platinum-graphite-wood-shaft-x-stiff-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/2019-grafalloy-prolaunch-platinum-graphite-wood-shaft-x-stiff-flex-1/h=540,fit=pad,background=black"/></a></div>
 
 The 2019 Grafalloy ProLaunch Platinum Graphite Wood Shaft boasts an X-Stiff Flex, making it a versatile option for various golfers. Its mid-spin and mid-launch design suit a broad range of players, sitting somewhere between the high launch of the ProLaunch Blue and the low launch of the ProLaunch Red. This X-Stiff Flex shaft comes equipped with a pre-installed adapter of your choice, seamlessly switching between the ProLaunch Platinum and your pro line stock shaft with a simple wrench turn. 
 
 Additionally, it features a Tour Velvet 360 Grip, making it a reliable and dependable choice for golf enthusiasts. 
 
 
-### [Graphite Design Tour Ad TP Wood Shaft - Precision Golf Equipment](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-tp-wood-shaft-precision-golf-equipment)
+### [Graphite Design Tour Ad TP Wood Shaft - Precision Golf Equipment](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-tp-wood-shaft-precision-golf-equipment)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-tp-wood-shaft-precision-golf-equipment"><img alt="graphite-design-tour-ad-tp-wood-shaft-other-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-tp-wood-shaft-other-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-tp-wood-shaft-precision-golf-equipment"><img alt="graphite-design-tour-ad-tp-wood-shaft-other-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-tp-wood-shaft-other-1/h=540,fit=pad,background=black"/></a></div>
 
 The Graphite Design Tour AD TP Wood Shaft is a high-quality graphite shaft designed for precision and control. Utilizing the latest technology, this shaft features a faster taper rate from the lower mid-section to the tip, providing a more responsive feel. 
 
@@ -92,9 +92,9 @@ The Tour AD TP has a medium stiffness from the handle through the mid-section an
 The shaft is available in a range of flexes and lengths to accommodate different preferences and playing styles. Overall, the Graphite Design Tour AD TP Wood Shaft is a well-rounded and performance-driven option for any golfer looking to enhance their game with a high-quality graphite shaft. 
 
 
-### [KBS Max Graphite Golf Iron Shaft](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-golf-iron-shaft)
+### [KBS Max Graphite Golf Iron Shaft](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-golf-iron-shaft)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-golf-iron-shaft"><img alt="kbs-max-graphite-iron-shaft-370-tip-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kbs-max-graphite-iron-shaft-370-tip-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-golf-iron-shaft"><img alt="kbs-max-graphite-iron-shaft-370-tip-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kbs-max-graphite-iron-shaft-370-tip-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently I had the chance to use the KBS Max Graphite Iron Shaft, and let me tell you, it's a game-changer. This high-launch, high-spin shaft is perfect for players who want more trajectory and distance on their shots. It's light and responsive, making it easy to control and maximize performance. 
 
@@ -103,9 +103,9 @@ The tip size of 0.370 inches is a great feature, as it allows for easy trimming 
 In summary, the KBS Max Graphite Iron Shaft is a fantastic choice for golfers looking to improve their game. The only drawback is the limited weight class selection, but overall, it's a worthwhile investment for improved trajectory, spin, and distance. 
 
 
-### [Aldila NXT Gen NV 55/65/75 Graphite Golf Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=aldila-nxt-gen-nv-55-65-75-graphite-golf-shafts)
+### [Aldila NXT Gen NV 55/65/75 Graphite Golf Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=aldila-nxt-gen-nv-55-65-75-graphite-golf-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=aldila-nxt-gen-nv-55-65-75-graphite-golf-shafts"><img alt="aldila-nxt-gen-nv-55-65-75-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aldila-nxt-gen-nv-55-65-75-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=aldila-nxt-gen-nv-55-65-75-graphite-golf-shafts"><img alt="aldila-nxt-gen-nv-55-65-75-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aldila-nxt-gen-nv-55-65-75-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out these Aldila NXT Gen NV graphite golf wood shafts, and I must say, they've been a game-changer in my golf game. When I first received them, I was impressed by their sleek design and overall quality. The constant taper design provides a smooth and stable feel shot after shot, making me feel more comfortable and in control with my driver. 
 
@@ -116,9 +116,9 @@ However, my experience wasn't entirely flawless. In one instance, the club head 
 Despite this one issue, I've been really happy with the performance of these shafts. They've helped me achieve better consistency, longer shots, and a smoother swing. I've even been considering switching all my clubs to these Aldila NXT Gen NV graphite shafts for a more cohesive setup. Overall, I would highly recommend giving these shafts a try if you're looking to upgrade your golf game. 
 
 
-### [Graphite Design Wood Shaft Cobra 2020 Mad 75 S (Stiff) - Tour AD VR](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-wood-shaft-cobra-2020-mad-75-s-stiff-tour-ad-vr)
+### [Graphite Design Wood Shaft Cobra 2020 Mad 75 S (Stiff) - Tour AD VR](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-wood-shaft-cobra-2020-mad-75-s-stiff-tour-ad-vr)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-wood-shaft-cobra-2020-mad-75-s-stiff-tour-ad-vr"><img alt="graphite-design-wood-shaft-2020-mad-75-s-stiff-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/graphite-design-wood-shaft-2020-mad-75-s-stiff-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-wood-shaft-cobra-2020-mad-75-s-stiff-tour-ad-vr"><img alt="graphite-design-wood-shaft-2020-mad-75-s-stiff-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/graphite-design-wood-shaft-2020-mad-75-s-stiff-1/h=540,fit=pad,background=black"/></a></div>
 
 The Graphite Design Wood Shaft 2020 Mad 75 S is a premium offering from the brand, designed for golfers with moderate swing speeds. This shaft boasts unparalleled distance, forgiveness, and launch capabilities, all thanks to its carefully crafted design and construction at the Graphite Design Japan factory headquarters. The shaft comes in dark blue with white and silver accents, and it has a matte clear coat finish that adds to its elegant appearance. 
 
@@ -127,9 +127,9 @@ Some of the Mad 75 S shafts' standout features include its lightweight construct
 Despite its premium price point, the Graphite Design Wood Shaft 2020 Mad 75 S has been well-received by many golfers who appreciate its exceptional features and performance benefits. It is a high-quality shaft that has earned a solid reputation in the golfing community, and it continues to be a popular choice among those seeking to improve their game. Overall, the Mad 75 S is a top-performing, reliable, and stylish choice for golfers looking to enhance their overall experience on the course. 
 
 
-### [UST Mamiya Competition Series Graphite Iron Shafts: A/L Edition](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=ust-mamiya-competition-series-graphite-iron-shafts-a-l-edition)
+### [UST Mamiya Competition Series Graphite Iron Shafts: A/L Edition](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=ust-mamiya-competition-series-graphite-iron-shafts-a-l-edition)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=ust-mamiya-competition-series-graphite-iron-shafts-a-l-edition"><img alt="ust-mamiya-competition-series-graphite-wood-shaft-a-l-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ust-mamiya-competition-series-graphite-wood-shaft-a-l-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=ust-mamiya-competition-series-graphite-iron-shafts-a-l-edition"><img alt="ust-mamiya-competition-series-graphite-wood-shaft-a-l-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/ust-mamiya-competition-series-graphite-wood-shaft-a-l-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try the UST Mamiya Competition Series Graphite Wood Shaft A/L, and let me tell you, I was pleasantly surprised with the results. At first, I was hesitant since the shaft is made of wood, but I was eager to give it a chance. 
 
@@ -140,9 +140,9 @@ However, there was one aspect of the UST Mamiya Competition Series Graphite Wood
 Overall, my experience with the UST Mamiya Competition Series Graphite Wood Shaft A/L was a positive one. It offered me a lighter, more controllable shaft that helped me hit the ball further and with greater accuracy. While it wasn't without its flaws, the benefits outweighed the drawbacks, making it a worthwhile addition to my golf bag. 
 
 
-### [Mitsubishi Rayon Kuro Kage Black Premium Graphite Hybrid Shafts - 2nd Gen .370](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=mitsubishi-rayon-kuro-kage-black-premium-graphite-hybrid-shafts-2nd-gen-370)
+### [Mitsubishi Rayon Kuro Kage Black Premium Graphite Hybrid Shafts - 2nd Gen .370](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=mitsubishi-rayon-kuro-kage-black-premium-graphite-hybrid-shafts-2nd-gen-370)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=mitsubishi-rayon-kuro-kage-black-premium-graphite-hybrid-shafts-2nd-gen-370"><img alt="mitsubishi-rayon-kuro-kage-black-2nd-gen-370-graphite-hybrid-shaft-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mitsubishi-rayon-kuro-kage-black-2nd-gen-370-graphite-hybrid-shaft-each-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=mitsubishi-rayon-kuro-kage-black-premium-graphite-hybrid-shafts-2nd-gen-370"><img alt="mitsubishi-rayon-kuro-kage-black-2nd-gen-370-graphite-hybrid-shaft-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mitsubishi-rayon-kuro-kage-black-2nd-gen-370-graphite-hybrid-shaft-each-1/h=540,fit=pad,background=black"/></a></div>
 
 The Mitsubishi Rayon Kuro Kage Black 2nd Gen Graphite Hybrid Shaft is an incredible addition to any golfer's arsenal. With a versatile profile, this shaft is stable and allows for a seamless transition across various types of golf clubs. Made of titanium nickel (TiNi) wire integrated with carbon fibers, this shaft offers increased strength in the tip section, leading to tighter shot dispersion even for those with higher swing speed. 
 
@@ -155,18 +155,18 @@ Furthermore, the Mitsubishi Rayon Kuro Kage Black 2nd Gen Graphite Hybrid Shaft 
 Users of this hybrid shaft have praised its affordability, performance, and consistency. With a price point of just $35, you're bound to get your money's worth. Notably, the reviews have reported that it is straighter and longer than previous shafts, with a more stable and versatile feel on the green. Overall, the Mitsubishi Rayon Kuro Kage Black 2nd Gen Graphite Hybrid Shaft is a worthwhile investment for any golfer looking for exceptional performance at an unbeatable price. 
 
 
-### [SK Fiber Hypersonic Graphite Ladies/Senior Flex Iron Shaft](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=sk-fiber-hypersonic-graphite-ladies-senior-flex-iron-shaft)
+### [SK Fiber Hypersonic Graphite Ladies/Senior Flex Iron Shaft](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=sk-fiber-hypersonic-graphite-ladies-senior-flex-iron-shaft)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=sk-fiber-hypersonic-graphite-ladies-senior-flex-iron-shaft"><img alt="sk-fiber-hypersonic-graphite-iron-golf-shaft-ladies-senior-flex-size-iron-ladies-senior-flex-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sk-fiber-hypersonic-graphite-iron-golf-shaft-ladies-senior-flex-size-iron-ladies-senior-flex-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=sk-fiber-hypersonic-graphite-ladies-senior-flex-iron-shaft"><img alt="sk-fiber-hypersonic-graphite-iron-golf-shaft-ladies-senior-flex-size-iron-ladies-senior-flex-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sk-fiber-hypersonic-graphite-iron-golf-shaft-ladies-senior-flex-size-iron-ladies-senior-flex-black-1/h=540,fit=pad,background=black"/></a></div>
 
 Ever thought of improving your golf game with just a shaft swap? Let me tell you, the SK Fiber Hypersonic Graphite Iron Golf Shaft made a noticeable difference in my game. With its ultra-lightweight design, I could really feel the difference in my swing speed and accuracy. 
 
 The versatile mid-high launching feature allowed me to work with it well, whether I was playing a casual round with friends or competing in a tournament. One downside I noticed was that it might not be as forgiving as other shafts, so it took some getting used to. Overall, the SK Fiber Hypersonic Graphite Iron Golf Shaft is a game-changer for those seeking to amp up their golf skills. 
 
 
-### [Graphite Design Tour AD F-Series Fairway Graphite Shaft - High Launch, Speed Recommended 71-105 mph](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-f-series-fairway-graphite-shaft-high-launch-speed-recommended-71-105-mph)
+### [Graphite Design Tour AD F-Series Fairway Graphite Shaft - High Launch, Speed Recommended 71-105 mph](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-f-series-fairway-graphite-shaft-high-launch-speed-recommended-71-105-mph)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-f-series-fairway-graphite-shaft-high-launch-speed-recommended-71-105-mph"><img alt="graphite-design-tour-ad-f-series-fairway-graphite-shaft-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-f-series-fairway-graphite-shaft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-f-series-fairway-graphite-shaft-high-launch-speed-recommended-71-105-mph"><img alt="graphite-design-tour-ad-f-series-fairway-graphite-shaft-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-f-series-fairway-graphite-shaft-1/h=540,fit=pad,background=black"/></a></div>
 
 As a golf enthusiast, I recently had the chance to try out the Tour AD F-Series Fairway Graphite Shaft from Graphite Design. This softer tip and stiffer butt profile shaft features a low kick point for higher launch conditions into the air, making it an excellent choice for those looking to boost their fairway game. 
 
@@ -177,18 +177,18 @@ Although this shaft may be slightly more active in the tip section compared to s
 Overall, the Tour AD F-Series Fairway Graphite Shaft from Graphite Design delivered a smooth, reliable performance on the course. Its unique blend of features made it a great choice for those looking to enhance their fairway game with a high-quality, customized shaft. 
 
 
-### [EvenFlow Blue Graphite Golf Wood Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=evenflow-blue-graphite-golf-wood-shafts)
+### [EvenFlow Blue Graphite Golf Wood Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=evenflow-blue-graphite-golf-wood-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=evenflow-blue-graphite-golf-wood-shafts"><img alt="project-x-evenflow-blue-55-65-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/project-x-evenflow-blue-55-65-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=evenflow-blue-graphite-golf-wood-shafts"><img alt="project-x-evenflow-blue-55-65-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/project-x-evenflow-blue-55-65-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
 
 The Project x EvenFlow Blue 55/65 Graphite Golf Wood Shaft is a game-changer for avid golfers. The revolutionary even bend profile ensures efficient energy transfer from shaft to clubhead, resulting in a powerful, smooth swing and impressive distance. 
 
 Its mid-spin and mid-launch design caters to a variety of players, making it an excellent complement to the Project X HZRDUS line. With a 4.7-star rating from 42 reviews, this product is a must-try for anyone seeking to upgrade their golf game. 
 
 
-### [Graphite Design Tour Ad Utility Iron Shaft - Orange](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-utility-iron-shaft-orange)
+### [Graphite Design Tour Ad Utility Iron Shaft - Orange](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=graphite-design-tour-ad-utility-iron-shaft-orange)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-utility-iron-shaft-orange"><img alt="graphite-design-tour-ad-utility-driving-iron-shaft-orange-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-utility-driving-iron-shaft-orange-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=graphite-design-tour-ad-utility-iron-shaft-orange"><img alt="graphite-design-tour-ad-utility-driving-iron-shaft-orange-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/graphite-design-tour-ad-utility-driving-iron-shaft-orange-1/h=540,fit=pad,background=black"/></a></div>
 
 Featuring an eye-catching orange shaft design, the Graphite Design Tour AD Utility/Driving Iron Shaft adds a touch of personality to your golf gear. Crafted in Japan, these shafts provide the same technological prowess as the popular Tour AD Wood series. Available in 85g and 95g weights with Stiff and X-Stiff flex options, these Tour AD Utility Driving Iron shafts ensure a consistent, smooth swing. 
 
@@ -197,27 +197,27 @@ The single shaft length of #3 39.0 caters to a variety of golfers' needs. Note t
 Graphite Design offers impressive service with quick turnarounds and easy online ordering, making this a highly recommended product for golf enthusiasts. 
 
 
-### [KBS Max Graphite Shafts: Premium 4-PW Set for Iron Golfers (Customize Flex)](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-shafts-premium-4-pw-set-for-iron-golfers-customize-flex)
+### [KBS Max Graphite Shafts: Premium 4-PW Set for Iron Golfers (Customize Flex)](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-shafts-premium-4-pw-set-for-iron-golfers-customize-flex)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-shafts-premium-4-pw-set-for-iron-golfers-customize-flex"><img alt="kbs-max-graphite-iron-golf-shafts-4-pw-set-of-7-shafts-choose-flex-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kbs-max-graphite-iron-golf-shafts-4-pw-set-of-7-shafts-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-shafts-premium-4-pw-set-for-iron-golfers-customize-flex"><img alt="kbs-max-graphite-iron-golf-shafts-4-pw-set-of-7-shafts-choose-flex-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kbs-max-graphite-iron-golf-shafts-4-pw-set-of-7-shafts-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
 
 The KBS Max Graphite Iron Shafts offer golfers a blend of lightweight performance and reliable accuracy. The set of 7 shafts (choose your desired flex) boasts a raw length of 41 inches, ensuring a consistent and balanced performance for all players. The. 370 parallel tip size provides optimal trajectory, spin, and distance for each golfer. 
 
 Additionally, this line takes inspiration from the KBS Max Steel Shaft, making it suitable for players who prioritize swing speed over traditional flex ratings. Give your game a boost with these top-notch graphite iron shafts, maximizing your performance with every shot. 
 
 
-### [Grafalloy ProLaunch Platinum Graphite Iron Shafts - Golf Performance Enhancement](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-platinum-graphite-iron-shafts-golf-performance-enhancement)
+### [Grafalloy ProLaunch Platinum Graphite Iron Shafts - Golf Performance Enhancement](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-platinum-graphite-iron-shafts-golf-performance-enhancement)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-platinum-graphite-iron-shafts-golf-performance-enhancement"><img alt="grafalloy-prolaunch-platinum-graphite-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/grafalloy-prolaunch-platinum-graphite-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-platinum-graphite-iron-shafts-golf-performance-enhancement"><img alt="grafalloy-prolaunch-platinum-graphite-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/grafalloy-prolaunch-platinum-graphite-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
 
 The Grafalloy ProLaunch Platinum graphite wood shafts offer an impressive mid-spin and mid-launch design, perfect for golfers of all skill levels. With Smart-Ply Technology, these shafts boast improved integrity and energy transfer, leading to exceptional distance and shot dispersion. The initial high launch angle rapidly flattens, resulting in a pleasing penetrating ball flight. 
 
 These durable and reliable shafts are highly regarded by users, with many stating that they meet or exceed their expectations. 
 
 
-### [Grafalloy ProLaunch 45/65 Graphite Iron Shafts: Enhance Your Game](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-45-65-graphite-iron-shafts-enhance-your-game)
+### [Grafalloy ProLaunch 45/65 Graphite Iron Shafts: Enhance Your Game](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=grafalloy-prolaunch-45-65-graphite-iron-shafts-enhance-your-game)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-45-65-graphite-iron-shafts-enhance-your-game"><img alt="grafalloy-prolaunch-45-65-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grafalloy-prolaunch-45-65-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=grafalloy-prolaunch-45-65-graphite-iron-shafts-enhance-your-game"><img alt="grafalloy-prolaunch-45-65-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grafalloy-prolaunch-45-65-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
 
 If you're a golfer seeking to enhance your game, the Grafalloy ProLaunch 45/65 Graphite Golf Wood Shafts could be the perfect solution. Engineered with precision, this top-performing shaft is meticulously designed and tested using a launch monitor to guarantee unparalleled stability, control, and distance. The innovative dynamic torsional stability ensures an incredibly lightweight, super ultralite weight, which in turn boosts your clubhead speed. This feature is especially beneficial for those who favor slower, controlled swings, as it minimizes hooks or slices and greatly heightens the launch angle for remarkable distance.
 
@@ -226,9 +226,9 @@ Numerous users attest to the exceptional performance of this golf shaft, claimin
 In summary, the Grafalloy ProLaunch 45/65 Graphite Golf Wood Shafts deliver on their promise of improving your game through impressive stability, control, and distance. Although occasional concerns have been voiced by some users, the exceptional performance of these shafts may be the game-changer you've been searching for, helping you elevate your golf game to new heights.
 
 
-### [Fujikura New Pro Series 75i Graphite Iron Shafts - Premium Performance for Golfers](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=fujikura-new-pro-series-75i-graphite-iron-shafts-premium-performance-for-golfers)
+### [Fujikura New Pro Series 75i Graphite Iron Shafts - Premium Performance for Golfers](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=fujikura-new-pro-series-75i-graphite-iron-shafts-premium-performance-for-golfers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=fujikura-new-pro-series-75i-graphite-iron-shafts-premium-performance-for-golfers"><img alt="fujikura-new-pro-series-75i-graphite-iron-shafts-3-pw-set-of-8-shafts-choose-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fujikura-new-pro-series-75i-graphite-iron-shafts-3-pw-set-of-8-shafts-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=fujikura-new-pro-series-75i-graphite-iron-shafts-premium-performance-for-golfers"><img alt="fujikura-new-pro-series-75i-graphite-iron-shafts-3-pw-set-of-8-shafts-choose-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fujikura-new-pro-series-75i-graphite-iron-shafts-3-pw-set-of-8-shafts-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience pure golfing bliss with the Fujikura New Pro Series 75i Graphite Iron Shafts. These premium shafts boast high-density composite core technology, providing a smooth swing and steel-like lengths, setting them apart from traditional graphite shafts. Perfectly suited for golfers seeking balance and control, these shafts are available in 40.5-inch lengths and debut mid-season.
 
@@ -237,9 +237,9 @@ The high-density composite core material is more compact than standard modulus m
 For a more personalized experience, both 3-PW shaft sets come with the option to select your desired flex, catering to each player's preferences.
 
 
-### [Aerotech SteelFiber i80 Graphite Stiff Flex Iron Shafts (4-PW)](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-i80-graphite-stiff-flex-iron-shafts-4-pw)
+### [Aerotech SteelFiber i80 Graphite Stiff Flex Iron Shafts (4-PW)](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-i80-graphite-stiff-flex-iron-shafts-4-pw)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-i80-graphite-stiff-flex-iron-shafts-4-pw"><img alt="aerotech-steelfiber-i80-graphite-iron-shafts-stiff-flex-4-pw-355-7-pack-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-i80-graphite-iron-shafts-stiff-flex-4-pw-355-7-pack-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-i80-graphite-stiff-flex-iron-shafts-4-pw"><img alt="aerotech-steelfiber-i80-graphite-iron-shafts-stiff-flex-4-pw-355-7-pack-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-i80-graphite-iron-shafts-stiff-flex-4-pw-355-7-pack-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Aerotech SteelFiber i80 Graphite Iron Shafts, and I have to say, they exceeded my expectations. The stiff flex was perfect for my swing speed, and the graphite material provided a lightweight yet sturdy feel. 
 
@@ -250,9 +250,9 @@ However, while I loved the feel and performance of these shafts, I did notice th
 Overall, the Aerotech SteelFiber i80 Graphite Iron Shafts have become a go-to choice for me, and I'd highly recommend them to any golfer looking for an improved performance from their irons and wedges. 
 
 
-### [Fujikura New Pro Series Graphite Iron Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=fujikura-new-pro-series-graphite-iron-shafts)
+### [Fujikura New Pro Series Graphite Iron Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=fujikura-new-pro-series-graphite-iron-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=fujikura-new-pro-series-graphite-iron-shafts"><img alt="fujikura-new-pro-series-iron-95i-graphite-shaft-choose-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fujikura-new-pro-series-iron-95i-graphite-shaft-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=fujikura-new-pro-series-graphite-iron-shafts"><img alt="fujikura-new-pro-series-iron-95i-graphite-shaft-choose-flex-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/fujikura-new-pro-series-iron-95i-graphite-shaft-choose-flex-1/h=540,fit=pad,background=black"/></a></div>
 
 Last week, I decided to upgrade my old irons to the Fujikura New Pro Series Iron 95I Graphite Shaft and let me tell you, the difference was immense. My initial impression was that it was a bit heavy for my usual graphite shafts, but once I stepped onto the golf course, I realized it wasn't a drawback at all. This graphite iron shaft felt like I had a steel shaft in my grip, providing that extra bit of weight and control that really elevated my game. I found the balance it provided was just the right amount, letting me achieve more consistent swings and increasing my accuracy on the greens. 
 
@@ -263,27 +263,27 @@ However, I also noticed a bit of stiffness in the shaft, which might be a turn o
 Overall, I'm thoroughly impressed with the Fujikura New Pro Series Iron 95I Graphite Shaft. It's definitely a game changer, but it does come with its own unique feel that may take some getting used to. 
 
 
-### [Mitsubishi Tensei CK Blue Graphite Iron Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=mitsubishi-tensei-ck-blue-graphite-iron-shafts)
+### [Mitsubishi Tensei CK Blue Graphite Iron Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=mitsubishi-tensei-ck-blue-graphite-iron-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=mitsubishi-tensei-ck-blue-graphite-iron-shafts"><img alt="mitsubishi-tensei-ck-blue-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mitsubishi-tensei-ck-blue-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=mitsubishi-tensei-ck-blue-graphite-iron-shafts"><img alt="mitsubishi-tensei-ck-blue-graphite-golf-wood-shafts-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/mitsubishi-tensei-ck-blue-graphite-golf-wood-shafts-1/h=540,fit=pad,background=black"/></a></div>
 
 As a golf enthusiast, I had the chance to experience the Mitsubishi Tensei CK Blue Graphite Golf Wood Shafts, and I must say, the carbon fiber and DuPont Kevlar material in the butt section provides excellent strength and stability. It's like having a superhero at your side, while the low resin content enhances the feel and feedback throughout the swing. The ultra-lightweight construction, combined with a mid/mid launch and spin, makes it an ideal companion for my 80-106 mph speed recommendation. 
 
 Even though the cost may be a bit on the higher side, the shaft's performance and superior craftsmanship are undeniable, making it worth every penny. 
 
 
-### [Aerotech SteelFiber FC-90 Graphite Iron Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-fc-90-graphite-iron-shafts)
+### [Aerotech SteelFiber FC-90 Graphite Iron Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=aerotech-steelfiber-fc-90-graphite-iron-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-fc-90-graphite-iron-shafts"><img alt="aerotech-steelfiber-fc-90-graphite-iron-shafts-5-pw-r-flex-90g-355-tt-cw-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-fc-90-graphite-iron-shafts-5-pw-r-flex-90g-355-tt-cw-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=aerotech-steelfiber-fc-90-graphite-iron-shafts"><img alt="aerotech-steelfiber-fc-90-graphite-iron-shafts-5-pw-r-flex-90g-355-tt-cw-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/aerotech-steelfiber-fc-90-graphite-iron-shafts-5-pw-r-flex-90g-355-tt-cw-1/h=540,fit=pad,background=black"/></a></div>
 
 The Aerotech SteelFiber Fc-90 graphite iron shafts have been meticulously designed to address the varying demands of golfers across the board. This particular set showcases a combination of mid and long iron shafts, equipped with adjustable tip stiffness for enhanced trajectory and heightened precision. The scoring irons retain the classic SteelFiber launch mechanism, ideal for tackling those decisive shots.
 
  Manufactured using cutting-edge composite technology, these shafts deliver unparalleled levels of performance and durability, complemented by ease of installation.
 
 
-### [KBS PGI Players Graphite Iron Shafts for Stiff Flex Golfers](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=kbs-pgi-players-graphite-iron-shafts-for-stiff-flex-golfers)
+### [KBS PGI Players Graphite Iron Shafts for Stiff Flex Golfers](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=kbs-pgi-players-graphite-iron-shafts-for-stiff-flex-golfers)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=kbs-pgi-players-graphite-iron-shafts-for-stiff-flex-golfers"><img alt="kbs-pgi-players-graphite-iron-golf-shafts-370-parallel-tip-4-pw-set-of-7-shafts-choose-flex-90g-stif-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kbs-pgi-players-graphite-iron-golf-shafts-370-parallel-tip-4-pw-set-of-7-shafts-choose-flex-90g-stif-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=kbs-pgi-players-graphite-iron-shafts-for-stiff-flex-golfers"><img alt="kbs-pgi-players-graphite-iron-golf-shafts-370-parallel-tip-4-pw-set-of-7-shafts-choose-flex-90g-stif-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kbs-pgi-players-graphite-iron-golf-shafts-370-parallel-tip-4-pw-set-of-7-shafts-choose-flex-90g-stif-1/h=540,fit=pad,background=black"/></a></div>
 
 Introducing the KBS PGI Players Graphite Iron Golf Shafts - a marvelous amalgamation of steel-like playability, shot control, and unparalleled performance encapsulated in a graphite shaft. These exceptional shafts are meticulously crafted to provide golfers with a superior feel, derived from an optimized combination of weight and stiffness. As a new chapter in the KBS Graphite family, the KBS PGI Tour Graphite Iron boasts a design profile that comfortably caters to a broader spectrum of players. 
 
@@ -292,9 +292,9 @@ One of the standout features of the KBS PGI is its capacity to deliver distance,
 For discerning golfers seeking heightened performance in their clubs, the KBS PGI Players Graphite Iron Golf Shafts are an optimal selection. These shafts strike the ideal balance between distance, control, and feel, without compromising on responsiveness. With the KBS PGI, golfers can relish the best of both worlds - the lightweight control of a graphite shaft, combined with the performance and feel of steel. 
 
 
-### [KBS Max Graphite Golf Shaft for a Smooth Swing](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-golf-shaft-for-a-smooth-swing)
+### [KBS Max Graphite Golf Shaft for a Smooth Swing](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=kbs-max-graphite-golf-shaft-for-a-smooth-swing)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-golf-shaft-for-a-smooth-swing"><img alt="kbs-max-graphite-iron-75-regular-flex-golf-shaft-370-parallel-tip-graphite-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kbs-max-graphite-iron-75-regular-flex-golf-shaft-370-parallel-tip-graphite-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=kbs-max-graphite-golf-shaft-for-a-smooth-swing"><img alt="kbs-max-graphite-iron-75-regular-flex-golf-shaft-370-parallel-tip-graphite-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kbs-max-graphite-iron-75-regular-flex-golf-shaft-370-parallel-tip-graphite-1/h=540,fit=pad,background=black"/></a></div>
 
 Prepare to revolutionize your golf game with the KBS MAX Graphite Iron, engineered to optimize trajectory, spin, and distance for those who seek unparalleled performance. Crafted with an exquisite graphite composition, this lightweight shaft allows a variety of golfers to benefit from increased stability and balance, making it the perfect choice for enhancing your swing.
 
@@ -303,9 +303,9 @@ Akin to the KBS MAX Steel Shaft in its E.I. curve, this graphite shaft is specif
 Boasting a raw length of 41 inches, this shaft also features a 370 parallel tip and a 69-77 mph swing speed range associated with a 6-iron. These superior specifications offer exceptional control and superior distance, resulting in increased enjoyment with each precise shot. The shaft's sturdy graphite construction also provides a velvety smooth and polished surface, enhancing not only the feel but the overall experience during gameplay. 
 
 
-### [UST Mamiya Graphite Iron Shafts for Improved Performance](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=ust-mamiya-graphite-iron-shafts-for-improved-performance)
+### [UST Mamiya Graphite Iron Shafts for Improved Performance](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=ust-mamiya-graphite-iron-shafts-for-improved-performance)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=ust-mamiya-graphite-iron-shafts-for-improved-performance"><img alt="ust-mamiya-recoil-460-esx-f3-graphite-iron-shafts-r-flex-64g-370-tip-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ust-mamiya-recoil-460-esx-f3-graphite-iron-shafts-r-flex-64g-370-tip-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=ust-mamiya-graphite-iron-shafts-for-improved-performance"><img alt="ust-mamiya-recoil-460-esx-f3-graphite-iron-shafts-r-flex-64g-370-tip-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ust-mamiya-recoil-460-esx-f3-graphite-iron-shafts-r-flex-64g-370-tip-1/h=540,fit=pad,background=black"/></a></div>
 
 Recently, I had the opportunity to try out the UST Mamiya Recoil ESX F3 Graphite Iron Shafts. These shafts were designed to provide maximum distance and control for all types of players, and I have to say, they definitely didn't disappoint. 
 
@@ -318,9 +318,9 @@ I particularly enjoyed the stiffer mid and butt sections of the shaft, which gav
 Overall, I would highly recommend the UST Mamiya Recoil ESX F3 Graphite Iron Shafts to any golfer looking for improved distance and control. They definitely lived up to the hype and exceeded my expectations. 
 
 
-### [Performance Graphite Iron Shaft for Utility Clubs](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=performance-graphite-iron-shaft-for-utility-clubs)
+### [Performance Graphite Iron Shaft for Utility Clubs](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=performance-graphite-iron-shaft-for-utility-clubs)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=performance-graphite-iron-shaft-for-utility-clubs"><img alt="graphite-design-tour-ad-95-utility-driving-iron-shaft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/graphite-design-tour-ad-95-utility-driving-iron-shaft-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=performance-graphite-iron-shaft-for-utility-clubs"><img alt="graphite-design-tour-ad-95-utility-driving-iron-shaft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/graphite-design-tour-ad-95-utility-driving-iron-shaft-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently tried out the Graphite Design Tour Ad-95 Utility/Driving Iron Shaft and let me tell you, it's a game-changer for any enthusiast. The shaft comes from Japan, offering top-notch quality and performance. One of the standout features is its launch trajectory range, which falls comfortably in the mid-spin. Its firm mid-section is the perfect balance for a medium tip, delivering a speed recommendation of 86-105+ mph. 
 
@@ -331,9 +331,9 @@ While testing this shaft, I experienced excellent customer service from the comp
 In conclusion, the Graphite Design Tour Ad-95 Utility/Driving Iron Shaft is a top-notch performance iron shaft that's convenient for golfers of all skill levels. It offers the perfect balance of strength and stability, with a variety of customization options to suit different playstyles. The excellent customer service and satisfaction guarantee make this a must-have for any enthusiast looking to improve their game. 
 
 
-### [Project x Project x HZRDUS Smoke Green PVD 70 Graphite Iron Shafts](https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm\_term=project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-iron-shafts)
+### [Project x Project x HZRDUS Smoke Green PVD 70 Graphite Iron Shafts](https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm\_term=project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-iron-shafts)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Graphite+Iron+Shafts?utm_term=project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-iron-shafts"><img alt="project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-mens-right-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-mens-right-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Graphite+Iron+Shafts?utm_term=project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-iron-shafts"><img alt="project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-mens-right-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/project-x-project-x-hzrdus-smoke-green-pvd-70-graphite-mens-right-1/h=540,fit=pad,background=black"/></a></div>
 
 As an avid golfer, I recently had the chance to test out a HZRDUS Smoke Green PVD 70 Graphite Men's/Right shaft from Project X. This shaft definitely lived up to its reputation, offering a low trajectory and spin that I found to be quite beneficial on the course. Its impressive stability was evident, as it kept up with even my fastest swings without any hiccups. 
 

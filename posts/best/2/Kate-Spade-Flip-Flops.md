@@ -15,27 +15,27 @@ Slightly tanned skin and a comfortable pair of flip flops are summer's best comp
 ## Reviews
 
 
-### [Kate Spade Knott Green Flip Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-knott-green-flip-flops)
+### [Kate Spade Knott Green Flip Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-knott-green-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-knott-green-flip-flops"><img alt="kate-spade-new-york-knott-flip-flop-in-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-knott-flip-flop-in-green-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-knott-green-flip-flops"><img alt="kate-spade-new-york-knott-flip-flop-in-green-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-knott-flip-flop-in-green-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the elegance of the Kate Spade New York Knott Flip Flop in Green, featuring a stylish knot that adds a unique textural element to this leather sandal. With its sleek design, this minimalist flip-flop is perfect for those who appreciate simplicity and sophistication. 
 
 The shoe boasts a premium leather upper, lining, and sole, making it a comfortable and durable choice for all your summertime adventures. The embossed logo adds a touch of brand recognition, while the imported quality ensures that every step you take in these flip-flops is a step towards luxury. 
 
 
-### [Kate Spade New York Blazer Blue Flyaway Rubber Flip Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-blazer-blue-flyaway-rubber-flip-flops)
+### [Kate Spade New York Blazer Blue Flyaway Rubber Flip Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-blazer-blue-flyaway-rubber-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-blazer-blue-flyaway-rubber-flip-flops"><img alt="kate-spade-new-york-womens-flyaway-rubber-flip-flops-blazer-blue-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-flyaway-rubber-flip-flops-blazer-blue-size-5-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-blazer-blue-flyaway-rubber-flip-flops"><img alt="kate-spade-new-york-womens-flyaway-rubber-flip-flops-blazer-blue-size-5-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-flyaway-rubber-flip-flops-blazer-blue-size-5-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the perfect blend of style and comfort with the Kate Spade New York Women's Flyaway rubber flip flops. These stunning flips come in a vibrant Blazer Blue color and feature a printed allover design that adds a pop to any outfit. The man-made upper and lining ensure a comfortable fit, while the cushioned foam footbed provides added comfort. The side-on style and round toe with toe post closure provide a snug and secure fit. 
 
 These flip flops feature an elevated platform flat for a slight height boost, while the man-made outsole ensures durability and traction. Weighing only 3.8 oz, these lightweight shoes are easy to slip on and off. Available in size 5, these stunning flip flops are a must-have for any fashionable woman. Please be aware that measurements may vary by size. 
 
 
-### [Kate Spade New York Jaylee Slide-On Flip Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-jaylee-slide-on-flip-flops)
+### [Kate Spade New York Jaylee Slide-On Flip Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-jaylee-slide-on-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-jaylee-slide-on-flip-flops"><img alt="kate-spade-new-york-jaylee-flip-flop-in-black-french-cream-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-jaylee-flip-flop-in-black-french-cream-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-jaylee-slide-on-flip-flops"><img alt="kate-spade-new-york-jaylee-flip-flop-in-black-french-cream-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-jaylee-flip-flop-in-black-french-cream-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade New York Jaylee Flip Flops in Black/French Cream are a delightful blend of color and comfort, perfect for those warm days. The 3D flowers and lady bug ornament give these flip flops a touch of elegance, while the slide-on construction and unlined design make them easy to slip on and off, and comfortable to wear. The rubber upper and outsole provide durability, and the rubber sole ensures a firm grip. 
 
@@ -44,9 +44,9 @@ However, some users have experienced issues with sizing and comfort. The shoes t
 Despite these drawbacks, the Kate Spade New York Jaylee Flip Flops in Black/French Cream have received praise for their cute design and comfortable fit for many. The perfect blend of style and comfort, these flip flops will surely brighten up your summer days. 
 
 
-### [Kate Spade Pink Cloud Slides for Women](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-pink-cloud-slides-for-women)
+### [Kate Spade Pink Cloud Slides for Women](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-pink-cloud-slides-for-women)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-pink-cloud-slides-for-women"><img alt="kate-spade-new-york-womens-spree-slides-pink-cloud-size-5-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-spree-slides-pink-cloud-size-5-sandals-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-pink-cloud-slides-for-women"><img alt="kate-spade-new-york-womens-spree-slides-pink-cloud-size-5-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-spree-slides-pink-cloud-size-5-sandals-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the ultimate fusion of style and comfort with the Kate Spade New York Women's Spree Slides. Available in a captivating shade of Pink Cloud, these slides offer more than just a trendy design. Crafted with care and attention to detail, these slip-on sandals feature a nylon upper adorned with the iconic Kate Spade brand label for added flair. The interior is lined with silk and cotton for a cozy and breathable feel against your skin. The contoured rubber footbed ensures all-day comfort, while the easy slip-on style allows for swift on and off accessibility. 
 
@@ -55,18 +55,18 @@ Despite being a slider, the open toe design gives off the illusion of a traditio
 While this Kate Spade New York Women's Spree Slides model receives high praise for its comfort and design, it is essential to consider both the pros and cons to make an informed decision. Some customers have mentioned that the shoes fit snugly on their feet, but others have experienced a looser fit that may be worth trying on in person. Furthermore, a few users have highlighted issues with the durability and quality. Overall, these Pink Cloud slides present a contemporary stylish approach to minimalist shoes, perfect for those seeking comfort and fashion. 
 
 
-### [Kate Spade Fiji Black & White Flip-Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-fiji-black-white-flip-flops)
+### [Kate Spade Fiji Black & White Flip-Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-fiji-black-white-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-fiji-black-white-flip-flops"><img alt="kate-spade-new-york-womens-fiji-flip-flop-sandals-black-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-fiji-flip-flop-sandals-black-white-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-fiji-black-white-flip-flops"><img alt="kate-spade-new-york-womens-fiji-flip-flop-sandals-black-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-fiji-flip-flop-sandals-black-white-1/h=540,fit=pad,background=black"/></a></div>
 
 Dive into summer with the Kate Spade New York Women's Fiji Flip-Flop Sandals in a stunning black and white design. These flip flops boast rubber straps, gold-tone spade hardware, and a printed footbed, perfect for effortless style. With an open toe construction and a synthetic sole, they're comfortable for all-day wear. 
 
 Just remember, measurements may vary by size, so it's a good idea to check the specifics for your foot. Users give these sandals an impressive 4.1-star rating, with 49 reviews to back it up. 
 
 
-### [Kate Spade New York Leather Patent Bow Flip-Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-leather-patent-bow-flip-flops)
+### [Kate Spade New York Leather Patent Bow Flip-Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-leather-patent-bow-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-leather-patent-bow-flip-flops"><img alt="kate-spade-new-york-womens-petit-leather-patent-flip-flops-white-8-medium-bm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-petit-leather-patent-flip-flops-white-8-medium-bm-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-leather-patent-bow-flip-flops"><img alt="kate-spade-new-york-womens-petit-leather-patent-flip-flops-white-8-medium-bm-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-petit-leather-patent-flip-flops-white-8-medium-bm-1/h=540,fit=pad,background=black"/></a></div>
 
 I've been using the Petit flip-flops from Kate Spade New York lately, and I must say, they've become my go-to flip-flops for any casual occasion. The slender straps and elegant bow are a great update from classic flip-flops, giving them a chic and sophisticated touch. 
 
@@ -75,27 +75,27 @@ Made of recycled leather and featuring a unique bow detail, these flip-flops are
 In terms of style, these flip-flops are perfect for a relaxed and polished look, and they manage to maintain their comfort even after long hours of wear. Overall, I've enjoyed using these flips-flops from Kate Spade New York, and they've definitely earned their place as a staple in my summer wardrobe. 
 
 
-### [Stylish Tassel-Detailed Brown Leather Slides by Kate Spade](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=stylish-tassel-detailed-brown-leather-slides-by-kate-spade)
+### [Stylish Tassel-Detailed Brown Leather Slides by Kate Spade](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=stylish-tassel-detailed-brown-leather-slides-by-kate-spade)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=stylish-tassel-detailed-brown-leather-slides-by-kate-spade"><img alt="kate-spade-new-york-tassel-detail-leather-slides-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-tassel-detail-leather-slides-brown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=stylish-tassel-detailed-brown-leather-slides-by-kate-spade"><img alt="kate-spade-new-york-tassel-detail-leather-slides-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-tassel-detail-leather-slides-brown-1/h=540,fit=pad,background=black"/></a></div>
 
 Slide into a world of class and comfort with the Kate Spade New York Tassel-Detail Leather Slides in a warm, earthy brown. Crafted with calf leather, these slides boast a tassel detail that adds a playful touch to any outfit. The slip-on style makes them easy to wear, while the branded insole ensures you're walking confidently in them. 
 
 The flat sole and round toe add a touch of sophistication, making them a must-have for any fashion-savvy individual. Despite their premium quality, these slides remain lightweight, making them ideal for everyday wear. With Kate Spade's signature style stamped right into them, these slides are a versatile addition to any wardrobe. 
 
 
-### [Kate Spade New York Women's Ibiza Pom Pom Floral Sandals](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-womens-ibiza-pom-pom-floral-sandals)
+### [Kate Spade New York Women's Ibiza Pom Pom Floral Sandals](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-womens-ibiza-pom-pom-floral-sandals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-womens-ibiza-pom-pom-floral-sandals"><img alt="kate-spade-new-york-womens-ibiza-pom-pom-floral-slides-black-white-size-5-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-ibiza-pom-pom-floral-slides-black-white-size-5-sandals-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-womens-ibiza-pom-pom-floral-sandals"><img alt="kate-spade-new-york-womens-ibiza-pom-pom-floral-slides-black-white-size-5-sandals-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-ibiza-pom-pom-floral-slides-black-white-size-5-sandals-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade New York Ibiza Pom Pom Floral Sandals, available in black and white, are a stylish update to your basic looks. Featuring 3D pom pom floral details and a comfortable slip-on style, these sandals showcase an allover patterned canvas upper and leather lining. The padded leather insole and block heel provide extra comfort, while the patterned leather outsole provides durability. 
 
 With a 1 3/4 inch heel height and a 2 inch platform height, these sandals are perfect for adding a feminine touch to any outfit. Note that measurements may vary by size, and the product features a padded leather insole for added comfort. 
 
 
-### [Kate Spade Petit Pale Gold Flip Flops Size 5M](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-petit-pale-gold-flip-flops-size-5m)
+### [Kate Spade Petit Pale Gold Flip Flops Size 5M](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-petit-pale-gold-flip-flops-size-5m)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-petit-pale-gold-flip-flops-size-5m"><img alt="kate-spade-new-york-petit-flip-flop-sandals-pale-gold-size-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-petit-flip-flop-sandals-pale-gold-size-5m-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-petit-pale-gold-flip-flops-size-5m"><img alt="kate-spade-new-york-petit-flip-flop-sandals-pale-gold-size-5m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-petit-flip-flop-sandals-pale-gold-size-5m-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade New York flip flops have been a staple in my summer wardrobe for years now, and I must say, these Petit ones have added some extra elegance to my footwear collection. 
 
@@ -106,25 +106,25 @@ One of the standout features is the interchangeable bow, which allows for a cust
 Overall, the Kate Spade flip flops are a stylish and practical choice for summer days. Their elegant design and customizable bow make them a standout in any crowd, but just be aware that they may not be the most comfortable option for all-day wear. 
 
 
-### [Stylish Kate Spade Saltie Shore Sandals](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=stylish-kate-spade-saltie-shore-sandals)
+### [Stylish Kate Spade Saltie Shore Sandals](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=stylish-kate-spade-saltie-shore-sandals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=stylish-kate-spade-saltie-shore-sandals"><img alt="kate-spade-new-york-womens-saltie-shore-sandals-oceanside-multi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-saltie-shore-sandals-oceanside-multi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=stylish-kate-spade-saltie-shore-sandals"><img alt="kate-spade-new-york-womens-saltie-shore-sandals-oceanside-multi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-saltie-shore-sandals-oceanside-multi-1/h=540,fit=pad,background=black"/></a></div>
 
 Slip into a stylish pair of Kate Spade New York Saltie Shore sandals, bringing a touch of the sea to your wardrobe. The striped fabric upper adds a nautical twist, while the leather lining ensures comfort. The espadrille rope wrapped midsole and rubber outsole provide both durability and a beach-ready vibe. 
 
 
-### [Kate Spade's Pink Crushed Watermelon Petit Flip Flops](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spades-pink-crushed-watermelon-petit-flip-flops)
+### [Kate Spade's Pink Crushed Watermelon Petit Flip Flops](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spades-pink-crushed-watermelon-petit-flip-flops)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spades-pink-crushed-watermelon-petit-flip-flops"><img alt="kate-spade-shoes-kate-spade-new-york-womens-petit-flip-flop-sandals-crushed-watermelon-9-5b-color-pi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-shoes-kate-spade-new-york-womens-petit-flip-flop-sandals-crushed-watermelon-9-5b-color-pi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spades-pink-crushed-watermelon-petit-flip-flops"><img alt="kate-spade-shoes-kate-spade-new-york-womens-petit-flip-flop-sandals-crushed-watermelon-9-5b-color-pi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-shoes-kate-spade-new-york-womens-petit-flip-flop-sandals-crushed-watermelon-9-5b-color-pi-1/h=540,fit=pad,background=black"/></a></div>
 
 Step into the fashion world with these chic Kate Spade Petit Flip Flop Sandals. With a 9.5 b pink color that's sure to turn heads, these flips are made for effortless comfort and style. 
 
 Patent leather creates a sleek and glossy look that's perfect for any summer outing. Make a statement this season with these affordable and versatile Kate Spade flip flops. 
 
 
-### [Kate Spade New York Oceanside Slide Sandals](https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-oceanside-slide-sandals)
+### [Kate Spade New York Oceanside Slide Sandals](https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm\_term=kate-spade-new-york-oceanside-slide-sandals)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-oceanside-slide-sandals"><img alt="kate-spade-new-york-womens-breeze-platform-slide-sandals-oceanside-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-breeze-platform-slide-sandals-oceanside-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Kate+Spade+Flip+Flops?utm_term=kate-spade-new-york-oceanside-slide-sandals"><img alt="kate-spade-new-york-womens-breeze-platform-slide-sandals-oceanside-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kate-spade-new-york-womens-breeze-platform-slide-sandals-oceanside-1/h=540,fit=pad,background=black"/></a></div>
 
 The Kate Spade New York Women's Breeze Platform Slide Sandals provide a stylish and comfortable option for your summer wardrobe. These sandals, available in a size that originates from the US, offer a versatile style type with a slide sandals design. The materials used include raffia and leather, providing a breathable yet durable feel that can elevate any outfit. The fabric type is knit, making these sandals perfect for a casual or dressy occasion. 
 

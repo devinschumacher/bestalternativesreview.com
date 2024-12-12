@@ -15,9 +15,9 @@ Welcome to our roundup of the top Leather Fire Helmets, designed to provide the 
 ## Reviews
 
 
-### [FireDex 1910 Traditional Fire Helmet: Ratchet Adjustment & Fiberglass Shell](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=firedex-1910-traditional-fire-helmet-ratchet-adjustment-fiberglass-shell)
+### [FireDex 1910 Traditional Fire Helmet: Ratchet Adjustment & Fiberglass Shell](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=firedex-1910-traditional-fire-helmet-ratchet-adjustment-fiberglass-shell)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=firedex-1910-traditional-fire-helmet-ratchet-adjustment-fiberglass-shell"><img alt="firedex-1910-traditional-helmet-standard-1910-firepenny-1910h25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/firedex-1910-traditional-helmet-standard-1910-firepenny-1910h25-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=firedex-1910-traditional-fire-helmet-ratchet-adjustment-fiberglass-shell"><img alt="firedex-1910-traditional-helmet-standard-1910-firepenny-1910h25-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/firedex-1910-traditional-helmet-standard-1910-firepenny-1910h25-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try on the FireDex 1910 Traditional Helmet, and I must say, it was a game-changer for me. The moment I put it on, I felt the secure fit, thanks to the adjustable headband and six-way overhead straps. The fiberglass shell with a thermal impact cap provided a sense of safety and protection against severe impacts, which is always a plus in my line of work. 
 
@@ -28,9 +28,9 @@ Of course, there were a few minor drawbacks. The ear/neck cover could have been 
 Overall, the FireDex 1910 Traditional Helmet stood out for me, offering a reliable and comfortable option for those in need of a high-quality fire helmet. Despite a couple of minor drawbacks, I would wholeheartedly recommend this product to anyone looking for a trusty and dependable choice. 
 
 
-### [MSA Cairns Invader 664FDY Leather Fire Helmet with Tuffshield](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=msa-cairns-invader-664fdy-leather-fire-helmet-with-tuffshield)
+### [MSA Cairns Invader 664FDY Leather Fire Helmet with Tuffshield](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=msa-cairns-invader-664fdy-leather-fire-helmet-with-tuffshield)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=msa-cairns-invader-664fdy-leather-fire-helmet-with-tuffshield"><img alt="msa-664fdy-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-with-crown-pad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-664fdy-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-with-crown-pad-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=msa-cairns-invader-664fdy-leather-fire-helmet-with-tuffshield"><img alt="msa-664fdy-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-with-crown-pad-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-664fdy-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-with-crown-pad-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the chance to try out the MSA Cairns Yellow Fire Helmet, and let me tell you, it was quite an experience. The helmet's Dura Glas thermoplastic shell felt well-balanced and provided all-time comfort. The 4" tuff shield, deluxe leather, and crown pad were all top-notch and added a great touch of style and protection to the helmet. I appreciated the flame-resistant earlap and Nomex chinstrap, which ensured my safety while using the helmet. 
 
@@ -41,61 +41,61 @@ However, one thing I noticed was that the product description didn't mention tha
 Overall, the MSA Cairns Yellow Fire Helmet was an excellent experience to use. With its top-notch construction, protection features, and ease of adjustment, it's certainly a standout piece of equipment in the world of firefighting. 
 
 
-### [Bullard Leather Fire Helmet: Thermoglas/FG Shell in Black](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=bullard-leather-fire-helmet-thermoglas-fg-shell-in-black)
+### [Bullard Leather Fire Helmet: Thermoglas/FG Shell in Black](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=bullard-leather-fire-helmet-thermoglas-fg-shell-in-black)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=bullard-leather-fire-helmet-thermoglas-fg-shell-in-black"><img alt="bullard-um6cz-fire-helmet-thermoglas-fg-shell-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-um6cz-fire-helmet-thermoglas-fg-shell-black-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=bullard-leather-fire-helmet-thermoglas-fg-shell-in-black"><img alt="bullard-um6cz-fire-helmet-thermoglas-fg-shell-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-um6cz-fire-helmet-thermoglas-fg-shell-black-1/h=540,fit=pad,background=black"/></a></div>
 
 This Bullard UM6CZ Fire Helmet boasts a stylish thermoglas/FG shell in a classic black color. Boasting dimensions that fit hats sizes 6 to 8, this helmet is perfect for enhancing both safety and style. The helmet also features a ratcheting headband to ensure a customized fit. 
 
 
-### [Wooden Contemporary Firefighter Helmet with Leather Interior](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=wooden-contemporary-firefighter-helmet-with-leather-interior)
+### [Wooden Contemporary Firefighter Helmet with Leather Interior](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=wooden-contemporary-firefighter-helmet-with-leather-interior)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=wooden-contemporary-firefighter-helmet-with-leather-interior"><img alt="10-x-12-x-11-fireman-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/10-x-12-x-11-fireman-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=wooden-contemporary-firefighter-helmet-with-leather-interior"><img alt="10-x-12-x-11-fireman-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/10-x-12-x-11-fireman-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 This impressive Fireman Helmet, featuring a contemporary wooden design, is an authentic reproduction of a historic brass Merriweather-pattern helmet from late Victorian England. Measuring 11 inches high, 10 inches wide, and 12 inches deep, it's perfect for enhancing any nautical collection. 
 
 Boasting a comfortable leather lining, the helmet transports you back to a time when bravery and honor were the order of the day. 
 
 
-### [Cairns 360 STRUCTURAL Leather Fire Helmet](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=cairns-360-structural-leather-fire-helmet)
+### [Cairns 360 STRUCTURAL Leather Fire Helmet](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=cairns-360-structural-leather-fire-helmet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=cairns-360-structural-leather-fire-helmet"><img alt="cairns-360-structural-helmet-nfpa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-360-structural-helmet-nfpa-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=cairns-360-structural-leather-fire-helmet"><img alt="cairns-360-structural-helmet-nfpa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-360-structural-helmet-nfpa-1/h=540,fit=pad,background=black"/></a></div>
 
 The Cairns 360 STRUCTURAL Helmet is a top-rated thermal plastic shell structural helmet that offers an impressive balance of durability and performance. With a rugged, high-temperature edge that won't melt or drip, this helmet ensures that firefighters stay safe and protected on the job. It comes with two different cushion liner options - a standard flannel cushion liner and nomex ear flaps, as well as a deluxe leather cushion liner with PBI/Kevlar ear flaps. 
 
 This versatile helmet is one of the lightest options available, making it the perfect choice for those who need a comfortable fit during extended periods of wear. With its impressive durability and lightweight design, the Cairns 360 STRUCTURAL Helmet is a must-have for firefighters looking for superior protection while on the job. 
 
 
-### [Modern Leather Fire Helmet from Cairns 660CFSB](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=modern-leather-fire-helmet-from-cairns-660cfsb)
+### [Modern Leather Fire Helmet from Cairns 660CFSB](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=modern-leather-fire-helmet-from-cairns-660cfsb)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=modern-leather-fire-helmet-from-cairns-660cfsb"><img alt="cairns-660cfsb-fire-helmet-black-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-660cfsb-fire-helmet-black-modern-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=modern-leather-fire-helmet-from-cairns-660cfsb"><img alt="cairns-660cfsb-fire-helmet-black-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-660cfsb-fire-helmet-black-modern-1/h=540,fit=pad,background=black"/></a></div>
 
 The Cairns 660CFSB Fire Helmet is an NFPA-approved, modern design that sets the standard for thermal and impact protection. Its foam cap with increased thermal protection ensures comfort during intense heat exposure, while the high-temperature impact cap liner resists distortion even at higher temperatures. The helmet's non-corroding, high-temperature glass-filled goggle hardware guarantees durability, and the rugged, high-temperature TPR edge trim avoids melting or dripping under pressure. 
 
 The through-color DuraGlas fiberglass and high-temperature composite make the helmet resistant to cracking and chipping. Firefighters appreciate the 660CFSB for its real thermal protection and lightweight construction, making it an excellent choice for structural and non-structural firefighters alike. 
 
 
-### [Fire-Dex 1910H253 Red Leather Fire Helmet](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=fire-dex-1910h253-red-leather-fire-helmet)
+### [Fire-Dex 1910H253 Red Leather Fire Helmet](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=fire-dex-1910h253-red-leather-fire-helmet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=fire-dex-1910h253-red-leather-fire-helmet"><img alt="fire-dex-1910h253-fire-helmet-red-traditional-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fire-dex-1910h253-fire-helmet-red-traditional-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=fire-dex-1910h253-red-leather-fire-helmet"><img alt="fire-dex-1910h253-fire-helmet-red-traditional-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fire-dex-1910h253-fire-helmet-red-traditional-1/h=540,fit=pad,background=black"/></a></div>
 
 I recently had the opportunity to wear the Fire-Dex 1910H253 fire helmet in a simulated fire training exercise. This Nomex quick-release chinstrap was a game-changer for me, as it provided a hassle-free and quick way to adjust my position. The large-diameter pivot knobs allowed for easy adjustments, while the 6-point ratchet suspension kept the helmet secure during the high-heat scenarios. 
 
 The 4" visor and knit sweatband were essential in keeping me cool under pressure. The black Nomex ear cover with FR cotton lining was a nice touch, offering an extra layer of protection. Overall, I'm glad to have the opportunity to use this reliable and efficient fire helmet during my training. 
 
 
-### [Bullard US6BK Black Fiberglass Fire Helmet with Adjustable Fit](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=bullard-us6bk-black-fiberglass-fire-helmet-with-adjustable-fit)
+### [Bullard US6BK Black Fiberglass Fire Helmet with Adjustable Fit](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=bullard-us6bk-black-fiberglass-fire-helmet-with-adjustable-fit)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=bullard-us6bk-black-fiberglass-fire-helmet-with-adjustable-fit"><img alt="bullard-us6bk-fire-helmet-black-fiberglass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-us6bk-fire-helmet-black-fiberglass-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=bullard-us6bk-black-fiberglass-fire-helmet-with-adjustable-fit"><img alt="bullard-us6bk-fire-helmet-black-fiberglass-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-us6bk-fire-helmet-black-fiberglass-1/h=540,fit=pad,background=black"/></a></div>
 
 The Bullard US6BK Fire Helmet was a staple in my daily uniform while working as a firefighter. Its traditional style and double shell provided me with the necessary protection from high-heat and resistance from chemicals. One of my favorite features was the Bullard 12-pt. comfort system and Sure-Lock ratchet headband that allowed for a secure and comfortable fit with just a simple turn of a knob. The balanced nylon crown straps and crown pads also ensured a stable fit throughout my shift. 
 
 While the helmet was effective in protecting my ears and neck with the ripstop Nomex ear/neck protector and Nomex chinstrap, I sometimes found the quick-release buckle cumbersome. The absorbent cotton brow pad was a great addition, but I wish it was made from a more durable material. Overall, I appreciate the protection and comfort this helmet offered, and it was an essential part of our firefighting gear. 
 
 
-### [Bullard PXSYL Modern Structural Fire Helmet](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=bullard-pxsyl-modern-structural-fire-helmet)
+### [Bullard PXSYL Modern Structural Fire Helmet](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=bullard-pxsyl-modern-structural-fire-helmet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=bullard-pxsyl-modern-structural-fire-helmet"><img alt="bullard-pxsyl-fire-helmet-yellow-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-pxsyl-fire-helmet-yellow-modern-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=bullard-pxsyl-modern-structural-fire-helmet"><img alt="bullard-pxsyl-fire-helmet-yellow-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-pxsyl-fire-helmet-yellow-modern-1/h=540,fit=pad,background=black"/></a></div>
 
 As a firefighter, I've always understood the importance of a reliable helmet that provides both safety and comfort. That's why I've been eagerly testing out the Bullard PXSYL Fire Helmet. Its modern yellow design stood out among basic leather fire helmets, and I knew it had something special to offer. 
 
@@ -106,18 +106,18 @@ One impressive aspect of this fire helmet is its durable thermoplastic shell mat
 Sure, the helmet might have been more suitable for a specific fire department, but it's clear that the Bullard PXSYL Fire Helmet offers exceptional features and functionality for any firefighter in need. 
 
 
-### [Fire Helmet with Fiberglass and Thermoplastic Shell - Aluminized Components for Radiant Heat Protection and Comfort](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=fire-helmet-with-fiberglass-and-thermoplastic-shell-aluminized-components-for-radiant-heat-protection-and-comfort)
+### [Fire Helmet with Fiberglass and Thermoplastic Shell - Aluminized Components for Radiant Heat Protection and Comfort](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=fire-helmet-with-fiberglass-and-thermoplastic-shell-aluminized-components-for-radiant-heat-protection-and-comfort)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=fire-helmet-with-fiberglass-and-thermoplastic-shell-aluminized-components-for-radiant-heat-protection-and-comfort"><img alt="bullard-axfrd-fire-helmet-thermoglas-fiberglass-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-axfrd-fire-helmet-thermoglas-fiberglass-red-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=fire-helmet-with-fiberglass-and-thermoplastic-shell-aluminized-components-for-radiant-heat-protection-and-comfort"><img alt="bullard-axfrd-fire-helmet-thermoglas-fiberglass-red-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullard-axfrd-fire-helmet-thermoglas-fiberglass-red-1/h=540,fit=pad,background=black"/></a></div>
 
 Boasting an innovative thermoglas and fiberglass construction, the Bullard AXFRD fire helmet is a standout for its lightweight and comfortable fit, catering to hat sizes ranging from 6-1/2 to 8. This remarkable helmet is equipped with aluminized helmet components and a gold-coated optically correct faceshield, ensuring both the wearer and the helmet benefit from superior radiant heat protection. 
 
 The helmet's aluminized shroud integrates effortlessly with a SCBA facepiece, providing a cost-effective alternative to traditional ARFF hoods. Although the leather fire helmet may not be as durable or stylish as other available options, its advanced features make it a commendable option for those in need of exceptional head protection. 
 
 
-### [Cairns N5A New Yorker Leather Fire Helmet](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=cairns-n5a-new-yorker-leather-fire-helmet)
+### [Cairns N5A New Yorker Leather Fire Helmet](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=cairns-n5a-new-yorker-leather-fire-helmet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=cairns-n5a-new-yorker-leather-fire-helmet"><img alt="cairns-white-n5a-new-yorker-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-white-n5a-new-yorker-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=cairns-n5a-new-yorker-leather-fire-helmet"><img alt="cairns-white-n5a-new-yorker-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cairns-white-n5a-new-yorker-1/h=540,fit=pad,background=black"/></a></div>
 
 Experience the timeless craftsmanship and durability of the Cairns N5A New Yorker leather fire helmet. Handcrafted to meet current OSHA requirements, this firefighter essential boasts a prestigious heritage dating back to 1836. 
 
@@ -126,9 +126,9 @@ With each New Yorker helmet being meticulously shaped, stitched, and trimmed, yo
 Despite these drawbacks, the Cairns N5A still offers the high-quality appearance and performance generations of firefighters have come to rely on. 
 
 
-### [MSA 1044FDB Deluxe Leather Fire Helmet with Crown Pad and PBI](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=msa-1044fdb-deluxe-leather-fire-helmet-with-crown-pad-and-pbi)
+### [MSA 1044FDB Deluxe Leather Fire Helmet with Crown Pad and PBI](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=msa-1044fdb-deluxe-leather-fire-helmet-with-crown-pad-and-pbi)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=msa-1044fdb-deluxe-leather-fire-helmet-with-crown-pad-and-pbi"><img alt="msa-1044fdb-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-crown-pad-pbi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-1044fdb-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-crown-pad-pbi-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=msa-1044fdb-deluxe-leather-fire-helmet-with-crown-pad-and-pbi"><img alt="msa-1044fdb-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-crown-pad-pbi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-1044fdb-cairns-fire-helmet-with-4-tuffshield-deluxe-leather-crown-pad-pbi-1/h=540,fit=pad,background=black"/></a></div>
 
 The MSA 1044FDB Cairns Fire Helmet has been a lifesaver for me during my time as a firefighter. Its patented shell release system ensures that your helmet stays intact even during the most intense of fires. The full brim protection offers excellent coverage and high-temperature edge trim that won't melt even during the hottest fire scenarios. The soft black Nomex chinstrap is a welcome addition, providing a one-hand quick-release buckle for easy access. 
 
@@ -137,18 +137,18 @@ The helmet's crown pad and PBI material provide a comfortable fit, making it per
 Overall, the MSA 1044FDB is an exceptional fire helmet that offers both comfort and durability. Its defender visor makes it easy to keep a clear line of sight through even the most intense fires, and the helmet's design is classic yet modern. If you're looking for a reliable fire helmet that can withstand the test of time, this model is definitely worth considering. 
 
 
-### [Metro Fire Helmet with Defender and Deluxe Leather Crown](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=metro-fire-helmet-with-defender-and-deluxe-leather-crown)
+### [Metro Fire Helmet with Defender and Deluxe Leather Crown](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=metro-fire-helmet-with-defender-and-deluxe-leather-crown)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=metro-fire-helmet-with-defender-and-deluxe-leather-crown"><img alt="msa-660ddb-cairns-metro-fire-helmet-with-defender-deluxe-leather-with-crown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-660ddb-cairns-metro-fire-helmet-with-defender-deluxe-leather-with-crown-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=metro-fire-helmet-with-defender-and-deluxe-leather-crown"><img alt="msa-660ddb-cairns-metro-fire-helmet-with-defender-deluxe-leather-with-crown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-660ddb-cairns-metro-fire-helmet-with-defender-deluxe-leather-with-crown-1/h=540,fit=pad,background=black"/></a></div>
 
 The MSA Cairns 660C Metro modern fire helmet is a versatile and robust option for both structural and wildland firefighting, as well as EMS and confined space applications. The helmet's sleek, lightweight design makes it comfortable for extended wear, while maintaining durability and reliability when it counts most. Users appreciate the retractable Defender Visor, which allows for easy adjustment with a gloved hand, and the variety of paint colors available to suit individual preferences. 
 
 The impact cap and through-color fiberglass composite shell provide superior protection, while the Nomex chinstrap and earstrap offer increased comfort and coverage. Overall, this helmet is a top choice for firefighters and first responders seeking a reliable, functional, and stylish option. 
 
 
-### [Fire-Dex Black Modern Leather Fire Helmet](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=fire-dex-black-modern-leather-fire-helmet)
+### [Fire-Dex Black Modern Leather Fire Helmet](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=fire-dex-black-modern-leather-fire-helmet)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=fire-dex-black-modern-leather-fire-helmet"><img alt="fire-dex-911h714-fire-helmet-black-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fire-dex-911h714-fire-helmet-black-modern-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=fire-dex-black-modern-leather-fire-helmet"><img alt="fire-dex-911h714-fire-helmet-black-modern-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fire-dex-911h714-fire-helmet-black-modern-1/h=540,fit=pad,background=black"/></a></div>
 
 As a firefighter, I've had the pleasure of wearing the Fire-Dex 911H714 Fire Helmet during my daily duties. The modern design and sleek appearance have definitely caught my team's attention. 
 
@@ -157,9 +157,9 @@ One feature that stood out is the 6-way overhead suspension strap system, allowi
 However, the standard 911 helmet's reflective strip trim might not be the most eye-catching option for everyone. Overall, the Fire-Dex 911H714 Fire Helmet is a reliable and stylish choice for your firefighting needs. 
 
 
-### [Patented Leather Fire Helmet with 3-Point Rear Ratchet Suspension](https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm\_term=patented-leather-fire-helmet-with-3-point-rear-ratchet-suspension)
+### [Patented Leather Fire Helmet with 3-Point Rear Ratchet Suspension](https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm\_term=patented-leather-fire-helmet-with-3-point-rear-ratchet-suspension)
 
-<div class="image"><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet?utm_term=patented-leather-fire-helmet-with-3-point-rear-ratchet-suspension"><img alt="msa-black-deluxe-leather-cairns-1010-fire-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-black-deluxe-leather-cairns-1010-fire-helmet-1/h=540,fit=pad,background=black"/></a></div>
+<div class="image"><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet?utm_term=patented-leather-fire-helmet-with-3-point-rear-ratchet-suspension"><img alt="msa-black-deluxe-leather-cairns-1010-fire-helmet-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/msa-black-deluxe-leather-cairns-1010-fire-helmet-1/h=540,fit=pad,background=black"/></a></div>
 
 As a firefighter, I can't help but appreciate the sturdy design and comfort of this Fire Helmet. The standard size fits snugly, and the 3-point rear ratchet suspension system ensures excellent stability. The traditional aesthetic and the use of top-notch materials like Deluxe Leather, Nomex, and Kevlar create a visually appealing product that's built to last. 
 
@@ -183,7 +183,7 @@ To guarantee optimal protection, focus on these crucial attributes when selectin
 
 4. Comfort: A well-fitting helmet with adjustable straps and chin cup ensures comfort and stability during use.
 
-<div><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-2/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-2" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-2/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-2" height="540"></a></div>
 
 
 ### Considerations When Purchasing a Leather Fire Helmet
@@ -207,7 +207,7 @@ To maximize the longevity and effectiveness of your leather fire helmet, heed th
 
 3. Proper storage: Store in a cool, dry, and well-ventilated area away from direct sunlight and high temperatures to maintain leather integrity.
 
-<div><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-3/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-3" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-3/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-3" height="540"></a></div>
 
 
 ### Advice for Fire Department Members and Trainers
@@ -223,7 +223,7 @@ If you're part of a fire department or responsible for training fire safety pers
 
 ## FAQ
 
-<div><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-4/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-4" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-4/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-4" height="540"></a></div>
 
 
 ### What are the benefits of using a leather fire helmet?
@@ -239,7 +239,7 @@ When selecting a leather fire helmet, there are several factors to consider. Fir
 
 Next, think about the specific features you require, such as a face shield, communication systems, or a built-in light. Also, consider the type of leather used, as some types are more resistant to wear and tear than others. Ensure that the leather is both flexible and durable, and that it will withstand the rigors of your work environment. Finally, take into account the overall design and appearance of the helmet, as this can impact the wearer's comfort and satisfaction with the product. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-5/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-5" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-5/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-5" height="540"></a></div>
 
 
 ### How should I maintain and care for my leather fire helmet?
@@ -256,7 +256,7 @@ There are several types of leather used to make fire helmets, each with its own 
 
 When selecting a leather fire helmet, it is essential to choose a high-quality leather, such as full-grain or top-grain, to ensure the best possible protection and durability. Additionally, consider the specific needs of your work environment and choose a leather that can withstand the conditions you will encounter. 
 
-<div><a href="https://serp.ly/@outrun/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-6/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-6" height="540"></a></div>
+<div><a href="https://serp.ly/@bar/amazon/Leather+Fire+Helmet"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Leather-Fire-Helmet-6/h=540,fit=pad,background=black" alt="Leather-Fire-Helmet-6" height="540"></a></div>
 
 
 ### How do I know if my leather fire helmet meets the required protective standards?
