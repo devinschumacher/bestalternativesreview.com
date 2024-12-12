@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Wax-For-Candle-Making.md
 
 # Best Waxes for Candle Making -  Our Top 23 Picks for Perfectly Pourable Creations
 
-Are you ready to dive into the world of candle making? Let us guide you through the process and discover the best wax for candle making. Our roundup covers everything from natural beeswax to soy wax and other top-rated options, ensuring you find the perfect wax to bring your creations to life. 
+Are you ready to dive into the world of candle making? Let us guide you through the process and discover the best [wax for candle making](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wax-For-Candle-Making.md). [Our roundup covers everything from natural beeswax to soy wax and other top-rated options, ensuring you find the perfect wax to bring your creations to life.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wax-For-Candle-Making.md) 
 
 *As an Amazon Affiliate I receive compensation from qualifying purchases.*
 
@@ -107,7 +107,7 @@ The pour temperature of 115-120°F was a game-changer too. I've dealt with waxes
 
 But there's a saying - every pro has its con. For this wax, the downside seemed to be the moisture content, and I'm not talking about humidity. I received a batch that had way too much moisture, leading to an awful pouring experience, creating a hot mess that caused more problems than I'd care to admit. 
 
-Customer service was less than helpful when I brought these issues up. Instead of providing a solution or an apology, they simply advised me to bump up the heat or let the wax sit for two days in a dehumidifier. It didn't work, and I'm still left with a box of unusable wax. 
+Customer service was less than helpful when I brought these issues up. Instead of providing a solution or an apology, they simply advised me to bump up the heat or let the wax sit for two days in a [dehumidifier](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dehumidifier.md). It didn't work, and I'm still left with a box of unusable wax. 
 
 On the plus side, the packaging was straightforward, but a little more user-friendly would have been appreciated - perhaps avoiding the layers of sticky tape that were nearly impossible to cut through without making a mess. 
 
@@ -194,7 +194,7 @@ If you're in pursuit of creating your very own candles, our Hearts & Crafts DIY 
 
 Our meticulously created DIY set offers a range of industry standard crafting supplies, guaranteeing a seamless and pleasurable experience in candle-making. The detailed manual complete with easy-to-follow guidelines makes the art of candle-making accessible to anyone. The kit, neatly arranged in one convenient package, makes an excellent gift for those with a penchant for DIY projects or a knack for candlemaking. 
 
-The DIY All-In-One Soy Wax Candle Making Set comes equipped with 2lbs natural soy wax flakes, 10 pre-wicked wicks, 4 wax glue dots, 4 diverse fragrances, 1 pouring pitcher for wax, 4 sturdy stirring sticks, 4 wooded centering devices, 4 dye blocks for coloring, 4 tin candle holders, 4 customized gift boxes, 4 caution markers to ensure safety, a thermometer for precise temperature control, and finally a guide to candlemaking for the crafter in you. 
+The DIY All-In-One Soy Wax Candle Making Set comes equipped with 2lbs natural soy wax flakes, 10 pre-wicked wicks, 4 wax glue dots, 4 diverse fragrances, 1 pouring pitcher for wax, 4 sturdy stirring sticks, 4 wooded centering devices, 4 dye blocks for coloring, 4 tin [candle holders](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Candle-Holders.md), 4 customized gift boxes, 4 caution markers to ensure safety, a thermometer for precise temperature control, and finally a guide to candlemaking for the crafter in you. 
 
 With this DIY All-In-One Soy Wax Candle Making Kit, you've got the power to create your own customized candles, imbue your space with nature's goodness, and uncover the delight that comes from handcrafting. It serves as an ideal bonding activity for friends or family, creating memories while you craft your personalized candles. 
 
@@ -255,7 +255,7 @@ As a beginner in the art of candle making, I was excited to try out the Hearth &
 
 The step-by-step instructions were simple and easy to follow, making it a breeze for even the most novice crafters like myself. The premium quality materials used in the kit also added to my experience, making it feel like I was working with a professional-grade product. 
 
-While the process of making candles was relatively easy, I did find the fragrance oils to be a bit overpowering at times. This made it difficult to find the right balance between scent and wax, and I ended up adding less fragrance than I would have liked. Overall, however, the experience was enjoyable, and I was proud of the handmade candles that I created. 
+[While the process of making candles was relatively easy, I did find the fragrance oils to be a bit overpowering at times.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) This made it difficult to find the right balance between scent and wax, and I ended up adding less fragrance than I would have liked. Overall, however, the experience was enjoyable, and I was proud of the handmade candles that I created. 
 
 As a gift, the candle-making kit would be perfect for someone looking to start their own candle-making journey or for someone who enjoys creating unique and thoughtful handmade gifts. While I had a few minor issues with the kit, the simplicity and affordability of the product made it a great choice for a beginner in the world of candle making. 
 

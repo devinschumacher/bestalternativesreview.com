@@ -43,7 +43,7 @@ Although these latches are a useful tool for parents, there are a few minor issu
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Latch?utm_term=off-white-magnetic-cabinet-latch-by-reliabilt"><img alt="reliabilt-77-mm-off-white-magnetic-catch-cabinet-latch-32929phxlg-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/reliabilt-77-mm-off-white-magnetic-catch-cabinet-latch-32929phxlg-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently tried the RELIABILT 77-mm Off-White Magnetic Catch Cabinet Latch in my bathroom. It's perfect for holding cabinet or vanity doors closed when not in use. The durable plastic base in an off-white color with a steel plate adds a touch of elegance to any room. 
+I recently tried the RELIABILT 77-mm Off-White Magnetic Catch [Cabinet Latch](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cabinet-Latch.md) in my bathroom. It's perfect for holding cabinet or vanity doors closed when not in use. The durable plastic base in an off-white color with a steel plate adds a touch of elegance to any room. 
 
 The steel plate is designed to be mounted on the door side, while the brown magnetic catch is placed on the inside of the cabinet. Plus, the unit comes with fasteners for easy screw-on installation. 
 
@@ -54,7 +54,7 @@ I've had no issues with it, and it has definitely made my daily life a bit easie
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Cabinet+Latch?utm_term=secure-your-drawers-and-cabinets-with-prime-line-u9941-lock"><img alt="prime-line-u9941-drawer-and-cabinet-lock-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/prime-line-u9941-drawer-and-cabinet-lock-1/h=540,fit=pad,background=black"/></a></div>
 
-When we had a drawer full of important documents and small items that couldn't be locked, I decided to give the Prime-Line U9941 Drawer and Cabinet Lock a try. It arrived with all the components needed for installation, including a lock, three cams, a trim collar, two reversible rotation washers, two spur washers, and two keys. 
+When we had a drawer full of important documents and small items that couldn't be locked, I decided to give the Prime-Line U9941 Drawer and Cabinet Lock a try. It arrived with all the components needed for installation, including a lock, three cams, a trim collar, two reversible rotation [washers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Washers.md), two spur washers, and two keys. 
 
 Installation was straightforward, requiring only a few screws to fasten the lock onto our metal cabinet. The lock itself is made of plated diecast housing and steel cams, which I found to be quite durable and secure. The keyed lock provides maximum security for our drawers and cabinets, giving us peace of mind knowing that they are now properly locked. 
 

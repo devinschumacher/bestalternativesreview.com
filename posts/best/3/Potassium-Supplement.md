@@ -32,7 +32,7 @@ The combination of magnesium and potassium in this supplement makes it an excell
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Potassium+Supplement?utm_term=potassium-citrate-99mg-supplement-120-capsules-for-120-servings"><img alt="typezero-clean-potassium-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/typezero-clean-potassium-1/h=540,fit=pad,background=black"/></a></div>
 
-This potassium supplement from TypeZero is a small and easy-to-take capsule that packs a potent punch, containing 99mg of potassium per capsule. Made from potassium citrate, these non-GMO, gluten-free capsules are produced in a GMP-compliant facility, ensuring top-quality ingredients and your safety. With 120 capsules per container, each capsule is designed to provide you with a serving that fits seamlessly into your daily routine. 
+This [potassium supplement](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potassium-Supplement.md) from TypeZero is a small and easy-to-take capsule that packs a potent punch, containing 99mg of potassium per capsule. Made from potassium citrate, these non-GMO, gluten-free capsules are produced in a GMP-compliant facility, ensuring top-quality ingredients and your safety. With 120 capsules per container, each capsule is designed to provide you with a serving that fits seamlessly into your daily routine. 
 
 The simple, clean formula of this supplement allows you to feel confident in your choice to support your overall well-being with TypeZero. 
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Scrapbook-Kit.md
 
 # Discover the Best Scrapbooking Kits for Creativity and Comfort
 
-Get ready to unleash your creative side with our roundup of the **best scrapbook kits** on the market! From beautifully designed templates to high-quality materials, we've curated a selection of top-notch products that will take your scrapbooking experience to the next level. Dive into our article and discover the perfect kit to bring your memories to life. 
+[Get ready to unleash your creative side with our roundup of the **best scrapbook kits** on the market!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Scrapbook-Kit.md) From beautifully designed templates to high-quality materials, we've curated a selection of top-notch products that will take your scrapbooking experience to the next level. Dive into our article and discover the perfect kit to bring your memories to life. 
 
 *As an Amazon Associate I earn from qualifying purchases at no cost to you!*
 
@@ -23,7 +23,7 @@ Every day, I'm eager to sit down at my crafting station and work on a beautiful 
 
 It's also nice to know that the papers are acid and lignin free, so they'll last forever. But I couldn't say I'm completely satisfied with everything in this kit - the mini metal clips could be a little sturdier, and the string closure sets don't seem to be the highest quality. 
 
-All in all, though, this scrapbook kit gets the job done and helps me create pages that truly stand out. 
+All in all, though, this [scrapbook kit](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Scrapbook-Kit.md) gets the job done and helps me create pages that truly stand out. 
 
 
 ### [Complete Bon Voyage Scrapbook Kit by Paper Boutique](https://serp.ly/@bar/amazon/Scrapbook+Kit?utm\_term=complete-bon-voyage-scrapbook-kit-by-paper-boutique)

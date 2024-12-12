@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Unc-Shirts.md
 
 # Bold and Casual -  19 Best UNSCHIRTS for Everyday Style and Comfort
 
-Get ready to brighten up your wardrobe with the latest Unc Shirts! This roundup article dives into the exciting world of uncreative shirts, bringing you the most innovative, quirky, and downright hilarious options you could possibly imagine. Don't miss out on the chance to make a statement with each swipe of your credit card! 
+Get ready to brighten up your wardrobe with the latest [Unc Shirts](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Unc-Shirts.md)! This roundup article dives into the exciting world of uncreative shirts, bringing you the most innovative, quirky, and downright hilarious options you could possibly imagine. Don't miss out on the chance to make a statement with each swipe of your credit card! 
 
 *As an Amazon Affiliate™, we receive compensation through qualifying purchases.*
 
@@ -150,7 +150,7 @@ I recently picked up this High Motor t-shirt from Champion to represent my favor
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Unc+Shirts?utm_term=michael-jordan-north-carolina-tar-heels-basketball-jersey-t-shirt"><img alt="jordan-mens-michael-jordan-north-carolina-tar-heels-23-carolina-blue-basketball-jersey-t-shirt-large-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jordan-mens-michael-jordan-north-carolina-tar-heels-23-carolina-blue-basketball-jersey-t-shirt-large-1/h=540,fit=pad,background=black"/></a></div>
 
-This Jordan Men's Michael Jordan North Carolina Tar Heels #23 Carolina Blue Basketball Jersey T-Shirt makes an excellent addition to any fan's wardrobe. The large screenprint on the front of the shirt, featuring Michael Jordan's name and number, showcases your dedication to the Tar Heels. The crew neckline provides a comfortable, streamlined fit, making it a great choice to style with shorts and sneakers for a sporty look. 
+This Jordan Men's Michael Jordan North Carolina Tar Heels #23 Carolina Blue [Basketball Jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Basketball-Jersey.md) T-Shirt makes an excellent addition to any fan's wardrobe. The large screenprint on the front of the shirt, featuring Michael Jordan's name and number, showcases your dedication to the Tar Heels. The crew neckline provides a comfortable, streamlined fit, making it a great choice to style with shorts and sneakers for a sporty look. 
 
 Despite a few negative reviews regarding the size and neckline, many customers praised the high-quality material and authentic appearance of this retro jersey t-shirt. Overall, it's a great gift for someone who bleeds Carolina blue. 
 

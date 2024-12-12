@@ -23,7 +23,7 @@ The 661 Youth Dirt Lid Helmet is an excellent addition to your child's skateboar
 
 One size fits most, making it perfect for sharing among siblings or friends. Customize the fit with the included 3 liners, offering a comfortable and secure fit for your young skater. 
 
-The helmet also caters to various multi-sport activities, making it versatile and a practical investment. Overall, this helmet is a great value at a reasonable price, providing a balance of style, protection, and versatility for your child's skateboarding adventures. 
+[The helmet also caters to various multi-sport activities, making it versatile and a practical investment.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Aero-Helmet.md) Overall, this helmet is a great value at a reasonable price, providing a balance of style, protection, and versatility for your child's skateboarding adventures. 
 
 
 ### [Giro Ledge Helmet: Matte Graphite - Skateboard Safety](https://serp.ly/@bar/amazon/Skateboard+Helmet?utm\_term=giro-ledge-helmet-matte-graphite-skateboard-safety)
@@ -97,7 +97,7 @@ One major highlight was the helmet's patented Conehead EPS liner technology, pro
 
 However, there were a few areas that could use improvement. The package I received had a bit of dust on it and the colors were slightly off. I wish I could have seen a photo of the product before purchasing to make sure it was the right fit for me. 
 
-In the end, I have to say that I'm quite satisfied with my choice. The Triple Eight Gotham helmet offers a perfect blend of style and safety, and I've found it to be both comfortable and reliable during my rides. 
+In the end, I have to say that I'm quite satisfied with my choice. [The Triple Eight Gotham helmet offers a perfect blend of style and safety, and I've found it to be both comfortable and reliable during my rides.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Triple-8-Helmet.md) 
 
 
 ### [Premium Youth Skateboard & BMX Bike Helmet with Interchangeable Size Adjustment](https://serp.ly/@bar/amazon/Skateboard+Helmet?utm\_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment)
@@ -130,7 +130,7 @@ One thing I noticed, though, was that this helmet might not be appropriate for m
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Helmet?utm_term=tsg-evolution-skateboard-helmet"><img alt="tsg-evolution-helmet-satin-coal-s-m-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tsg-evolution-helmet-satin-coal-s-m-1/h=540,fit=pad,background=black"/></a></div>
 
-Get ready to experience the ultimate in skateboard helmet protection with TSG's Evolution model in Satin Coal. This sleek and stylish design offers a custom low, snug fit, making it one of the slimmest hardshell helmets on the market. 
+Get ready to experience the ultimate in [skateboard helmet](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Skateboard-Helmet.md) protection with TSG's Evolution model in Satin Coal. This sleek and stylish design offers a custom low, snug fit, making it one of the slimmest hardshell helmets on the market. 
 
 TSG's Evolution is built with top-notch materials, such as a 100% ABS shell and a 100% expanded polystyrene foam (EPS) lining. The strap is crafted from polyester and nylon, ensuring durability and comfort. The helmet's shape perfectly conforms to the shape of your head, providing a slip- and jiggle-free fit. 
 
@@ -184,7 +184,7 @@ The padded PU chinbar enhances all-around protection, and the adjustable visor a
 
 Recently, I tried out the K2 Skate Varsity Helmet in Blue, and I have to say, it's a great option for both kids and adults who enjoy skate sessions. The first thing I noticed was the sturdy ABS shell that provides excellent protection for your head. It's reassuring to know that this helmet is designed with safety in mind. 
 
-Another standout feature is the lightweight EPS liner, which cushions the helmet for added comfort. The adjustable nylon chin and ear webbing make it easy to customize the fit, while the ratchet fit system ensures a snug and secure hold. I found these features really helpful in maintaining optimum comfort during skate sessions. 
+Another standout feature is the lightweight EPS liner, which [cushions](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cushions.md) the helmet for added comfort. The adjustable nylon chin and ear webbing make it easy to customize the fit, while the ratchet fit system ensures a snug and secure hold. I found these features really helpful in maintaining optimum comfort during skate sessions. 
 
 One downside I experienced was the helmet's certification only for bicycle safety, not skateboarding. However, it's still great to have the added protection while skating, and I would recommend always following proper safety precautions. 
 
@@ -359,7 +359,7 @@ With a low profile design and two sets of Sweatsaver Liners, the Certified Sweat
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Skateboard+Helmet?utm_term=affordable-skateboard-helmet-with-adjustable-fit"><img alt="bullet-deluxe-skateboard-helmet-matte-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bullet-deluxe-skateboard-helmet-matte-black-1/h=540,fit=pad,background=black"/></a></div>
 
-Experience a significant upgrade in skateboarding safety with the Matte Black Bullet Deluxe Skateboard Helmet. Combining unmatched comfort and outstanding protection, this helmet is a standout choice for enthusiasts seeking top-notch headgear.
+Experience a significant upgrade in skateboarding safety with the Matte Black Bullet Deluxe Skateboard Helmet. [Combining unmatched comfort and outstanding protection, this helmet is a standout choice for enthusiasts seeking top-notch headgear.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Ballistic-Helmets.md)
 
 The innovative sweat-wicking soft foam liner is designed to provide a cozy, secure fit on your noggin. Two sets of detachable and washable foam padding ensure a customizable, hygienic fit. The ultra-lightweight Expanded Polystyrene (EPS) foam adds a low-profile, sleek appearance that complements any skateboarding activity.
 

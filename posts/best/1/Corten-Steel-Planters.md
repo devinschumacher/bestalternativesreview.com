@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Corten-Steel-Planters.md
 
 # Rusted Roots -  15 Best Corten Steel Planters for Eco-Friendly Gardening and Homes
 
-Looking to add some greenery to your outdoor space, but not sure where to start? Look no further than our roundup of the best Corten steel planters. These sturdy and stylish planters are a great addition to any garden, and can hold up against the elements while adding a touch of sophistication to your yard. Keep reading to discover our top picks for the best Corten steel planters on the market today. 
+Looking to add some greenery to your outdoor space, but not sure where to start? Look no further than our roundup of the best [Corten steel planters](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corten-Steel-Planters.md). These sturdy and stylish planters are a great addition to any garden, and can hold up against the elements while adding a touch of sophistication to your yard. Keep reading to discover our top picks for the best Corten steel planters on the market today. 
 
 *As an Amazon Affiliate we earn through qualified purchases at no cost to you*
 
@@ -84,7 +84,7 @@ The Veradek Metallis Series Span Planter is a unique and distinctive addition to
 
 Despite its many strengths, a few customer feedback has shed light on couple of areas the planter could improve on. A few customers have reported that the two ends of their products were finished poorly, with one having sharp corners which posed a risk to them. Another incident of welding inconsistency was noted, where a gap in one of the welded edges resulted in soil and water leakage. 
 
-Furthermore, a couple of customers have noticed packaging marks on the finished product, which would fade away in due course of rusting. Instructions for assembly might not be in sync with the shipping materials as one customer mentioned that nuts and clips were shipped instead of the standard washers. The boxing of the products was also criticized by one user who noticed a box with a scuffed exterior indicating a possible damage during transit. 
+Furthermore, a couple of customers have noticed packaging marks on the finished product, which would fade away in due course of rusting. Instructions for assembly might not be in sync with the shipping materials as one customer mentioned that nuts and clips were shipped instead of the standard [washers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Washers.md). The boxing of the products was also criticized by one user who noticed a box with a scuffed exterior indicating a possible damage during transit. 
 
 In spite of a few niggles, the majority of users are thrilled with their planters due to its sturdy build and rust resistance. They found the process of accelerating the rusting of the Corten Steel, by following Veradek's instructions, to be exciting and result-driven. The overall design of the planter coupled with the natural rusting that comes with the Corten Steel, has proven to be a big hit amongst gardeners and decorators alike. 
 

@@ -36,7 +36,7 @@ However, there is one downside I had to deal with: the tubing needs extra care w
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Reverse+Osmosis+System?utm_term=aquaticlife-ro-buddie-3-stage-compact-reverse-osmosis-system"><img alt="aquatic-life-ro-buddie-three-stage-reverse-osmosis-system-50-gallon-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aquatic-life-ro-buddie-three-stage-reverse-osmosis-system-50-gallon-1/h=540,fit=pad,background=black"/></a></div>
 
-The AQUATICLIFE RO Buddie is a compact, three-stage reverse osmosis system designed to improve the quality of tap water for use in small aquariums, fountains, and humidifiers. It's perfect for those who want to provide their fish with a softer water environment. 
+The AQUATICLIFE RO Buddie is a compact, three-stage [reverse osmosis system](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Reverse-Osmosis-System.md) designed to improve the quality of tap water for use in small aquariums, fountains, and humidifiers. It's perfect for those who want to provide their fish with a softer water environment. 
 
 Setting up the RO Buddie was a breeze, as the unit was pre-assembled and easy to connect to the sink's faucet. The quick connections made it simple to remove and replace the cartridges when needed. The small footprint also made it easy to place the system under cabinets or in other limited spaces. 
 

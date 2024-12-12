@@ -32,7 +32,7 @@ An added feature is the backlight off feature, which allows you to customize the
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Smart+Switch?utm_term=commercial-smart-electric-single-pole-light-switch-for-google-home-and-alexa"><img alt="commercial-electric-smart-single-pole-light-switch-hubspace-google-home-alexa-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/commercial-electric-smart-single-pole-light-switch-hubspace-google-home-alexa-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently had the chance to test out the Commercial Electric Smart Hubspace 15 Amp Single-Pole Light Switch, and it has truly transformed my home's lighting experience. No longer do I have to fumble for light switches, as this smart switch lets me control the lights with just a tap on my smartphone or a simple voice command through Amazon Alexa and Google Home. 
+I recently had the chance to test out the Commercial Electric Smart Hubspace 15 Amp Single-Pole Light Switch, and it has truly transformed my home's lighting experience. No longer do I have to fumble for light switches, as this [smart switch](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smart-Switch.md) lets me control the lights with just a tap on my smartphone or a simple voice command through Amazon Alexa and Google Home. 
 
 One of the standout features of this smart switch is its ease of installation, which is a breeze compared to traditional light switches. It's compatible with both Android and iPhone devices, making it seamless to control my lights no matter where I am. The pre-set on/off schedules can be easily programmed via the Hubspace app, allowing me to create a perfect ambiance for any occasion. 
 

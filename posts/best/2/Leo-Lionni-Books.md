@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Leo-Lionni-Books.md
 
 # Explore the Best Children's Books by Leo Lionni -  Our Top 19 Picks
 
-Dive into the captivating world of Leo Lionni Books, where imaginative storytelling meets exquisite illustrations. Join us as we explore the top picks from Lionni's illustrious literary career, providing an engaging read that sparkles with creativity and warmth. 
+Dive into the captivating world of [Leo Lionni Books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Leo-Lionni-Books.md), where imaginative storytelling meets exquisite illustrations. [Join us as we explore the top picks from Lionni's illustrious literary career, providing an engaging read that sparkles with creativity and warmth.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Leo-Lionni-Books.md) 
 
 *As an Amazon Affiliate™ we may earn from qualified purchases.*
 
@@ -148,7 +148,7 @@ However, there's always room for improvement. Though the book is durable, I thin
 
 Kaplan Early Learning's Leo Lionni Books collection is a must-have for any young child's book collection. Boasting eight stunningly illustrated books, each title imparts a significant lesson emphasizing the importance of friendship and acceptance. 
 
-These immersive tales are sure to captivate your readers, making them a joy to narrate aloud. As paperbacks, this collection is a fantastic addition to any growing child's literary growth plan. Although some may perceive the cost to be slightly elevated, the exceptional quality and originality of the stories make it a worthy investment. 
+These immersive tales are sure to captivate your readers, making them a joy to narrate aloud. [As paperbacks, this collection is a fantastic addition to any growing child's literary growth plan.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Book-Shelf-For-Kids.md) Although some may perceive the cost to be slightly elevated, the exceptional quality and originality of the stories make it a worthy investment. 
 
 
 ### [Leo Lionni's Classic Swimmy Book](https://serp.ly/@bar/amazon/Leo+Lionni+Books?utm\_term=leo-lionnis-classic-swimmy-book)

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Anne-Rice-Books.md
 
 # Immerse Yourself in the Immortal Worlds -  26 Best Anne Rice Books for Unforgettable Reading
 
-Embark on a literary journey with us as we delve into the world of Anne Rice, a renowned American author known for her captivating supernatural novels. In this comprehensive roundup, we'll be exploring the diverse array of Anne Rice books with a focus on their storytelling, characters, and overall impact on the literary landscape. Join us as we shed light on the captivating tales woven by this brilliant author. 
+[Embark on a literary journey with us as we delve into the world of Anne Rice, a renowned American author known for her captivating supernatural novels.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Anne-Rice-Books.md) In this comprehensive roundup, we'll be exploring the diverse array of [Anne Rice books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Anne-Rice-Books.md) with a focus on their storytelling, characters, and overall impact on the literary landscape. Join us as we shed light on the captivating tales woven by this brilliant author. 
 
 *As an Amazon Affiliate™, we receive compensation from qualified purchases.*
 

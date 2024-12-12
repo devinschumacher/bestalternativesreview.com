@@ -30,7 +30,7 @@ However, while I love the comfort and performance of these undersummers, there i
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Boxers+With+Pockets?utm_term=xl-mens-pouch-underwear-classic-boxers-with-pockets"><img alt="bn3th-xl-mens-pouch-underwear-black-classic-boxer-brief-fly-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bn3th-xl-mens-pouch-underwear-black-classic-boxer-brief-fly-1/h=540,fit=pad,background=black"/></a></div>
 
-Experience ultimate comfort and support with the BN3TH Men's Classic Fly Boxer Briefs. These boxer briefs are made from a luxuriously soft blend of modal and spandex fabric, providing a lightweight, breathable wear. 
+Experience ultimate comfort and support with the BN3TH Men's Classic Fly [Boxer Briefs](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boxer-Briefs.md). These boxer briefs are made from a luxuriously soft blend of modal and spandex fabric, providing a lightweight, breathable wear. 
 
 The patented MyPakage Technology ensures a three-dimensional pouch that eliminates the need for any shifting or adjusting throughout your day. The boxer briefs feature a traditional fly design, offering easy access and convenience. 
 
@@ -146,7 +146,7 @@ Despite the minor inconveniences, the Male Power 132-235 Pocket Pouch Cavity Box
 
 ## Buyer's Guide
 
-When it comes to choosing the right boxers with pockets, there are several factors you should consider to ensure comfort, durability, and style. In this buyer's guide, we'll help you navigate the world of men's underwear by discussing important features and considerations. We'll also provide you with general advice to ensure you make the best possible purchase. 
+When it comes to choosing the right [boxers with pockets](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boxers-With-Pockets.md), there are several factors you should consider to ensure comfort, durability, and style. In this buyer's guide, we'll help you navigate the world of men's underwear by discussing important features and considerations. We'll also provide you with general advice to ensure you make the best possible purchase. 
 
 
 ### Concept of Fit

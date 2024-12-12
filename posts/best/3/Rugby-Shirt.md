@@ -19,7 +19,7 @@ Gear up in Rugby style for a classic look that never goes out of fashion! Dive i
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Rugby+Shirt?utm_term=vineyard-vines-mens-cotton-rugby-shirt"><img alt="vineyard-vines-mens-cotton-rugby-shirt-forest-olive-size-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/vineyard-vines-mens-cotton-rugby-shirt-forest-olive-size-medium-1/h=540,fit=pad,background=black"/></a></div>
 
-Bring some classic style to your wardrobe with the Vineyard Vines Men's Cotton Rugby Shirt. This versatile piece exudes both comfort and sophistication, perfectly balancing the athleisure trend. 
+Bring some classic style to your wardrobe with the Vineyard Vines Men's Cotton [Rugby Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rugby-Shirt.md). This versatile piece exudes both comfort and sophistication, perfectly balancing the athleisure trend. 
 
 The Forest Olive shade adds a touch of earthy charm, making it effortlessly stylish for any casual or dressier occasion. Available in Medium size, this shirt is not just a fashion statement, but a testament to timeless elegance. 
 

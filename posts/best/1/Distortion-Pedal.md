@@ -34,7 +34,7 @@ However, I did notice that the pedal was not the best option for those looking f
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Distortion+Pedal?utm_term=acapulco-gold-v2-power-amp-distortion-pedal"><img alt="earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/earthquaker-devices-acapulco-gold-v2-power-amp-distortion-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
-Holding the EarthQuaker Devices Acapulco Gold V2 Power Amp Distortion Pedal in your hands gives you the sensation of having a classic tube amp's master volume knob right at your fingertips. Featuring a massive knob to adjust the volume for an elevated performance, this distortion pedal delivers top-notch audio output. The gold accents contribute to its vintage allure, while the tone covers a vast array of gritty tones that are exceptionally sensitive to your guitar's volume and tone settings.
+Holding the EarthQuaker Devices Acapulco Gold V2 Power Amp [Distortion Pedal](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Distortion-Pedal.md) in your hands gives you the sensation of having a classic tube amp's master volume knob right at your fingertips. Featuring a massive knob to adjust the volume for an elevated performance, this distortion pedal delivers top-notch audio output. The gold accents contribute to its vintage allure, while the tone covers a vast array of gritty tones that are exceptionally sensitive to your guitar's volume and tone settings.
 
 The enhanced silent switching system sets this pedal apart from its predecessor. Although it can be quite loud, it's fantastic for increasing volume, adding texture, and infusing distortion into your sound. The one-knob control design makes it user-friendly, and the sound is incredibly receptive to your playing style.
 
@@ -97,7 +97,7 @@ So, if you're looking for a distortion pedal that will give your music a grunge-
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Distortion+Pedal?utm_term=jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal"><img alt="jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/jhs-pedals-charlie-brown-v4-overdrive-distortion-guitar-effects-pedal-1/h=540,fit=pad,background=black"/></a></div>
 
-The JHS Pedals Charlie Brown V4 overdrive pedal has brought a whole new level of warmth and character to my amp. As someone who enjoys classic rock and blues, this pedal is a dream come true. It's so true to its original JTM45 heritage, giving it that rich, full sound that made rock 'n' roll what it is today. 
+The JHS Pedals Charlie Brown V4 [overdrive pedal](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Overdrive-Pedal.md) has brought a whole new level of warmth and character to my amp. As someone who enjoys classic rock and blues, this pedal is a dream come true. It's so true to its original JTM45 heritage, giving it that rich, full sound that made rock 'n' roll what it is today. 
 
 What really stands out is the amount of flexibility this V4 model provides. With the added Bass, Mids, and Treble controls, you can truly fine-tune the sound to your liking. It's a gentle journey of discovering the perfect setup for your amp. The Drive knob is a true master of its craft; whether you're looking for a subtle grit or an all-out high-gain overdrive, it's got you covered. 
 
@@ -465,7 +465,7 @@ The Packrat is not only easy to use but also boasts a distinctive size that fits
 
 Switching between the 9 legendary sound modes is a breeze, and it's amazing to note that these aren't digitally emulated; each selected mode is fully analog, providing a true-to-origin experience. This meticulous attention to detail is what makes the Packrat a game-changer for those passionate about distortion and guitar tones. 
 
-One thing I could say from a personal experience is that it can sometimes pick up unwanted audio if placed right next to other equipment like my amp or a microphone. But that has never really bothered me during gigs or practice. 
+One thing I could say from a personal experience is that it can sometimes pick up unwanted audio if placed right next to other equipment like my amp or a [microphone](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Microphone.md). But that has never really bothered me during gigs or practice. 
 
 Overall, the JHS Packrat Distortion Pedal is a reliable and versatile pedal packed with a history of influential and iconic guitar tones. A perfect tool for any musician looking to add depth and character to their sound. 
 
@@ -528,7 +528,7 @@ The frequency range of 100Hz - 1kHz means you can experiment with a wide variety
 
 This pedal is equipped with High Pass Frequency Controls, High Drive, High Level, Low Pass Frequency Controls, Low Comp, Low Level, and Master, providing different levels of distortion and compression control. And to top it all off, it comes with a Parallel Output for passthrough of your input signal and a Direct Output for a balanced version of the output, perfect for running into PA systems or studio mixing consoles. 
 
-The X7 is powered by 9V - 18V and has an input impedance of 1 Mega ohms. It might be a bit pricey, but trust us, it's worth every penny for what it offers. The reviews are overwhelmingly positive, with a rating of 4.9 out of 5. Users have praised this pedal for its incredible tone, variety of sounds, and the high-quality design. So, if you're a bass player looking to take your sound to the next level, give the Darkglass Microtubes X7 Bass Distortion Pedal a try. You won't be disappointed! 
+The X7 is powered by 9V - 18V and has an input impedance of 1 Mega ohms. It might be a bit pricey, but trust us, it's worth every penny for what it offers. The reviews are overwhelmingly positive, with a rating of 4.9 out of 5. Users have praised this pedal for its incredible tone, variety of sounds, and the high-quality design. [So, if you're a bass player looking to take your sound to the next level, give the Darkglass Microtubes X7 Bass Distortion Pedal a try.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bass-Pedals.md) You won't be disappointed! 
 
 
 ### [ProCo Deucetone Rat Distortion Pedal: Versatile Analog Guitar Effect](https://serp.ly/@bar/amazon/Distortion+Pedal?utm\_term=proco-deucetone-rat-distortion-pedal-versatile-analog-guitar-effect)

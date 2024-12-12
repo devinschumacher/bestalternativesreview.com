@@ -32,7 +32,7 @@ As someone who's always been a fan of skateboarding, I was intrigued to try the 
 
 The interior organization compartment was also a handy addition for storing smaller items. However, the 30L volume seemed a bit on the smaller side for those with larger items to carry. And while it was made from 100% polyester, it felt a bit cheap in hand. 
 
-Overall, a functional and stylish skateboard backpack for those who need to carry their board on the go. 
+Overall, a functional and stylish [skateboard backpack](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Skateboard-Backpack.md) for those who need to carry their board on the go. 
 
 
 ### [Enuff Skateboards Skully Complete Skateboard Backpack - Black](https://serp.ly/@bar/amazon/Skateboard+Backpack?utm\_term=enuff-skateboards-skully-complete-skateboard-backpack-black)
@@ -56,7 +56,7 @@ The first thing I noticed about this backpack is how comfortable it is. The airf
 
 One of the standout features is the side and front pockets. They're perfect for storing your phone, wallet, and other small items, freeing up more space in the main compartment for your skateboard. The rain cover is also a great feature that helps protect your skates from the elements. 
 
-Of course, no backpack is perfect, and the Seba Skates - Large Back Pack Black is no exception. While the design is slim and comfortable, the backpack might not be large enough for users who need to carry more items. Also, the backpack is very much intended for skaters - it might not be the most practical choice for a casual user. 
+Of course, no backpack is perfect, and the Seba Skates - Large Back Pack Black is no exception. [While the design is slim and comfortable, the backpack might not be large enough for users who need to carry more items.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Big-Backpacks-For-Travel.md) Also, the backpack is very much intended for skaters - it might not be the most practical choice for a casual user. 
 
 In conclusion, the Seba Skates - Large Back Pack Black is a fantastic backpack for any skater. Its design is perfect for carrying a skateboard, and its comfortable airflow system ensures that you stay cool, even during the hottest days. While it might not be the most versatile option for a casual user, it's an invaluable accessory for any skater looking for a stylish and functional way to carry their gear. 
 
@@ -168,7 +168,7 @@ For the past few weeks, I've been testing out the Volcom Skate Backpack during m
 
 I recently had the chance to try out the Nike SB RPM Backpack, and I must say, it's a standout choice for carrying your skateboard and daily essentials. One of the first things I noticed is how comfortable it felt to wear, thanks to the curved shoulder straps that evenly distribute the load. Another great feature is the zippered main compartment, which keeps your belongings safe and secure. 
 
-This backpack is designed with a mix of practicality and style. The separated padded 15-inch laptop compartment is a nice bonus, perfect for carrying your tech on the go. The mesh inner pocket is a thoughtful touch, allowing for smaller items to be easily sorted and accessed. Additionally, the durable, heavyweight material ensures that the backpack can handle the abuse it might encounter while on the go. 
+[This backpack is designed with a mix of practicality and style.](https://gist.github.com/janeknowsbest77/d5f563ebcc1b2bcd3521be51fdfc5852) The separated padded 15-inch laptop compartment is a nice bonus, perfect for carrying your tech on the go. The mesh inner pocket is a thoughtful touch, allowing for smaller items to be easily sorted and accessed. Additionally, the durable, heavyweight material ensures that the backpack can handle the abuse it might encounter while on the go. 
 
 While the backpack looks amazing, there are a couple of minor drawbacks to mention. The high price tag might be a deterrent for some, and the lack of weather resistance means this backpack is best used in dry conditions. However, overall, the Nike SB RPM Backpack is a solid choice for those who need a dependable, comfortable, and stylish skateboard backpack. 
 

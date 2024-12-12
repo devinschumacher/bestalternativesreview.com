@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Headers-For-Cars.md
 
 # Upgrade Your Car's Performance -  Top 20 Headers for Superior Sound and Power
 
-If you're looking to create a stunning look for your car, headers are an essential component. In this article, we're rounding up the best headers for cars that not only enhance your vehicle's appearance but also boost its performance. Get ready to transform your ride with our top picks! 
+If you're looking to create a stunning look for your car, headers are an essential component. In this article, we're rounding up the best [headers for cars](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Headers-For-Cars.md) that not only enhance your vehicle's appearance but also boost its performance. Get ready to transform your ride with our top picks! 
 
 *As an Amazon Affiliate™, we may earn from qualifying purchases at no cost to you*
 
@@ -161,7 +161,7 @@ In summary, if you're looking to seriously upgrade your vehicle's performance, t
 
 Looking for a high-quality header to enhance your car's performance? The ZZP Ecotec Shorty Header might be just what you need. This stainless header is designed to fit in place of the stock manifold and connects seamlessly to an OEM-style downpipe. With a 1 5/8" primary and a 3" exit flange, it offers impressive performance improvements, particularly in torque. 
 
-The header comes with new head-to-header and header-to-downpipe gaskets, along with bolts, nuts, and washers for connecting to the downpipe. For added convenience, you can reuse the factory exhaust manifold bolts. However, it's essential to note that this header does not fit on turbo setups or some model years and chassis, as mentioned in the description. 
+The header comes with new head-to-header and header-to-downpipe gaskets, along with bolts, nuts, and [washers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Washers.md) for connecting to the downpipe. For added convenience, you can reuse the factory [exhaust manifold bolts](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Exhaust-Manifold-Bolts.md). However, it's essential to note that this header does not fit on turbo setups or some model years and chassis, as mentioned in the description. 
 
 Installing the header may require some effort, especially when removing it from the downpipe. The reviewer recommends using an U joint and penetrating fluid to loosen the bolts. Additionally, removing the plastic housing for the wipers can provide additional space during installation. Overall, the ZZP Ecotec Shorty Header is a top-rated product, offering noticeable power improvements and a satisfying installation experience. 
 

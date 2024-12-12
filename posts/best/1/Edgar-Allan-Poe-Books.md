@@ -184,7 +184,7 @@ Complete with an insightful introduction by distinguished historian and biograph
 
 ## Buyer's Guide
 
-Welcome to our buyer's guide section for Edgar Allan Poe books. In this section, we will provide you with essential information about this product category, including important features, considerations, and general advice to help you make an informed decision when purchasing Edgar Allan Poe books. 
+Welcome to our buyer's guide section for [Edgar Allan Poe books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Edgar-Allan-Poe-Books.md). In this section, we will provide you with essential information about this product category, including important features, considerations, and general advice to help you make an informed decision when purchasing Edgar Allan Poe books. 
 
 
 ### Overview of Edgar Allan Poe Books

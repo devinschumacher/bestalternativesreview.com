@@ -123,7 +123,7 @@ This dress, which is exclusively found at Target, can be a great option for work
 
 ## Buyer's Guide
 
-A white shirt dress is a versatile and classic piece that can elevate any wardrobe. Whether you're looking for something to wear to work, a casual outing, or a special event, a white shirt dress is a reliable wardrobe staple. In this buyer's guide, we're going to go over the essential features, considerations, and advice to help you make an informed purchase. 
+A [white shirt dress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-Shirt-Dress.md) is a versatile and classic piece that can elevate any wardrobe. Whether you're looking for something to wear to work, a casual outing, or a special event, a white shirt dress is a reliable wardrobe staple. In this buyer's guide, we're going to go over the essential features, considerations, and advice to help you make an informed purchase. 
 
 
 ### Key Features

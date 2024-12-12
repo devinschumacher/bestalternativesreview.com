@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Purple-Puppet.md
 
 # Step into a Magical World -  Our Top 11 Purple Puppet Toys for Kids
 
-Get ready for a whimsical journey into the world of Purple Puppet as we present you with a delightful roundup of stunning puppets designed to capture your hearts. From fluffy to fantastical, explore an array of captivating creations that are sure to enchant and entertain. 
+Get ready for a whimsical journey into the world of [Purple Puppet](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Purple-Puppet.md) as we present you with a delightful roundup of stunning puppets designed to capture your hearts. From fluffy to fantastical, explore an array of captivating creations that are sure to enchant and entertain. 
 
 *As an Amazon Associate we may earn from qualifying purchases at no cost to you*
 

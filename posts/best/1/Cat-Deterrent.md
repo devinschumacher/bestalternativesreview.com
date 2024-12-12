@@ -45,7 +45,7 @@ Despite these minor setbacks, I'm genuinely impressed by Bodhi Dog's Cat No More
 
 Recently, I moved into a new home with my furry companions, and they seemed to take a liking to some of my most treasured belongings - like the kitchen counters and trash cans. Desperate for an efficient solution, I stumbled upon the Berkland pet spray refills for the PetSafe SSSCat Spray System. 
 
-This motion-detector air spray proved to be a game-changer. With the humane and safe air blaster, my pets started to train themselves to stay away from trouble spots. The odorless and non-flammable cat deterrent indoor refill cans were not only safe for my pets but also kept my furniture stains-free. 
+This motion-detector air spray proved to be a game-changer. With the humane and safe air blaster, my pets started to train themselves to stay away from trouble spots. The odorless and non-flammable [cat deterrent](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cat-Deterrent.md) indoor refill cans were not only safe for my pets but also kept my furniture stains-free. 
 
 But, let's be honest, there were a few cons. Firstly, the 3.89 ounce cans didn't last as long as I hoped. Secondly, it wasn't the most convenient to store multiple cans in the house. Considering these factors, I'd recommend the Berkland pet spray refills to anyone looking for a pet-proof home environment without resorting to harsh chemicals. It may not fully eliminate the pet-related damage entirely, but it does make a significant difference. 
 

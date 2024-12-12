@@ -47,7 +47,7 @@ Overall, Amelia's Bully Survival Guide is a must-read for anyone looking to make
 
 I recently came across the Lamy Softcover A5 Notebook, and let me tell you, it's seriously a game-changer! With its sleek and minimalistic design in charcoal color, this notebook is perfect for jotting down all those random musings and important notes. I especially love the unique page layout - it blends ruled and grid lines in an elegant and thoughtful way, making it suitable for both large and small handwriting styles. 
 
-The notebook's 192 pages are made with 90 gsm bleed-proof paper, which ensures that your ink always stays put, even when you're using a fountain pen. Plus, the soft cover design adds a touch of class, and the elastic closure strap keeps everything secure and organized. As someone who appreciates quality products and seamless craftsmanship, the Lamy Softcover A5 Notebook certainly exceeded my expectations. I would definitely recommend this product to anyone in search of the perfect notebook for their writing needs! 
+The notebook's 192 pages are made with 90 gsm bleed-proof paper, which ensures that your ink always stays put, even when you're using a [fountain pen](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fountain-Pen.md). Plus, the soft cover design adds a touch of class, and the elastic closure strap keeps everything secure and organized. As someone who appreciates quality products and seamless craftsmanship, the Lamy Softcover A5 Notebook certainly exceeded my expectations. I would definitely recommend this product to anyone in search of the perfect notebook for their writing needs! 
 
 
 ### [Ultra Lined Softcover Journal Inspired by Parisian Luxury](https://serp.ly/@bar/amazon/Amelias+Notebook?utm\_term=ultra-lined-softcover-journal-inspired-by-parisian-luxury)
@@ -254,7 +254,7 @@ Lambaste, a grumpy history teacher who's tough but fair. Amelia's 6th-Grade Note
 
 ## Buyer's Guide
 
-Finding the perfect Amelias Notebook can be a daunting task. With so many options available, it's crucial to consider the essential features and features that matter most to you. In this buyer's guide, we'll explore the important aspects of Amelias Notebooks, offering you valuable insights and advice to make an informed decision. 
+Finding the perfect [Amelias Notebook](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Amelias-Notebook.md) can be a daunting task. With so many options available, it's crucial to consider the essential features and features that matter most to you. In this buyer's guide, we'll explore the important aspects of Amelias Notebooks, offering you valuable insights and advice to make an informed decision. 
 
 
 ### Important Features to Consider

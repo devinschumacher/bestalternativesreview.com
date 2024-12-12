@@ -98,7 +98,7 @@ Overall, the Michael Jackson Armor Pop! Vinyl from Funko Rocks is a worthy addit
 
 This Funko Pop! figure of Michael Jackson stands at approximately 9cm and comes in a collector's friendly window display box. 
 
-Known for their unique style and unmatched level of detail, each Funko Pop offers a charming interpretation of your favorite characters from film, television, games, and popular culture. With its iconic design and recognizable shape, this Michael Jackson Funko Pop adds a touch of magic to any shelf, desk, or exhibition. Whether you're a seasoned collector or just starting your journey, this figure is sure to become a cherished addition to your collection. 
+[Known for their unique style and unmatched level of detail, each Funko Pop offers a charming interpretation of your favorite characters from film, television, games, and popular culture.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Daredevil-Funko-Pop.md) With its iconic design and recognizable shape, this [Michael Jackson Funko Pop](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Michael-Jackson-Funko-Pop.md) adds a touch of magic to any shelf, desk, or exhibition. Whether you're a seasoned collector or just starting your journey, this figure is sure to become a cherished addition to your collection. 
 
 Start or expand your Funko Pop collection with this iconic King of Pop figure. 
 

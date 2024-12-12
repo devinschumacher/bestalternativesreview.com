@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Wicker-Shelving.md
 
 # Elevate Your Storage Game -  Top 11 Wicker Shelving Picks for Style and Functionality
 
-Get ready to transform your living or work space with our curated selection of **Wicker Shelving**! These versatile pieces not only add a touch of elegance to any room, but also provide practical storage solutions. In this roundup, we've gathered the best wicker shelving options on the market, so sit back, relax, and start envisioning your newly organized space. 
+Get ready to transform your living or work space with our curated selection of **[Wicker Shelving](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wicker-Shelving.md)**! These versatile pieces not only add a touch of elegance to any room, but also provide practical storage solutions. In this roundup, we've gathered the best wicker shelving options on the market, so sit back, relax, and start envisioning your newly organized space. 
 
 *As an Amazon Affiliate I earn from qualifying purchases*
 

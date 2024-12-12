@@ -38,7 +38,7 @@ Carrying this bag is a breeze, thanks to the secure and comfortable handle made 
 
 However, I noticed that the leather surface can be tricky to maintain, especially with a vintage look like this one. The scratches are indeed part of the charm, but they can sometimes get in the way of my meticulous packing routine. 
 
-Overall, this duffel bag is a fantastic choice for those who appreciate both style and practicality. It's got all the right features for a weekend getaway, even if it might need a bit of extra TLC. 
+[Overall, this duffel bag is a fantastic choice for those who appreciate both style and practicality.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Duffel-Bags.md) It's got all the right features for a weekend getaway, even if it might need a bit of extra TLC. 
 
 
 ### [Canvas & Faux Leather Weekender Bag](https://serp.ly/@bar/amazon/Canvas+Weekender+Bag?utm\_term=canvas-faux-leather-weekender-bag)
@@ -190,7 +190,7 @@ This bag comes equipped with a removable and adjustable shoulder strap, allowing
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Canvas+Weekender+Bag?utm_term=chicago-natural-canvas-weekender-bag-for-macys"><img alt="chicago-large-canvas-weekender-bag-created-for-macys-natural-canvas-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chicago-large-canvas-weekender-bag-created-for-macys-natural-canvas-1/h=540,fit=pad,background=black"/></a></div>
 
-This stunning Chicago Large Canvas Weekender Bag offers a perfect blend of style and practicality. Made from an extra large tote, it provides ample space for your belongings, making it a great choice for weekend trips or week-long vacations. 
+This stunning Chicago Large [Canvas Weekender Bag](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Canvas-Weekender-Bag.md) offers a perfect blend of style and practicality. Made from an extra large tote, it provides ample space for your belongings, making it a great choice for weekend trips or week-long vacations. 
 
 The stylish bag features a coated canvas exterior and a thin strap that adds a relaxed touch to its overall look. Its interior pocket keeps your small essentials organized and the word embellishments add a charming touch. Despite its practicality, some users might find it a bit smaller than expected, calling it a medium to a large-sized tote. 
 

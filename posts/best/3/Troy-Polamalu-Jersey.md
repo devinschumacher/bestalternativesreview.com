@@ -161,7 +161,7 @@ During a recent game watch party, I sported the Pittsburgh Steelers Troy Polamal
 
 One downside, however, is the fit. As a fan, I wanted a more snug fit for the jersey. I ordered a size larger than my usual size and had to get it tailored for the perfect fit. In terms of sustainability, the jersey encourages discards, repurposing, or donating it to a local charity if it's in good condition. 
 
-Overall, the Troy Polamalu Jersey has become a key part of my game-day outfit and is certainly worth investing in. 
+Overall, the [Troy Polamalu Jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Troy-Polamalu-Jersey.md) has become a key part of my game-day outfit and is certainly worth investing in. 
 
 
 ## Buyer's Guide

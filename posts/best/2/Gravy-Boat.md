@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Gravy-Boat.md
 
 # Flavorful Fare -  20 Best Gravy Boats for Enhancing Your Culinary Creations
 
-Get ready to dive into the world of gravy boats as we round up the best products on the market. In this article, we'll take a closer look at the features and benefits of each gravy boat, helping you make the most informed decision when it comes to adding that perfect finishing touch to your dining experience. 
+[Get ready to dive into the world of gravy boats as we round up the best products on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gravy-Boat.md) In this article, we'll take a closer look at the features and benefits of each [gravy boat](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gravy-Boat.md), helping you make the most informed decision when it comes to adding that perfect finishing touch to your dining experience. 
 
 *As an Amazon Affiliate™, we earn through qualifying purchases at no cost to you.*
 
@@ -36,7 +36,7 @@ I recently found myself hosting a dinner party, and needed a gravy boat to perfe
 
 The first thing that struck me was the beautifully intricate hand-cut and mouth-blown Irish-inspired crystal design. It added a touch of elegance to the table, and the vibrant colors on the gravy boat really made it shine. The lead-free crystal made me feel good about using it, knowing that it was safe for my guests. 
 
-The gravy boat had a 7" width and a 4 5/8" height, making it a perfect size for serving at the dinner table. It holds a generous 9 oz, which was just enough to accommodate a family dinner. After washing it by hand, I felt that it required a little more attention than some of my other serving dishes, but the intricate detailing made it well worth the effort. 
+The gravy boat had a 7" width and a 4 5/8" height, making it a perfect size for serving at the dinner table. It holds a generous 9 oz, which was just enough to accommodate a family dinner. After washing it by hand, I felt that it required a little more attention than some of my other [serving dishes](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Serving-Dishes.md), but the intricate detailing made it well worth the effort. 
 
 Overall, the Godinger Shannon Crystal Gravy Boat was a stunning addition to my dinner table, and it made a splendid impression on my guests. Thanks to the beautiful artistry and quality crystal, it's sure to make a lasting impression for any special occasion. 
 
@@ -199,7 +199,7 @@ The 14-ounce capacity, plastic insert, easy serve spout, and hinged lid make thi
 
 The Over and Back Gravy Boat Set is a lovely addition to any dining table, perfect for holiday feasts or special gatherings. Made of durable stoneware, these gravy boats are both microwave and dishwasher safe, making them easy to use and clean. 
 
-I recently used this set at a dinner party and loved how the classic design added a charming touch to the table. The sauce stayed warm and delectable, impressing my guests with its smooth pour every time. Overall, this set combines style and practicality for a truly exceptional dining experience. 
+I recently used this set at a dinner party and loved how the classic design added a charming touch to the table. The sauce stayed warm and delectable, impressing my guests with its smooth pour every time. [Overall, this set combines style and practicality for a truly exceptional dining experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/8-Piece-Dining-Set.md) 
 
 
 ### [Whittier 20 oz Gravy Boat - White](https://serp.ly/@bar/amazon/Gravy+Boat?utm\_term=whittier-20-oz-gravy-boat-white)

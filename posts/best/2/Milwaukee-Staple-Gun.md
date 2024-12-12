@@ -52,7 +52,7 @@ The stapler's sequential and contact actuation trigger allows for seamless switc
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Milwaukee+Staple+Gun?utm_term=milwaukee-m18-fuel-cordless-staple-gun-with-compact-battery"><img alt="milwaukee-2749-20-48-11-1820-m18-fuel-18-volt-lithium-brushless-cordless-18-gauge-1-4-in-narrow-crow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/milwaukee-2749-20-48-11-1820-m18-fuel-18-volt-lithium-brushless-cordless-18-gauge-1-4-in-narrow-crow-1/h=540,fit=pad,background=black"/></a></div>
 
-Working with this Milwaukee staple gun is a game-changer. Say goodbye to the days of lugging around a heavy air compressor and hose. 
+Working with this [Milwaukee staple gun](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Milwaukee-Staple-Gun.md) is a game-changer. Say goodbye to the days of lugging around a heavy air compressor and hose. 
 
 With the M18 FUEL 18-Volt Lithium Brushless Cordless 18-Gauge 1/4 in. Narrow Crown Stapler, I was able to staple away in tight spaces without breaking a sweat. 
 

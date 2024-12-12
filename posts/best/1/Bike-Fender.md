@@ -21,7 +21,7 @@ Get ready to ride without any worries as we present our top picks for the best b
 
 I recently gave the RockShox MTB Fender Grey a try on my mountain bike and let me tell you, it's an excellent addition to my ride. The deep side skirts do an incredible job of keeping mud and dirt away from the vital parts of the fork and my body. The nine color options are a great feature for those who love a bit of customization, and with the four beefy zip ties for installation, I was able to get to the trailhead promptly, without worrying about cleaning up any mess. 
 
-One downside, however, was the plastic's glossy finish, which made it look a bit more like a dark grey than the deep black it appeared in the pictures. Overall, the RockShox MTB Fender Grey exceeded my expectations with its sleek design, effective protection, and ease of installation. I'd highly recommend it to anyone looking for a high-quality bike fender. 
+One downside, however, was the plastic's glossy finish, which made it look a bit more like a dark grey than the deep black it appeared in the pictures. Overall, the RockShox MTB Fender Grey exceeded my expectations with its sleek design, effective protection, and ease of installation. I'd highly recommend it to anyone looking for a high-quality [bike fender](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bike-Fender.md). 
 
 
 ### [Untamed Black/White Sparkle Bike Fenders by Ground Keeper Fender](https://serp.ly/@bar/amazon/Bike+Fender?utm\_term=untamed-black-white-sparkle-bike-fenders-by-ground-keeper-fender)
@@ -65,7 +65,7 @@ I recently got my hands on the Handsome Cycles Mud Butler Hammered Fender Set, a
 
 The front and rear mudguards provide full coverage, perfect for handling those pesky puddles on the road. What really sets these apart is the sturdy PVC coated rear bridge clip that firmly holds the fenders in place. No more rattling, just smooth sailing. 
 
-Another great feature is the pre-drilled holes for easy installation. The hardware itself comes with leather washers included for added durability and a touch of class. And not to mention, these fenders fit 700c wheels like a glove. 
+Another great feature is the pre-drilled holes for easy installation. The hardware itself comes with leather [washers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Washers.md) included for added durability and a touch of class. And not to mention, these fenders fit 700c wheels like a glove. 
 
 As someone who appreciates form and function, I was pleasantly surprised by the matte black powder-coated finish. It gives these fenders a sophisticated and sleek look that complements any bike beautifully. 
 
@@ -214,7 +214,7 @@ Overall, the Portland Design Works Sodapop FrameMount Fenders were a useful addi
 
 The RBRL Bike Fender Set is designed for universal use and is compatible with MTB, Mud Guard, and anti-splash tires. The adjustable strap installation ensures the mudguard rotates 360 degrees, making it easy to adjust the angle for maximum coverage and protection. The durable high-quality anti-pressure material is made from PVC, offering impact resistance, break-resistance, and environmental protection. 
 
-The rear part of the fender is made of soft TPE rubber, and the shock absorber is designed not to break in a collision. The innovative bicycle fender installation uses an arm support design with strap installation, ensuring a firm hold on any vehicle. The thickened and widened design of the streamline shape bike mudguard provides an attractive appearance while also reducing wind resistance and offering protection from splashing water and dirt. 
+The rear part of the fender is made of soft TPE rubber, and the [shock absorber](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shock-Absorber.md) is designed not to break in a collision. The innovative bicycle fender installation uses an arm support design with strap installation, ensuring a firm hold on any vehicle. The thickened and widened design of the streamline shape bike mudguard provides an attractive appearance while also reducing wind resistance and offering protection from splashing water and dirt. 
 
 This fender set is versatile and suitable for most 24-29-inch bicycles, including suspension bikes. Its innovative installation design ensures the mudguard can be installed directly on the seat stay. With the included installation accessories, this product is a great fit for riders who want an effective and stylish fender for their bike. 
 

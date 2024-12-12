@@ -210,7 +210,7 @@ It did come as a surprise that the shirt was available as a gift idea, but after
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Jimi+Hendrix+T+Shirt?utm_term=lucky-brand-tribute-to-jimi-hendrix-t-shirt-in-misted-yellow"><img alt="lucky-brand-jimi-hendrix-photo-graphic-t-shirt-in-misted-yellow-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/lucky-brand-jimi-hendrix-photo-graphic-t-shirt-in-misted-yellow-1/h=540,fit=pad,background=black"/></a></div>
 
-Delve into the iconic world of music with the Lucky Brand Jimi Hendrix T Shirt. This stylish piece is an ode to the legendary guitarist, adorning the front with a distinct graphic of Hendrix in his element. Crafted from all-cotton, it provides you with an optimum blend of comfort and style, making it your go-to for any casual occasion. 
+Delve into the iconic world of music with the Lucky Brand [Jimi Hendrix T Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Jimi-Hendrix-T-Shirt.md). This stylish piece is an ode to the legendary guitarist, adorning the front with a distinct graphic of Hendrix in his element. Crafted from all-cotton, it provides you with an optimum blend of comfort and style, making it your go-to for any casual occasion. 
 
 The Jimi Hendrix T Shirt boasts a relaxed, comfortable fit, accentuated by the crewneck and short sleeves design. With its 100% cotton fabric, it's perfect for machine wash and tumble dry. It's a testament to Lucky Brand's attention to detail, promising quality and durability for every wear. 
 

@@ -19,7 +19,7 @@ Get ready to transform your fan into a stylish lighting fixture with our roundup
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Fan+Light+Kit?utm_term=kichler-universal-led-fan-light-kit-modern-efficient-and-versatile"><img alt="kichler-universal-led-fan-light-kit-white-11" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kichler-universal-led-fan-light-kit-white-11/h=540,fit=pad,background=black"/></a></div>
 
-This Kichler Universal LED Fan Light Kit, available in a stylish white 10-inch size, is designed with versatility in mind. The 2600 lumens provide a bright light output, making it perfect for illuminating any room. It's effortlessly easy to install, thanks to its no finish ring design, and can be used with various ceiling fan finishes. 
+This Kichler Universal LED [Fan Light Kit](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fan-Light-Kit.md), available in a stylish white 10-inch size, is designed with versatility in mind. The 2600 lumens provide a bright light output, making it perfect for illuminating any room. It's effortlessly easy to install, thanks to its no finish ring design, and can be used with various ceiling fan finishes. 
 
 Users appreciate its consistent dimming feature, allowing them to adjust the lighting to suit their needs in different spaces throughout the day. This modern update to a classic light kit offers a sleek and sophisticated look that seamlessly integrates with a range of fan types. 
 

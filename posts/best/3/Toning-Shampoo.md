@@ -30,18 +30,18 @@ However, the only downside of this product might be its detangling abilities. So
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Toning+Shampoo?utm_term=revitalizing-barcelona-pulp-riot-toning-shampoo"><img alt="barcelona-pulp-riot-toning-shampoo-10-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/barcelona-pulp-riot-toning-shampoo-10-oz-1/h=540,fit=pad,background=black"/></a></div>
 
-Barcelona Pulp Riot Toning Shampoo is a game-changer for those seeking to maintain vibrant, cool-toned blonde, grey, or highlighted hair. This vegan, sulfate-free formula packs a punch with quinoa extract for nourishment, safflower seed oil to keep hair hydrated, and rice protein to provide strength and volume. 
+Barcelona Pulp Riot [Toning Shampoo](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Toning-Shampoo.md) is a game-changer for those seeking to maintain vibrant, cool-toned blonde, grey, or highlighted hair. This vegan, sulfate-free formula packs a punch with quinoa extract for nourishment, safflower seed oil to keep hair hydrated, and rice protein to provide strength and volume. 
 
-The shampoo effectively reduces the appearance of brassy tones while extending color longevity. But remember, patience is key; follow the stylist's recommended duration for achieving the perfect cool shade. 
+[The shampoo effectively reduces the appearance of brassy tones while extending color longevity.](https://gist.github.com/janeknowsbest77/6c64d93992d23ee6588eaecd13722d17) But remember, patience is key; follow the stylist's recommended duration for achieving the perfect cool shade. 
 
 
 ### [Aveda Blonde Revival Purple Toning Shampoo for Radiant Blonde Hair](https://serp.ly/@bar/amazon/Toning+Shampoo?utm\_term=aveda-blonde-revival-purple-toning-shampoo-for-radiant-blonde-hair)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Toning+Shampoo?utm_term=aveda-blonde-revival-purple-toning-shampoo-for-radiant-blonde-hair"><img alt="aveda-blonde-revival-purple-toning-shampoo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/aveda-blonde-revival-purple-toning-shampoo-1/h=540,fit=pad,background=black"/></a></div>
 
-While I was searching for a new hair care solution to prevent my blonde hair from turning brassy, I stumbled upon Aveda's Blonde Revival Purple Toning Shampoo and conditioner. My first encounter with the product was a bit underwhelming. The instructions on the shampoo bottle are misleading, but I gave it a try anyway. 
+[While I was searching for a new hair care solution to prevent my blonde hair from turning brassy, I stumbled upon Aveda's Blonde Revival Purple Toning Shampoo and conditioner.](https://gist.github.com/janeknowsbest77/73d07c342b5a66ae360e21c5726bc182) My first encounter with the product was a bit underwhelming. The instructions on the shampoo bottle are misleading, but I gave it a try anyway. 
 
-One of the highlights I noticed was the scent—it was a fresh, pleasant fragrance that lingered for a while. However, the shampoo itself was too gentle, leaving my hair feeling more oily than clean. I found it difficult to work the product into a lather, unlike traditional shampoos, which I felt took away from the cleansing experience. 
+One of the highlights I noticed was the scent—it was a fresh, pleasant fragrance that lingered for a while. [However, the shampoo itself was too gentle, leaving my hair feeling more oily than clean.](https://gist.github.com/janeknowsbest77/af22340d61c662248e87af89b9827721) I found it difficult to work the product into a lather, unlike traditional shampoos, which I felt took away from the cleansing experience. 
 
 In terms of the toning aspect, I was not overly impressed. While the purple hue of the shampoo did add a slight coolness to my hair, it did not help much in neutralizing brassy tones. As a result, my hair was left with a subtle bluish cast, something I was not expecting. I wasn't able to detect a notable difference in the texture of my hair, either—it was neither noticeably softer nor smoother. 
 
@@ -86,16 +86,16 @@ I gave Joico's Color Balance Blue Shampoo a shot after hearing rave reviews from
 
 One of the features that stood out for me was its ability to neutralize those unwanted orange tones. My hair started looking more balanced and not so harshly bright. It even helped to boost shine in my hair, and I noticed a decrease in static as well. The Multi-Spectrum Defense Complex worked wonders in protecting my color from fading, and the Bio-Advanced Peptide Complex really delivered on providing root-to-tip repair, protecting, and adding a pleasant shine to my hair. 
 
-Although I was quite satisfied with my results, I did notice that it was quite drying on my hair. I had to add a moisturizing conditioner to counteract dryness and keep my hair hydrated. Overall, the Joico Color Balance Blue Shampoo has become a staple in my hair care routine, especially for those with naturally dark-brunette hair like myself seeking a boost in shine and a solution to banish those orange tones. 
+Although I was quite satisfied with my results, I did notice that it was quite drying on my hair. I had to add a [moisturizing conditioner](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Moisturizing-Conditioner.md) to counteract dryness and keep my hair hydrated. Overall, the Joico Color Balance Blue Shampoo has become a staple in my hair care routine, especially for those with naturally dark-brunette hair like myself seeking a boost in shine and a solution to banish those orange tones. 
 
 
 ### [Four Reasons Color Depositing Toning Shampoo: Vegan Brown Option for Dark Brown Hair](https://serp.ly/@bar/amazon/Toning+Shampoo?utm\_term=four-reasons-color-depositing-toning-shampoo-vegan-brown-option-for-dark-brown-hair)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Toning+Shampoo?utm_term=four-reasons-color-depositing-toning-shampoo-vegan-brown-option-for-dark-brown-hair"><img alt="four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/four-reasons-color-mask-shampoo-brown-sulfate-free-toning-shampoo-for-brown-and-dark-brown-hair-colo-1/h=540,fit=pad,background=black"/></a></div>
 
-The Four Reasons Color Mask Shampoo is a sulfate-free toning shampoo designed specifically for brown and dark brown hair. Its color pigments work to maintain and intensify the shade of your hair, gently cleansing without stripping its natural shine. Made with 100% vegan ingredients, this shampoo is cruelty-free and an ideal choice for those who value environmentally sustainable products. 
+The Four Reasons Color Mask Shampoo is a sulfate-free toning shampoo designed specifically for brown and dark brown hair. Its color pigments work to maintain and intensify the shade of your hair, gently cleansing without stripping its natural shine. [Made with 100% vegan ingredients, this shampoo is cruelty-free and an ideal choice for those who value environmentally sustainable products.](https://gist.github.com/janeknowsbest77/2f4724e25f945bbec5d3132efdaeacbf) 
 
-To use, simply apply the shampoo to damp hair, lathering well, and leave it on for a few moments before rinsing thoroughly. Pair it with the Color Mask Chocolate Treatment or your favorite conditioner for optimal results. While the shampoo may take some time to get used to and see the best results, it is highly recommended for those seeking color-depositing shampoos that refresh and maintain the vibrancy of their hair color. 
+To use, simply apply the shampoo to damp hair, lathering well, and leave it on for a few moments before rinsing thoroughly. Pair it with the Color Mask Chocolate Treatment or your favorite conditioner for optimal results. [While the shampoo may take some time to get used to and see the best results, it is highly recommended for those seeking color-depositing shampoos that refresh and maintain the vibrancy of their hair color.](https://gist.github.com/janeknowsbest77/df5bd8b79276654664dd54751f644030) 
 
 Despite its numerous benefits, the Four Reasons Color Mask Shampoo may not be suitable for all hair types and lengths. Some users have noted that a generous amount of product is required, as the color pigments may not deliver consistent results when used in small amounts. It is also important to note that your hair's porosity, condition, and current shade may affect the evenness of the results. 
 
@@ -189,7 +189,7 @@ I'd definitely recommend giving it a try, especially if you're looking to mainta
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Toning+Shampoo?utm_term=ag-hair-sterling-silver-toning-shampoo-for-all-hair-types"><img alt="ag-hair-colour-care-sterling-silver-toning-shampoo-33-8-oz-bottle-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ag-hair-colour-care-sterling-silver-toning-shampoo-33-8-oz-bottle-1/h=540,fit=pad,background=black"/></a></div>
 
-Discover AG Hair's Colour Care Sterling Silver Toning Shampoo, specifically crafted to subtly enhance silver hair, minimizing unwanted yellowish hues and shining it up with an irresistible brilliance. This violet-infused shampoo doesn't compromise on purity as it is free from parabens, gluten, and animal testing, ensuring it's safe for all hair types. 
+[Discover AG Hair's Colour Care Sterling Silver Toning Shampoo, specifically crafted to subtly enhance silver hair, minimizing unwanted yellowish hues and shining it up with an irresistible brilliance.](https://gist.github.com/janeknowsbest77/01ae3ff8759fb7f74bb7aef3296e0ad9) This violet-infused shampoo doesn't compromise on purity as it is free from parabens, gluten, and animal testing, ensuring it's safe for all hair types. 
 
 The AG Hair's Silver Toning Shampoo doesn't just lighten your hair, but nourishes and revitalizes it as well. It leaves your hair soft and moisturized, offering a comforting and rejuvenating experience. However, it's crucial to know that this shampoo works particularly well with silver and gray hair although those with naturally darker hair might not see the same dramatic results. In summary, this toning shampoo is a go-to choice for those who yearn to brighten their gray hair and infuse a sense of elegance. 
 
@@ -317,7 +317,7 @@ To make your toning shampoo last longer, follow the instructions on the label an
 
 ### Do Toning Shampoos Use Harsh Chemicals?
 
-While many toning shampoos contain ingredients that could be harsh or stripping for your hair if misused, it's key to choose a gentle, color-safe toning shampoo that is formulated specifically for your hair type and color. Products with sulfate-free formulas and natural ingredients are usually safer and gentler for your hair.
+While many toning shampoos contain ingredients that could be harsh or stripping for your hair if misused, it's key to choose a gentle, color-safe toning shampoo that is formulated specifically for your hair type and color. [Products with sulfate-free formulas and natural ingredients are usually safer and gentler for your hair.](https://gist.github.com/janeknowsbest77/bc271cd55b97b04d1d6168039232e6ad)
 
 Remember, following the usage instructions on the label and using color-safe conditioners and styling products will help protect your hair from damage and color fade. If you have concerns about a toning shampoo's ingredients or their potential impact on your hair, consult with a professional hairstylist or dermatologist.
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Candle-Jars-With-Lids.md
 
 # Top 13 Candle Jars with Lids for your Home Decor Needs
 
-Are you in search of the perfect candle jar to complete your home decor? Look no further! In this roundup article, we've curated a collection of top-notch candle jars with lids that offer functionality, style, and beauty for your space. Get ready to find your new favorite candle jar and elevate your candle game! This is a must-read for all candle enthusiasts. 
+Are you in search of the perfect candle jar to complete your home decor? Look no further! In this roundup article, we've curated a collection of top-notch [candle jars with lids](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Candle-Jars-With-Lids.md) that offer functionality, style, and beauty for your space. Get ready to find your new favorite candle jar and elevate your candle game! This is a must-read for all candle enthusiasts. 
 
 *As an Amazon Associate, we may earn from qualified purchases*
 

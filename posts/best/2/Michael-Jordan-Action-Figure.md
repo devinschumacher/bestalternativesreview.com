@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Michael-Jordan-Action-Figure.md
 
 # Relive the Glory Days with These Top 19 Michael Jordan Action Figures
 
-Dive into the world of collectibles as we explore some of the most sought-after Michael Jordan action figures on the market. From iconic moments during his legendary basketball career to classic advertising campaigns, these limited edition figurines are not just sports memorabilia - they're a piece of history that you can hold in your hand. Join us as we round up some of the best Michael Jordan action figures on offer, perfect for collectors and fans alike. 
+[Dive into the world of collectibles as we explore some of the most sought-after Michael Jordan action figures on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Michael-Jordan-Action-Figure.md) From iconic moments during his legendary basketball career to classic advertising campaigns, these limited edition figurines are not just sports memorabilia - they're a piece of history that you can hold in your hand. Join us as we round up some of the best Michael Jordan action figures on offer, perfect for collectors and fans alike. 
 
 *As an Amazon Affiliate, I receive compensation from qualified purchases at no cost to you.*
 
@@ -41,7 +41,7 @@ However, there were a couple of minor drawbacks. The jersey seemed to be a bit t
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Michael+Jordan+Action+Figure?utm_term=funko-pop-nba-michael-jordan-chicago-bulls-action-figure"><img alt="funko-pop-nba-chicago-bulls-michael-jordan-vinyl-figure-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/funko-pop-nba-chicago-bulls-michael-jordan-vinyl-figure-1/h=540,fit=pad,background=black"/></a></div>
 
-Introducing the Funko Pop! NBA: Chicago Bulls Michael Jordan Vinyl Figure, featuring an iconic leap-frog moment from one of the most celebrated basketball stars of all time. Standing at 6.5 inches tall and boasting intricate detailing, this Pop! figure showcases Michael Jordan's signature outfit and jersey number #23, while capturing the excitement of his iconic 1988 Slam Dunk Contest. 
+[Introducing the Funko Pop!](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Daredevil-Funko-Pop.md) NBA: Chicago Bulls Michael Jordan Vinyl Figure, featuring an iconic leap-frog moment from one of the most celebrated basketball stars of all time. Standing at 6.5 inches tall and boasting intricate detailing, this Pop! figure showcases Michael Jordan's signature outfit and jersey number #23, while capturing the excitement of his iconic 1988 Slam Dunk Contest. 
 
 As a highly sought-after collectible, this must-have piece is perfect for any true Funko enthusiast or dedicated fan of the Chicago Bulls. With limited stock, be prepared to quickly snatch up this incredible tribute to the legendary basketball hero, Michael Jordan. Whether you're a proud owner of a Funko Pop collection or a die-hard fan of the game, this Pop! figure is sure to make a thrilling addition to your collection. 
 
@@ -61,7 +61,7 @@ As a result, fans have praised the incredible attention to detail and the unmatc
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Michael+Jordan+Action+Figure?utm_term=chicago-bulls-michael-jordan-mafex-action-figure"><img alt="mafex-michael-jordan-chicago-bulls-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mafex-michael-jordan-chicago-bulls-1/h=540,fit=pad,background=black"/></a></div>
 
-Imagine my excitement when I unboxed the MAFEX Michael Jordan action figure. This collectible is truly a tribute to one of the greatest basketball players of all time! Medicom's attention to detail is evident in every inch of this figure, from the head sculpt by Shimazaki Kyoichi to the body by PERFECT-STUDIO. 
+Imagine my excitement when I unboxed the MAFEX [Michael Jordan action figure](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Michael-Jordan-Action-Figure.md). This collectible is truly a tribute to one of the greatest basketball players of all time! Medicom's attention to detail is evident in every inch of this figure, from the head sculpt by Shimazaki Kyoichi to the body by PERFECT-STUDIO. 
 
 The figure stands tall at 6 1/2 inches, allowing for multiple points of articulation, which is perfect for recreating those signature dunks. The in-scale basketball accessory adds a nice touch, making it easier to pose Jordan in action. However, one thing that bothered me was the presence of two right legs, which seemed like a production error. 
 

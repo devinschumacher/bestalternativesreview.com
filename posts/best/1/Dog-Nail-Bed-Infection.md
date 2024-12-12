@@ -119,7 +119,7 @@ One of the highlights of this product was its multiple uses. Whether it was Ring
 
 However, I did come across a few minor cons with the product. The cream was quite smelly, which I imagined could make applying it to some pets difficult. Additionally, I found that the cream was a bit challenging to spread, which required me to apply more than necessary in some instances. 
 
-Overall, I was quite satisfied with the results I saw after using the Classic's Lime Sulfur Pet Skin Cream. It not only relieved my pet's itchy skin but also provided a solution for a range of skin problems. 
+Overall, I was quite satisfied with the results I saw after using the Classic's Lime Sulfur Pet Skin Cream. [It not only relieved my pet's itchy skin but also provided a solution for a range of skin problems.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Skin-Soother-For-Dogs.md) 
 
 
 ### [Vet Worthy Dog Nail Infection Treatment Powder](https://serp.ly/@bar/amazon/Dog+Nail+Bed+Infection?utm\_term=vet-worthy-dog-nail-infection-treatment-powder)
@@ -243,7 +243,7 @@ This balm is perfect for dogs of all ages and breeds, and provides all the moist
 
 ## Buyer's Guide
 
-Welcome to the Dog Nail Bed Infection Buyer's Guide, designed to help you make informed decisions when selecting the best products for your beloved dog. This guide will focus on general features, considerations, and advice for the treatment and prevention of nail bed infections in dogs. 
+Welcome to the [Dog Nail Bed Infection](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Nail-Bed-Infection.md) Buyer's Guide, designed to help you make informed decisions when selecting the best products for your beloved dog. This guide will focus on general features, considerations, and advice for the treatment and prevention of nail bed infections in dogs. 
 
 
 ### Understanding Nail Bed Infections

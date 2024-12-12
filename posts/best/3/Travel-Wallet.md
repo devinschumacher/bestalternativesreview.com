@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Travel-Wallet.md
 
 # Travel in Style -  Our Top 17 Picks for Travel Wallets to Keep Your Valuables Safe
 
-If you're planning a trip, you know that one of the most essential items to pack is a good travel wallet. The right wallet can keep your passport, credit cards, and cash organized and secure while you're on the go. In this article, we'll be rounding up some top travel wallets on the market, ensuring that you'll find the perfect one for your next adventure. 
+If you're planning a trip, you know that one of the most essential items to pack is a good [travel wallet](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Travel-Wallet.md). The right wallet can keep your passport, credit cards, and cash organized and secure while you're on the go. In this article, we'll be rounding up some top travel wallets on the market, ensuring that you'll find the perfect one for your next adventure. 
 
 *As an Amazon Affiliate, we receive compensation from qualified purchases!*
 

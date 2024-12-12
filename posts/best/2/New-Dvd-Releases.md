@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/New-Dvd-Releases.md
 
 # Unveiling the Top 20 New DVD Releases -  Entertaining Must-Haves for Your Collection
 
-Get ready to add some new DVDs to your collection! In this roundup, we've gathered the latest releases that are sure to impress. From action-packed thrillers to heartwarming family films, we've got you covered with our selection of top new DVD releases. 
+Get ready to add some new DVDs to your collection! In this roundup, we've gathered the latest releases that are sure to impress. From action-packed thrillers to heartwarming family films, we've got you covered with our selection of top [new DVD releases](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/New-Dvd-Releases.md). 
 
 *As an Amazon Affiliate™, we may earn through qualifying purchases at no cost to you*
 

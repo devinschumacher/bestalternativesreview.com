@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/James-Baldwin-Books.md
 
 # Discover the Best James Baldwin Books for Thought-Provoking Reading
 
-Dive into the world of literature with our roundup of James Baldwin Books. Discover the profound works of this influential American writer and explore how his powerful words continue to shape our understanding of race, class, and society. Stay tuned as we bring you a selection of his most celebrated novels, essays, and plays. 
+Dive into the world of literature with our roundup of [James Baldwin Books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/James-Baldwin-Books.md). [Discover the profound works of this influential American writer and explore how his powerful words continue to shape our understanding of race, class, and society.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/James-Baldwin-Books.md) Stay tuned as we bring you a selection of his most celebrated novels, essays, and plays. 
 
 *As an Amazon Affiliate™ we receive compensation from qualified purchases*
 

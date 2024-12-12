@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Sparkly-Crocs.md
 
 # Shine Bright -  19 Glittery Crocs to Sparkle Up Your Wardrobe
 
-Welcome to our roundup article on Sparkly Crocs, where we dive into the world of stylish footwear that lights up any outfit. Get ready to find your perfect pair of Sparkly Crocs and add an extra touch of sparkle to your wardrobe. Whether you're strolling down the street or dancing the night away, we've got you covered with the hottest trends in footwear. 
+Welcome to our roundup article on [Sparkly Crocs](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sparkly-Crocs.md), where we dive into the world of stylish footwear that lights up any outfit. Get ready to find your perfect pair of Sparkly Crocs and add an extra touch of sparkle to your wardrobe. Whether you're strolling down the street or dancing the night away, we've got you covered with the hottest trends in footwear. 
 
 *As an Amazon Affiliate we earn from qualified purchases at no cost to you!*
 

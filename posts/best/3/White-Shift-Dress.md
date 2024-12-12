@@ -32,7 +32,7 @@ One minor drawback I encountered was that the slip lining on the dress was remov
 
 The Cece Lace Shift Dress in white is a stylish addition to any wardrobe, featuring a smooth fit and eye-catching lace design. Priced at $118, this shift dress is an affordable option for those looking to make a statement. Made from 100% polyester, it is comfortable and easy to care for, requiring only a gentle hand wash. 
 
-The dress reaches approximately 35 inches from shoulder to hem and is available in a range of sizes, including a size 4 for the model. With a center back zipper and hook-and-eye closure, this dress offers a flattering and secure fit. This ultra-white shift dress is perfect for summer events and will surely turn heads with its feminine appeal. 
+The dress reaches approximately 35 inches from shoulder to hem and is available in a range of sizes, including a size 4 for the model. With a center back zipper and hook-and-eye closure, this dress offers a flattering and secure fit. This ultra-[white shift dress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-Shift-Dress.md) is perfect for summer events and will surely turn heads with its feminine appeal. 
 
 
 ### [Inc. Women's Winter White Long-Sleeve Chiffon Bow-Back Shift Dress](https://serp.ly/@bar/amazon/White+Shift+Dress?utm\_term=inc-womens-winter-white-long-sleeve-chiffon-bow-back-shift-dress)

@@ -23,7 +23,7 @@ I've recently tried out the Splat Brilliant Toning Foam in Mushroom Brown, and l
 
 One of my favorite things about this product is its ability to create a subtle yet noticeable effect. With just a few minutes of application, my hair looked more vibrant and less brassy – perfect for those looking for a less permanent hair color solution. Not only did it leave my hair feeling softer and shinier, but it also added a touch of moisture, thanks to its protein-infused formula. 
 
-However, a small disclaimer here – the Splat Brilliant Toning Foam doesn't last quite as long as I would have hoped. I could only get a few subtle pastel tones for about a week before it fully washed out, leaving my hair with its original brassy hints. Nonetheless, this is a great product to use if you're looking for a low-key hair transformation or want to mix it up with color without the commitment of a long-lasting dyejob. 
+However, a small disclaimer here – the Splat Brilliant Toning Foam doesn't last quite as long as I would have hoped. I could only get a few subtle pastel tones for about a week before it fully washed out, leaving my hair with its original brassy hints. [Nonetheless, this is a great product to use if you're looking for a low-key hair transformation or want to mix it up with color without the commitment of a long-lasting dyejob.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Permanent-Hair-Dye.md) 
 
 Overall, the Splat Brilliant Conditioning Toning Foams are an excellent choice for those looking for a mess-free and easy-to-use hair coloring solution. Although it fades out relatively quickly, the convenience and natural-looking results make it a worthwhile investment. 
 
@@ -254,7 +254,7 @@ If you have orange hair, choosing the right toner is essential for achieving tha
 
 ### Important Features to Consider in a Toner for Orange Hair
 
-When looking for a toner for orange hair, consider these essential features to ensure the best results for your hair color and type: 
+When looking for a [toner for orange hair](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Toner-For-Orange-Hair.md), consider these essential features to ensure the best results for your hair color and type: 
 1. Color deposit: Look for toners that deposit the desired color onto your hair to neutralize unwanted orange tones. 2. Color-safe formula: Ensure the toner is color-safe to maintain your hair color and prevent damage. 3. Hair type compatibility: Choose a toner that suits your hair type, whether it's dry, damaged, or fine, and provides the necessary nourishment. 4. Ingredients: Opt for toners with natural ingredients to reduce the risk of harsh chemicals that may harm your hair. 
 
 <div><a href="https://serp.ly/@bar/amazon/Toner+For+Orange+Hair"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Toner-For-Orange-Hair-2/h=540,fit=pad,background=black" alt="Toner-For-Orange-Hair-2" height="540"></a></div>

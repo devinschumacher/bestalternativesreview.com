@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Safety-Shirts.md
 
 # Protect Yourself in Style -  20 Best Safety Shirts for Workplace Safety and Comfort
 
-Stay safe and stylish with our roundup of the top Safety Shirts. We've selected a range of fashionable and functional options to keep you protected while looking your best. Dive in and discover the perfect Safety Shirt for your needs. 
+Stay safe and stylish with our roundup of the top [Safety Shirts](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Safety-Shirts.md). We've selected a range of fashionable and functional options to keep you protected while looking your best. Dive in and discover the perfect Safety Shirt for your needs. 
 
 *As an Amazon Associate we earn through qualifying purchases.*
 

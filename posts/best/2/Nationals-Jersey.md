@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Nationals-Jersey.md
 
 # Show Your Team Spirit -  26 Best Nationals Jerseys for Ultimate Fan Support
 
-Get ready to show your support for the Nationals with the perfect baseball gear! In this roundup, we've gathered an array of top-notch Nationals jerseys that are not only stylish but also comfortable to wear. From vintage designs to the latest trends, we've got you covered! So, don your favorite Nationals jersey and cheer on your favorite team. 
+Get ready to show your support for the Nationals with the perfect baseball gear! In this roundup, we've gathered an array of top-notch Nationals jerseys that are not only stylish but also comfortable to wear. From vintage designs to the latest trends, we've got you covered! So, don your favorite [Nationals jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Nationals-Jersey.md) and cheer on your favorite team. 
 
 *As an Amazon Affiliate™, I receive compensation through qualifying purchases*
 
@@ -50,7 +50,7 @@ Despite its high quality, the jersey is quite lightweight, which some users may 
 
 I recently got my hands on an Infant Nike Gray Washington Nationals City Connect Replica Jersey, and let me tell you, it's a real game-changer. My baby boy is a big fan of the team, and his excitement was palpable as soon as he laid eyes on the jersey. 
 
-One of the things that stood out the most was the intricate design inspired by the Japanese cherry trees that surround the city. This unique aspect makes the jersey stand out in the sea of other sports gear, and it shows that the designers truly put thought into making this piece special. 
+One of the things that stood out the most was the intricate design inspired by the Japanese cherry trees that surround the city. [This unique aspect makes the jersey stand out in the sea of other sports gear, and it shows that the designers truly put thought into making this piece special.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Ajax-Jersey.md) 
 
 The fabric is super soft and comfortable, which is a must for a baby. The fit is just right, and it's easy to slip on and off. Plus, the high-quality material ensures it can withstand some playtime, which means it's perfect for those little ones who just can't get enough of their favorite team. 
 

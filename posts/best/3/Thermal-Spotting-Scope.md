@@ -52,7 +52,7 @@ I recently got my hands on the InfiRay Outdoor Rico Micro 4x 25mm Thermal Multi-
 
 One of the standout features for me was its lightweight nature, weighing less than a pound. It's been a game-changer when I'm out and about, not weighing me down like some other monoculars I've tried. 
 
-The Rico Micro also boasts an impressive high-definition Ammolded display, which makes viewing a delight. InfiRayOutdoor has truly outdone themselves with this feature. The thermal spotting scope's ability to record and play back video on-the-go is another standout feature, something I've never seen in a helmet-mounted thermal before. 
+The Rico Micro also boasts an impressive high-definition Ammolded display, which makes viewing a delight. InfiRayOutdoor has truly outdone themselves with this feature. The [thermal spotting scope](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Thermal-Spotting-Scope.md)'s ability to record and play back video on-the-go is another standout feature, something I've never seen in a helmet-mounted thermal before. 
 
 Despite its many positives, there are still a few cons to note. The manual focus mechanism might take a bit getting used to, but once you get the hang of it, it works just fine. The recoil rating also seemed a bit low for my taste, but it didn't seem to have much impact on the overall performance of the monocular. 
 

@@ -74,7 +74,7 @@ Another issue I encountered was the lack of a proper loop for hanging. Though it
 
 Lastly, the cotton strands seemed more hand-knotted than carefully crafted. While I appreciated the homemade charm, it was apparent that the knotting process required some improvement. 
 
-Despite these drawbacks, my overall experience with the Lush Decor Boho Macrame Textured Cotton Window Curtain has been positive. It successfully added a touch of rustic charm to my space, and I have been praised by family and friends for this unique boho room divider. 
+Despite these drawbacks, my overall experience with the Lush Decor Boho Macrame Textured Cotton Window Curtain has been positive. It successfully added a touch of rustic charm to my space, and I have been praised by family and friends for this unique [boho room divider](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boho-Room-Divider.md). 
 
 
 ### [Elegant 3-Panel Turquoise Blue Woven Fiber Room Divider](https://serp.ly/@bar/amazon/Boho+Room+Divider?utm\_term=elegant-3-panel-turquoise-blue-woven-fiber-room-divider)
