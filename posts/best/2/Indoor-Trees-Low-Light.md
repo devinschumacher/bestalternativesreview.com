@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Indoor-Trees-Low-Light.md
 
 # Transform Your Space -  Top 19 Indoor Low Light Trees for a Lush, Green Look
 
-[Bring a touch of nature inside your home with our selection of gorgeous indoor trees that thrive in low light conditions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Indoor-Trees-Low-Light.md) Discover the perfect addition to your living space and elevate your decor with ease. 
+[Bring a touch of nature inside your home with our selection of gorgeous indoor trees that thrive in low light conditions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Indoor-Trees-Low-Light.md) Discover the perfect addition to your living space and elevate your decor with ease. 
 
 *As an Amazon Affiliate, we earn through qualifying purchases*
 
@@ -122,7 +122,7 @@ This reference book is great for beginners, as well as experienced plant lovers,
 
 I recently tried out the Mini Money Tree from Costa Farms, which adds a touch of prosperity and greenery to any space. This little sapling thrives in partial sunlight and requires only moderate watering, making it perfect for my desk at work or as a decor piece in my living room. 
 
-[I love the bright green leaves and how it easily brightens up any room.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Light-Indoor-Plants.md) However, I did find the need to drain excess water manually, as the ceramic planter does not have drainage holes. 
+[I love the bright green leaves and how it easily brightens up any room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Light-Indoor-Plants.md) However, I did find the need to drain excess water manually, as the ceramic planter does not have drainage holes. 
 
 Overall, the Mini Money Tree is an easy-to-care-for and elegant addition to any home or office. 
 
@@ -131,7 +131,7 @@ Overall, the Mini Money Tree is an easy-to-care-for and elegant addition to any 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Indoor+Trees+Low+Light?utm_term=fiddle-leaf-fig-tree-the-stylish-low-light-indoor-houseplant"><img alt="fiddle-leaf-fig-tree-the-most-popular-indoor-houseplant-cannot-ship-to-az-size-2-3-ft-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fiddle-leaf-fig-tree-the-most-popular-indoor-houseplant-cannot-ship-to-az-size-2-3-ft-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Fiddle-Leaf Fig Tree is a popular indoor houseplant, known for its striking oval-shaped leaves that can grow up to 15 inches long and 10 inches wide.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tall-Indoor-Plants.md) Standing 2-3 feet tall, this plant adds a touch of elegance to any room and thrives with just a little water and humidity. What sets this tree apart is its disease and pest resistance, making it a great low-maintenance option for any home. 
+[The Fiddle-Leaf Fig Tree is a popular indoor houseplant, known for its striking oval-shaped leaves that can grow up to 15 inches long and 10 inches wide.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tall-Indoor-Plants.md) Standing 2-3 feet tall, this plant adds a touch of elegance to any room and thrives with just a little water and humidity. What sets this tree apart is its disease and pest resistance, making it a great low-maintenance option for any home. 
 
 Despite its popularity and ease of care, there have been some mixed reviews from customers. Some have experienced a poor-quality soil mix, resulting in mold growth and pest infestations. Others have reported the tree arriving damaged or in poor condition. However, when cared for properly, the Fiddle-Leaf Fig Tree can be a stunning addition to your indoor garden. 
 
@@ -144,7 +144,7 @@ I recently had the pleasure of experiencing the American Plant Exchange's Pony T
 
 What stood out to me the most was the variation in appearance from tree to tree. No two specimens look the same, so your ponytail bonsai is truly a one-of-a-kind treasure, bringing uniqueness to any space in your home or office. The quality of the product was evident from the moment I unboxed the plant; it was beautifully packaged and the packaging made it easy to keep the plant intact during shipping. 
 
-The highlight of my experience with the ponytail palm was its low-maintenance nature. [These plants are perfect as indoor houseplants, and even more so as bonsai decorations for your living room, which is why they are great to have for people like me who enjoy the presence of greenery but don't have the knack for gardening.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Faux-Plants-Indoor.md) 
+The highlight of my experience with the ponytail palm was its low-maintenance nature. [These plants are perfect as indoor houseplants, and even more so as bonsai decorations for your living room, which is why they are great to have for people like me who enjoy the presence of greenery but don't have the knack for gardening.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Faux-Plants-Indoor.md) 
 
 However, one minor downside I encountered was some damage to the plant during transit. It is a delicate plant, and I received it with half of its roots torn out and some leaves broken. I was able to salvage the plant by transferring it to another planter and taking extra care to revive it. This was not the seller's fault as it was not packaged poorly, so it was a bit shocking at first. 
 
@@ -157,7 +157,7 @@ In conclusion, the American Plant Exchange's Pony Tail Palm Tree is a lovely add
 
 I recently added a beautiful Parlor Palm to my home office, and it has quickly become one of my favorite houseplants. This indoor tree thrives in low light conditions, making it a fantastic addition to rooms with minimal natural light. The botanical name of this plant is Chamaedorea elegans, and it's also known as the Parlor Palm or Neanthe bella palm. 
 
-[One of the highlights of this plant is its ability to purify the air, making it a fantastic choice for any indoor space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md) The plant arrived in a 3-inch nursery pot, with the soil already in place. It was well-packed and protected during shipping, ensuring it arrived safely and in great condition. 
+[One of the highlights of this plant is its ability to purify the air, making it a fantastic choice for any indoor space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Purifying-House-Plants.md) The plant arrived in a 3-inch nursery pot, with the soil already in place. It was well-packed and protected during shipping, ensuring it arrived safely and in great condition. 
 
 In my experience, the Parlor Palm has a high visual appeal due to its lush green leaves and elegant appearance. It has been a joy to watch it grow and adapt to its new surroundings. However, I did notice that some branches were already dead when the plant was delivered. This was a bit disappointing, but the overall experience has been positive. 
 

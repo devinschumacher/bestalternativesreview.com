@@ -209,7 +209,7 @@ However, one slight concern was the screws that came with the installation. The 
 
 A minor gripe was the length of the rod itself. While the curved design added much needed elbow room, it also made reaching the other end a little more awkward. We had to trim a small portion of the rod to fit correctly, a task that could have been simpler with a more precise cutting tool. 
 
-All in all, the Moen CSR2165BN Fixed Length Curved Shower Rod is an absolute game-changer in the realm of bathroom accessories. [The combination of elegance, ease of installation, and functionality makes it a standout product that has noticeably improved our daily shower routine.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Delta-Handheld-Shower.md) Despite a couple of minor annoyances, this shower rod remains an impressive and valuable addition to our home. 
+All in all, the Moen CSR2165BN Fixed Length Curved Shower Rod is an absolute game-changer in the realm of bathroom accessories. [The combination of elegance, ease of installation, and functionality makes it a standout product that has noticeably improved our daily shower routine.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Delta-Handheld-Shower.md) Despite a couple of minor annoyances, this shower rod remains an impressive and valuable addition to our home. 
 
 
 ### [Zenna Home Curved Shower Curtain Rod for Optimal Fit & Style](https://serp.ly/@bar/amazon/Curtain+Rod+Curved?utm\_term=zenna-home-curved-shower-curtain-rod-for-optimal-fit-style)

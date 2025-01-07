@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Elephant-Lamp.md
 
 # Illuminate Your Space with These Top 20 Elephant Lamps
 
-Illuminate your home with the enchanting glow of an [Elephant Lamp](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elephant-Lamp.md)! This unique and whimsical product is a must-have for those seeking to bring a touch of nature into their living spaces. [Join us as we explore various Elephant Lamps available in the market, their unique features, and what makes them stand out from the competition.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elephant-Lamp.md) Let's embark on this captivating journey of illumination! 
+Illuminate your home with the enchanting glow of an [Elephant Lamp](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elephant-Lamp.md)! This unique and whimsical product is a must-have for those seeking to bring a touch of nature into their living spaces. [Join us as we explore various Elephant Lamps available in the market, their unique features, and what makes them stand out from the competition.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Elephant-Lamp.md) Let's embark on this captivating journey of illumination! 
 
 *As an Amazon Associate we earn through qualified purchases!*
 
@@ -186,7 +186,7 @@ The only downside, if you could even call it that, is that it isn't a dimmable l
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Elephant+Lamp?utm_term=jb-hirsch-elephant-table-lamp"><img alt="jb-hirsch-elephant-22-table-lamp-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jb-hirsch-elephant-22-table-lamp-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently tried the JB Hirsch Elephant Table Lamp, and let me tell you, it's a stunning addition to any room.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dome-Table-Lamp.md) Its maximum LED range of fixture illuminates the space beautifully, creating a warm and inviting ambiance. The California Code of Regulations highlights the UN 38.3 testing requirements for battery weight and size, ensuring safety for the user. 
+[I recently tried the JB Hirsch Elephant Table Lamp, and let me tell you, it's a stunning addition to any room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dome-Table-Lamp.md) Its maximum LED range of fixture illuminates the space beautifully, creating a warm and inviting ambiance. The California Code of Regulations highlights the UN 38.3 testing requirements for battery weight and size, ensuring safety for the user. 
 
 Measuring in at 22 inches overall width, 9 inches in depth, and 6 inches for the base height, this lamp adds a touch of elegance to any spot in your home. The metallic, bronze base finish and metal material exude an air of sophistication, while the incandescent bulb adds a touch of vintage charm. 
 

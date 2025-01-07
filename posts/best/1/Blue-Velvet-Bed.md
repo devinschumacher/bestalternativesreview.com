@@ -23,7 +23,7 @@ This Regal Navy Velvet upholstered standard bed has become an essential piece in
 
 The solid pinewood frame enveloped by the fabric upholstery is not only appealing to the eye, but it also gives the bed a sturdy feel as it supports my mattress and box spring. The best part? It's crafted right here in the USA. 
 
-However, this bed isn't without its cons. I've noticed that the middle piece with the legs isn't as sturdy as I would have hoped, making it difficult to keep the box spring flat. [Despite these minor issues, I'm thoroughly enjoying the overall look and feel of this bed, making it a worthwhile investment in my sleep.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bed-Board.md) 
+However, this bed isn't without its cons. I've noticed that the middle piece with the legs isn't as sturdy as I would have hoped, making it difficult to keep the box spring flat. [Despite these minor issues, I'm thoroughly enjoying the overall look and feel of this bed, making it a worthwhile investment in my sleep.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bed-Board.md) 
 
 
 ### [Glamour Home Navy Blue Velvet Bed with Button Tufting](https://serp.ly/@bar/amazon/Blue+Velvet+Bed?utm\_term=glamour-home-navy-blue-velvet-bed-with-button-tufting)

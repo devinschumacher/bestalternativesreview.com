@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Funny-Iron-Sights.md
 
 # Top 16 Funny Iron Sights for Your Firearm
 
-[Prepare to burst into fits of laughter as we present the most amusing iron sights currently available!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Funny-Iron-Sights.md) From whimsical designs to delightful surprises, our expertly chosen assortment of iron sights not only serves its purpose but also brings a touch of humor to the gun enthusiast world. Explore the realm of iron sights with a playful perspective, making it the ultimate companion for you and your like-minded buddies. 
+[Prepare to burst into fits of laughter as we present the most amusing iron sights currently available!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Funny-Iron-Sights.md) From whimsical designs to delightful surprises, our expertly chosen assortment of iron sights not only serves its purpose but also brings a touch of humor to the gun enthusiast world. Explore the realm of iron sights with a playful perspective, making it the ultimate companion for you and your like-minded buddies. 
 
 *As an Amazon Affiliate™ we receive compensation from qualifying purchases*
 

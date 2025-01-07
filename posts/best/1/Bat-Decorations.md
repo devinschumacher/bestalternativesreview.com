@@ -21,7 +21,7 @@ Welcome to our roundup of the coolest [bat decorations](https://github.com/devin
 
 These spooky bat decorations are meticulously crafted by hand, using stained glass sheets. Each one features a unique design soldered together using copper foil for a sturdy and striking look. The bat decorations come with strong metal chains and [adhesive hooks](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Adhesive-Hooks.md) for easy hanging, transforming your windows into a colorful, sunlit display. 
 
-[Perfect for parties, gifts, or simply adding a touch of Halloween spirit to your living space, these bat decorations are not only eye-catching but also durable, made with 3mm stained glass material that retains its vibrant color.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bat-Decorations.md) However, be mindful that these are delicate, handmade items, and they have small parts, so they are not recommended for children under 5 years old. 
+[Perfect for parties, gifts, or simply adding a touch of Halloween spirit to your living space, these bat decorations are not only eye-catching but also durable, made with 3mm stained glass material that retains its vibrant color.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bat-Decorations.md) However, be mindful that these are delicate, handmade items, and they have small parts, so they are not recommended for children under 5 years old. 
 
 
 ### [Halloween Bat Metal Centerpiece Accent](https://serp.ly/@bar/amazon/Bat+Decorations?utm\_term=halloween-bat-metal-centerpiece-accent)

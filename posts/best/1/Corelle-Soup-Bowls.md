@@ -106,7 +106,7 @@ The Corelle Everyday Expressions Rutherford Meal Bowls are a stylish and functio
 
 The 8.5-inch diameter of these meal bowls provides ample space for a variety of dishes during everyday meals or entertaining at home. The set is a versatile and elegant choice for any occasion, and the lively design adds a refreshing touch to any table. 
 
-[While some users have reported minor concerns with quality control, the majority of reviews praise the Corelle meals bowls for their durability, beautiful design, and functionality.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corelle-Plates.md) The bowls are dishwasher safe, making them an ideal choice for busy households seeking practicality in their kitchen essentials. With vibrant colors and an eye-catching pattern, the Corelle Rutherford Meal Bowls make a perfect gift for a loved one or a delightful treat for yourself. 
+[While some users have reported minor concerns with quality control, the majority of reviews praise the Corelle meals bowls for their durability, beautiful design, and functionality.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Corelle-Plates.md) The bowls are dishwasher safe, making them an ideal choice for busy households seeking practicality in their kitchen essentials. With vibrant colors and an eye-catching pattern, the Corelle Rutherford Meal Bowls make a perfect gift for a loved one or a delightful treat for yourself. 
 
 
 ### [Durable Corelle Country Cottage Glass Soup Bowls](https://serp.ly/@bar/amazon/Corelle+Soup+Bowls?utm\_term=durable-corelle-country-cottage-glass-soup-bowls)

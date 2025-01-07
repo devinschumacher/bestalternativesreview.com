@@ -52,7 +52,7 @@ Despite the foam weights, this bench is a great investment for promoting a healt
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Weights+And+Bench?utm_term=weider-pro-265-standard-bench-perfect-for-vinyl-workouts"><img alt="weider-pro-265-standard-bench-with-vinyl-weight-set-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/weider-pro-265-standard-bench-with-vinyl-weight-set-gray-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Weider Pro 265 weight bench arrives as a budget-friendly option for home workouts, perfect for those looking for an affordable but sturdy station.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Weight-Benches.md) The bench comes with an 80-pound weight set and bar, giving users a solid starting point for their lifting journey. 
+[The Weider Pro 265 weight bench arrives as a budget-friendly option for home workouts, perfect for those looking for an affordable but sturdy station.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Weight-Benches.md) The bench comes with an 80-pound weight set and bar, giving users a solid starting point for their lifting journey. 
 
 While the bench is adjustable, with positions for flat and incline workouts, it's worth mentioning that the back piece does have a tendency to wobble a bit, which may detract from safety while using the bench. Additionally, the packaging could use some improvement, as it arrived shredded and damaged in some instances, which is not ideal for delivering a heavy product in one piece. 
 
@@ -192,14 +192,14 @@ Now, let's talk about the kettlebell and [weight plate storage](https://github.c
 
 However, I've also encountered a few minor issues while using this cage system. The rack blocks on the pull-up frame can be a bit uncomfortable when performing certain exercises, and I had to adjust my form to accommodate them. Additionally, the storage space on the cage system may not be ideal for everyone, depending on the size of your kettlebells or weight plates. 
 
-Overall, the Marcy Power Cage System with Adjustable Weight Bench has been a great addition to my home gym. It's sturdy, versatile, and has made my workouts more enjoyable. [If you're on the lookout for a capable, durable workout machine, this might be the one for you.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Concept-Rower.md) 
+Overall, the Marcy Power Cage System with Adjustable Weight Bench has been a great addition to my home gym. It's sturdy, versatile, and has made my workouts more enjoyable. [If you're on the lookout for a capable, durable workout machine, this might be the one for you.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Concept-Rower.md) 
 
 
 ### [Cap Flat Weight Bench & Dumbbell Set Combo](https://serp.ly/@bar/amazon/Weights+And+Bench?utm\_term=cap-flat-weight-bench-dumbbell-set-combo)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Weights+And+Bench?utm_term=cap-flat-weight-bench-dumbbell-set-combo"><img alt="cap-flat-weight-bench-50lb-vinyl-dumbbell-set-combo-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cap-flat-weight-bench-50lb-vinyl-dumbbell-set-combo-1/h=540,fit=pad,background=black"/></a></div>
 
-[For those looking for a versatile fitness setup at home, the Cap Flat Weight Bench & 50lb Vinyl Dumbbell Set Combo is a great option.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dumbbell-Sets.md) This combo pack has a sleek and attractive look, with a sturdy design built for a range of workouts including chest, triceps, leg, back, and abdominal exercises. 
+[For those looking for a versatile fitness setup at home, the Cap Flat Weight Bench & 50lb Vinyl Dumbbell Set Combo is a great option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dumbbell-Sets.md) This combo pack has a sleek and attractive look, with a sturdy design built for a range of workouts including chest, triceps, leg, back, and abdominal exercises. 
 
 The durability of the bench is evident in its steel construction and thick padding, providing both support and comfort during intense sessions. One particular feature I appreciated was the compact size of the weights and the way they conveniently slide under the bench when not in use. But, there were moments where I wished for a bit more cushioning on the bench for added comfort. 
 

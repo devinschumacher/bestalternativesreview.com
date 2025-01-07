@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Long-Johns-For-Men.md
 
 # Stay Warm and Comfortable -  Top 19 Long Johns for Men to Keep You Cozy This Winter
 
-Welcome to the world of [long johns for men](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Long-Johns-For-Men.md)! Whether you're looking to add an extra layer of warmth on those chilly winter days, or just seeking fashionable and comfortable underwear, we've got you covered. [This roundup features a selection of top-rated long johns designed specifically for men, offering the perfect balance of style, comfort, and functionality.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Long-Johns-For-Men.md) 
+Welcome to the world of [long johns for men](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Long-Johns-For-Men.md)! Whether you're looking to add an extra layer of warmth on those chilly winter days, or just seeking fashionable and comfortable underwear, we've got you covered. [This roundup features a selection of top-rated long johns designed specifically for men, offering the perfect balance of style, comfort, and functionality.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Long-Johns-For-Men.md) 
 
 *As an Amazon Associate, I receive compensation through qualified purchases!*
 

@@ -58,7 +58,7 @@ Get ready for some action-packed fun with the Marvel Daredevil Netflix Funko POP
 
 Plus, with all original tags and packaging, you'll feel like you're unboxing a true collector's item. This bobble head could be the perfect gift for someone who loves Bobbleheads or Daredevil fans in your life. 
 
-[A must-have addition to any superhero collection, this exciting toy is sure to thrill.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Toy-Hero.md) 
+[A must-have addition to any superhero collection, this exciting toy is sure to thrill.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Toy-Hero.md) 
 
 
 ### [Daredevil Yellow Suit Pop! Figure: Marvel Collection](https://serp.ly/@bar/amazon/Daredevil+Funko+Pop?utm\_term=daredevil-yellow-suit-pop-figure-marvel-collection)
@@ -179,7 +179,7 @@ Prepare yourself for an adrenaline rush with the Daredevil (Masked Vigilante) Po
 
 The Daredevil (Masked Vigilante) Pop! pays homage to the iconic character with impeccable precision. With care taken to capture every intricate feature, the toy is produced neatly. The high-quality paint brings the masked vigilante to life, inviting fans to admire the attention to detail that has been put into making this Pop! 
 
-Despite being a limited edition collectible, the Daredevil (Masked Vigilante) Pop! boasts a strong following amongst collectors. Funko is admired for their commitment to creating must-have collectibles that are not only popular but also exceptionally well-designed. Collecting these limited edition Pop! [toys has become a beloved pastime for enthusiasts who enjoy placing them in strategic spots around their homes and offices.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Imagination-Toys.md) 
+Despite being a limited edition collectible, the Daredevil (Masked Vigilante) Pop! boasts a strong following amongst collectors. Funko is admired for their commitment to creating must-have collectibles that are not only popular but also exceptionally well-designed. Collecting these limited edition Pop! [toys has become a beloved pastime for enthusiasts who enjoy placing them in strategic spots around their homes and offices.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Imagination-Toys.md) 
 
 The Daredevil (Masked Vigilante) Pop! is more than just a toy; it is a symbol of allegiance for fans who appreciate the thrill of the character and the craftsmanship that goes into creating these collectibles. It adds a touch of excitement and excitement to any space it graces, making it an essential addition to any Funko enthusiast's collection. 
 

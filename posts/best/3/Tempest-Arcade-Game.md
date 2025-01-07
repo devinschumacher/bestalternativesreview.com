@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Tempest-Arcade-Game.md
 
 # Master the Classics with the Best Tempest Arcade Game -  Our Top 19 Picks
 
-[Are you ready to take a trip back in time and experience the thrill of classic arcade games?](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tempest-Arcade-Game.md) In this article, we've gathered some of the best Tempest Arcade Games available for your enjoyment. Get ready to immerse yourself in the excitement of the past, as we guide you through a roundup of top-rated Tempest Arcade Games. 
+[Are you ready to take a trip back in time and experience the thrill of classic arcade games?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tempest-Arcade-Game.md) In this article, we've gathered some of the best Tempest Arcade Games available for your enjoyment. Get ready to immerse yourself in the excitement of the past, as we guide you through a roundup of top-rated Tempest Arcade Games. 
 
 *As an Amazon Associate we receive compensation through qualifying purchases.*
 

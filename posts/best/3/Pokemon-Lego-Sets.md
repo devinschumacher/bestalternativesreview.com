@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Pokemon-Lego-Sets.md
 
 # Unleash the Power of Pokemon with These Top 20 LEGO Sets
 
-[Get ready to build and play with some of the most iconic characters from the world of Pokémon with our roundup of the best Pokémon Lego sets!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pokemon-Lego-Sets.md) From classic trainers to the newest additions to the Pokémon universe, we've gathered the top Lego sets to bring your favorite critters to life. So whether you're a die-hard fan or just a Lego enthusiast, dive into our roundup and find the perfect set to add to your collection. 
+[Get ready to build and play with some of the most iconic characters from the world of Pokémon with our roundup of the best Pokémon Lego sets!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pokemon-Lego-Sets.md) From classic trainers to the newest additions to the Pokémon universe, we've gathered the top Lego sets to bring your favorite critters to life. So whether you're a die-hard fan or just a Lego enthusiast, dive into our roundup and find the perfect set to add to your collection. 
 
 *As an Amazon Affiliate, I may earn from qualified purchases at no cost to you*
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Miami-Shirt.md
 
 # Get Ready to Make a Splash -  12 Best Miami Shirt Styles for Summer
 
-Welcome to our [Miami Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Miami-Shirt.md) [roundup, where we showcase the hottest and most stylish shirts from the city that never sleeps.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Miami-Shirt.md) From bold prints to comfortable fabrics, we dive into the vibrant world of Miami fashion to bring you the best options for your wardrobe. 
+Welcome to our [Miami Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Miami-Shirt.md) [roundup, where we showcase the hottest and most stylish shirts from the city that never sleeps.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Miami-Shirt.md) From bold prints to comfortable fabrics, we dive into the vibrant world of Miami fashion to bring you the best options for your wardrobe. 
 
 *As an Amazon Affiliate™ we earn through qualified purchases.*
 

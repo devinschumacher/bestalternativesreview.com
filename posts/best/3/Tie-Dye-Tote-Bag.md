@@ -104,7 +104,7 @@ One of my favorite features was the clear insert bag that came with the purchase
 
 However, there were a few downsides to the otherwise excellent Baby Bogg Bag. Firstly, the tie-dye pattern might not be for everyone, and it could be a bit overwhelming for some. Additionally, while the bag was spacious and versatile, it did feel slightly heavy at times, especially when carrying larger items or multiple bags at once. 
 
-Overall, my experience with the Original Baby Bogg Bag was predominantly positive. [Its stylish design, functional features, and durability made it a standout among other tote bags.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Faux-Leather-Tote-Bag.md) Despite the minor cons, it proved to be a reliable and practical companion for all my beach and pool adventures. 
+Overall, my experience with the Original Baby Bogg Bag was predominantly positive. [Its stylish design, functional features, and durability made it a standout among other tote bags.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Faux-Leather-Tote-Bag.md) Despite the minor cons, it proved to be a reliable and practical companion for all my beach and pool adventures. 
 
 
 ### [Geckobrands Large Tie Dye Beach Tote Bag](https://serp.ly/@bar/amazon/Tie+Dye+Tote+Bag?utm\_term=geckobrands-large-tie-dye-beach-tote-bag)

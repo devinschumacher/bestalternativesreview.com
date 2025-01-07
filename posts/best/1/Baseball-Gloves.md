@@ -262,7 +262,7 @@ Overall, I highly recommend this glove!
 
 After using the Mizuno Prospect Select Series Baseball Glove, I can confidently say that it's a fantastic addition to my kit. The full-grain leather shell provides a robust and durable design, ensuring it can withstand the wear and tear of regular use. The butter-soft palm liner, on the other hand, offers a comfortable feel and increased durability. 
 
-One feature that really stands out for me is the professional patterns, which are designed with the best players in mind. [This attention to detail makes it a top choice for anyone looking for a high-quality baseball glove.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Baseball-Gloves.md) Additionally, the open-back design offers a traditional look while providing a consistent fit, which I've found to be quite beneficial. 
+One feature that really stands out for me is the professional patterns, which are designed with the best players in mind. [This attention to detail makes it a top choice for anyone looking for a high-quality baseball glove.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Baseball-Gloves.md) Additionally, the open-back design offers a traditional look while providing a consistent fit, which I've found to be quite beneficial. 
 
 However, I would like to mention that the glove break-in is a standard process, so it might require some patience and effort to get it to the perfect shape for your hand. Overall, this baseball glove is a great investment for anyone looking to improve their game. 
 

@@ -27,7 +27,7 @@ Another aspect that makes this lotion stand out is its smooth, non-greasy textur
 
 However, one thing to note is that the ingredients contain alcohol (denatured) as the first component, which might affect the aroma's strength. As a result, the scent doesn't last as long as some of my other colognes. Nonetheless, for the refreshing and clean scent it provides, I'd say it's a worthwhile trade-off. 
 
-Overall, the PS After Shave Lotion offers a blend of scent and comfort that has become an essential addition to my morning routine. [It's comfortable on my skin, moisturizing, and with a scent that's subtle yet long-lasting, making it an excellent choice for men looking for a refreshing after-shave experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/After-Shave.md) 
+Overall, the PS After Shave Lotion offers a blend of scent and comfort that has become an essential addition to my morning routine. [It's comfortable on my skin, moisturizing, and with a scent that's subtle yet long-lasting, making it an excellent choice for men looking for a refreshing after-shave experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/After-Shave.md) 
 
 
 ### [Clubman Classic Vanilla Aftershave for Men: 

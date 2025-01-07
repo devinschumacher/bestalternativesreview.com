@@ -137,7 +137,7 @@ One feature that might seem insignificant at first glance but has proven to be q
 
 One minor con is the size of the case. It's a bit larger than I had imagined, but the added space above the bits for easy retrieval makes it a trade-off I can live with. 
 
-[Overall, I highly recommend Wiha's MaxxTor Impact Bit Set for anyone in need of a reliable, durable, and efficient set of power tool bits.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Norseman-Drill-Bits.md) It's made my life much easier on the job site, and I'm sure it will do the same for you. 
+[Overall, I highly recommend Wiha's MaxxTor Impact Bit Set for anyone in need of a reliable, durable, and efficient set of power tool bits.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Norseman-Drill-Bits.md) It's made my life much easier on the job site, and I'm sure it will do the same for you. 
 
 
 ### [Comfortable Wiha Electronic Stripping Pliers with Anti-Glare Black Finish](https://serp.ly/@bar/amazon/Wiha?utm\_term=comfortable-wiha-electronic-stripping-pliers-with-anti-glare-black-finish)
@@ -213,7 +213,7 @@ The Wiha Red Stripe Tech Pac tool carrier is made with quality materials and has
 
 The Wiha Red Stripe Tech Pac weighs in at 16.4400 lb, making it a sturdy and reliable choice for professionals on the go. Its dimensions of 12.0 x 16.0 x 22.0 in offer ample space for carrying a wide range of tools, and the bag's versatile design can accommodate different types of equipment. 
 
-Overall, the Wiha Red Stripe Tech Pac offers a comprehensive tool set and a carrier bag that's both functional and aesthetically pleasing. [Its combination of practical features and high-quality materials makes it a worthwhile investment for anyone looking for a reliable tool kit solution.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tool-Kit.md) 
+Overall, the Wiha Red Stripe Tech Pac offers a comprehensive tool set and a carrier bag that's both functional and aesthetically pleasing. [Its combination of practical features and high-quality materials makes it a worthwhile investment for anyone looking for a reliable tool kit solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tool-Kit.md) 
 
 
 ### [Wiha Insulated 19-Piece Screwdriver Set](https://serp.ly/@bar/amazon/Wiha?utm\_term=wiha-insulated-19-piece-screwdriver-set)

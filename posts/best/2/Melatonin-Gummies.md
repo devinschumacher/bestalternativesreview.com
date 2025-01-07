@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Melatonin-Gummies.md
 
 # Best Melatonin Gummies for a Restful Night's Sleep -  Our Top 20 Picks
 
-Get ready to sweeten your sleep with [Melatonin Gummies](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Melatonin-Gummies.md)! [Our roundup dives into the world of these tasty natural supplements, exploring their benefits and bringing you a list of the best options on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Supplements-For-Men.md) Get ready to catch those Z's like never before! 
+Get ready to sweeten your sleep with [Melatonin Gummies](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Melatonin-Gummies.md)! [Our roundup dives into the world of these tasty natural supplements, exploring their benefits and bringing you a list of the best options on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Supplements-For-Men.md) Get ready to catch those Z's like never before! 
 
 *As an Amazon Associate, we earn through qualified purchases.*
 
@@ -21,7 +21,7 @@ Get ready to sweeten your sleep with [Melatonin Gummies](https://github.com/devi
 
 Natures Bounty Sleep Complex Gummies are the solution to restful and relaxing sleep. These scrumptious tropical punch gummies are shaped like moons and stars, and the natural flavors make them a delightful treat. 
 
-[Infused with 3mg of Melatonin and 200mg of L-Theanine, each mouth-watering gummy helps support a restful and calming night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Melatonin-Gummies.md) The Melatonin works in harmony with your natural sleep cycle while the L-Theanine gently promotes a soothing and stress-free state. Perfect for occasional sleeplessness or jet lag, Nature's Bounty Sleep Complex Gummies are a tasty and efficient way to embrace that much-needed rest. 
+[Infused with 3mg of Melatonin and 200mg of L-Theanine, each mouth-watering gummy helps support a restful and calming night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Melatonin-Gummies.md) The Melatonin works in harmony with your natural sleep cycle while the L-Theanine gently promotes a soothing and stress-free state. Perfect for occasional sleeplessness or jet lag, Nature's Bounty Sleep Complex Gummies are a tasty and efficient way to embrace that much-needed rest. 
 
 Give your body and mind the support they deserve with Nature's Bounty Sleep Complex Gummies! 
 

@@ -21,7 +21,7 @@ Get ready to say goodbye to complicated hair styling with the [Dyson Airwrap](ht
 
 I recently had the chance to try out the Dyson Airwrap 308 Multistyler, and let me tell you, it sure lived up to the hype. This bad boy is designed for medium to long hair, and boy did it deliver on that promise. 
 
-My first experience with it was a bit rocky, as it took some practice to get the hang of it. But once I did, wow, the results were truly impressive. [The Airwrap is versatile, catering to different hair types and offering precise control over your curls, waves, and sleek finishes.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Airwrap.md) The redesigned accessories work like a charm, making it so much easier to achieve the look I've always wanted. 
+My first experience with it was a bit rocky, as it took some practice to get the hang of it. But once I did, wow, the results were truly impressive. [The Airwrap is versatile, catering to different hair types and offering precise control over your curls, waves, and sleek finishes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Airwrap.md) The redesigned accessories work like a charm, making it so much easier to achieve the look I've always wanted. 
 
 What really stood out to me is the multifunctional Coanda straightening dryer. It's a game-changer, allowing me to dry, smooth, and tame frizz all in one go. It's a bit noisy, but it's worth dealing with for the convenience it provides. 
 

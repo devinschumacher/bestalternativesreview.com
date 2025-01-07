@@ -224,7 +224,7 @@ While there are a few minor drawbacks - such as the zipper being a bit delicate 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dog+Strollers+Under+%2450?utm_term=affordable-bestpet-folding-dog-and-cat-stroller-with-cup-holder"><img alt="bestpet-pet-stroller-dog-cat-jogger-stroller-for-medium-small-dogs-cats-folding-lightweight-travel-s-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestpet-pet-stroller-dog-cat-jogger-stroller-for-medium-small-dogs-cats-folding-lightweight-travel-s-1/h=540,fit=pad,background=black"/></a></div>
 
-[Looking for a convenient, lightweight stroller to take your furry friend for a walk or outing?](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Strollers-Under-$50.md) You might want to check out the BestPet Pet Stroller. It's specifically designed for medium and small cats and dogs and can hold pets up to 33 pounds. 
+[Looking for a convenient, lightweight stroller to take your furry friend for a walk or outing?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dog-Strollers-Under-$50.md) You might want to check out the BestPet Pet Stroller. It's specifically designed for medium and small cats and dogs and can hold pets up to 33 pounds. 
 
 This traveling carriage comes with various practical features, such as a comfortable height to push or pull it, a foldable design for easy storage, and two built-in cup holders. However, one important aspect to consider is the lack of a safety tether for your pet to prevent them from jumping off or getting loose when the top zippers are open, as mentioned in some user reviews. 
 

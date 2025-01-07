@@ -70,7 +70,7 @@ The GXQSNOWEF Educational Learning Toys is a fantastic set of speech therapy toy
 
 With a compact size of 10 inches by 7.82 inches by 0.55 inches, these toys are easy to travel with and can be taken on-the-go, making them perfect for activities outside of the home. The package includes a USB cable, a drawing board, flashcards reader, 112 double-sided cards, and a pen, ensuring that your child has everything they need to engage in educational activities. 
 
-The batteries required for the device are included, making it convenient to set up and get started right away. The set's special feature of double-sided cards allows for an enhanced learning experience, as children can flip the cards to discover new sight words and improve their vocabulary. [The toys' target audience is students who are keen on learning and developing new skills through playtime.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
+The batteries required for the device are included, making it convenient to set up and get started right away. The set's special feature of double-sided cards allows for an enhanced learning experience, as children can flip the cards to discover new sight words and improve their vocabulary. [The toys' target audience is students who are keen on learning and developing new skills through playtime.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
 
 Though there are no product reviews or ratings available, based on the specs and features, the GXQSNOWEF Educational Learning Toys seem to be a high-quality and effective tool for teaching new concepts and improving language skills in young children. 
 
@@ -257,7 +257,7 @@ First and foremost, verify that the toy is appropriate for a 4-year-old's age an
 
 ### Interactive Characteristics
 
-[Look for toys that inspire interactive play, either with the child themselves or other children.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Little-People-Toys.md) This kind of engagement promotes social skills and aids children in learning communication and sharing. Puzzles, building blocks, and role-play sets are excellent examples of interactive toys that foster social and emotional progression.
+[Look for toys that inspire interactive play, either with the child themselves or other children.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Little-People-Toys.md) This kind of engagement promotes social skills and aids children in learning communication and sharing. Puzzles, building blocks, and role-play sets are excellent examples of interactive toys that foster social and emotional progression.
 
 
 ### Security

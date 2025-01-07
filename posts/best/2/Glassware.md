@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Glassware.md
 
 # Elevate Your Drinking Experience with These Top 49 Glassware Picks
 
-Looking to enhance your drinking experience? It's time to explore the mesmerizing world of [glassware](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glassware.md). [In this article, we've curated a selection of the most exquisite and unique glass pieces available, showcasing their artistry, functionality, and versatility.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glassware.md) From elegant stemware to quirky novelty glasses, we've got something for every style and occasion. Gather around as we embark on a journey to discover the perfect glass for your next beverage. 
+Looking to enhance your drinking experience? It's time to explore the mesmerizing world of [glassware](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glassware.md). [In this article, we've curated a selection of the most exquisite and unique glass pieces available, showcasing their artistry, functionality, and versatility.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Glassware.md) From elegant stemware to quirky novelty glasses, we've got something for every style and occasion. Gather around as we embark on a journey to discover the perfect glass for your next beverage. 
 
 *As an Amazon Affiliate, we may earn from qualifying purchases at no cost to you!*
 
@@ -483,7 +483,7 @@ These beautiful, functional glasses will make a great impression at any gatherin
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Glassware?utm_term=libbey-classic-16-ounce-goblet-glass-set-of-12"><img alt="libbey-classic-16-goblet-glass-set-of-13" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/libbey-classic-16-goblet-glass-set-of-13/h=540,fit=pad,background=black"/></a></div>
 
-Recently, I was honored to use the Libbey Classic 16-Goblet Glass as part of a set of twelve. [This set has greatly enhanced my dining experience, bringing a sense of luxuriousness to every meal.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/8-Piece-Dining-Set.md)
+Recently, I was honored to use the Libbey Classic 16-Goblet Glass as part of a set of twelve. [This set has greatly enhanced my dining experience, bringing a sense of luxuriousness to every meal.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/8-Piece-Dining-Set.md)
 
 The goblet design boasts a timeless appeal, making it the ideal choice for an array of events. From formal dinners to casual family gatherings, these glasses elevate the presentation and add a touch of refinement to your table. I've personally found that they are particularly suitable for chilling refreshing beverages, such as iced tea, lemonade, or even [sangria](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sangria.md).
 

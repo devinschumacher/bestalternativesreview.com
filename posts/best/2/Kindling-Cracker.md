@@ -21,7 +21,7 @@ Welcome to our review of the [Kindling Cracker](https://github.com/devinschumach
 
 The sixcow 2023 upgrade heavy-duty 12lb kindling cracker is a sturdy and reliable tool for splitting firewood. Its improved structure strength allows it to handle harder impacts without cracking, making it safe and easy to use. Simply place the log inside, hit it down with a hammer, and watch as it splits effortlessly. 
 
-[One of the standout features of this kindling cracker is its safety cage and built-in blade, ensuring that only firewood is struck against the blade with a blunt instrument, such as a hammer.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kindling-Cracker.md) This design eliminates the risk of sharp objects being held by your hand. 
+[One of the standout features of this kindling cracker is its safety cage and built-in blade, ensuring that only firewood is struck against the blade with a blunt instrument, such as a hammer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kindling-Cracker.md) This design eliminates the risk of sharp objects being held by your hand. 
 
 Using this tool is an excellent option for anyone looking for a safer, faster, and easier way to make the best kindling for their fire. Suitable for various types of wood, such as mesquite, oak, maple, and birch, the kindling cracker is perfect for fireplace logs, camping firewood, bonfires, and even meat smoking woods. 
 

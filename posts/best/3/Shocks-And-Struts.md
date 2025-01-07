@@ -153,7 +153,7 @@ Right off the bat, I was struck by the attention to detail - the components had 
 
 One area where the Detroit Axle really shines is its ability to handle bumps and potholes with ease. The improved ride quality made a significant difference, and it felt like I was driving a newer car. However, I couldn't help but notice a slight squeaking noise from the struts, which isn't ideal. 
 
-[All in all, I'd say the Detroit Axle front struts suspension kit replacement is a solid choice for those looking to enhance their vehicle's performance and durability.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Struts-Replacement.md) The pros definitely outweigh the cons, but as with any car part, it's important to keep an eye on any potential issues. 
+[All in all, I'd say the Detroit Axle front struts suspension kit replacement is a solid choice for those looking to enhance their vehicle's performance and durability.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Struts-Replacement.md) The pros definitely outweigh the cons, but as with any car part, it's important to keep an eye on any potential issues. 
 
 
 ### [Premium Shock Strut & Spring Assembly for CRV CR-V](https://serp.ly/@bar/amazon/Shocks+And+Struts?utm\_term=premium-shock-strut-spring-assembly-for-crv-cr-v)

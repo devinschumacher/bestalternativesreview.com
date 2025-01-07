@@ -72,7 +72,7 @@ However, some customers have expressed concerns over the product's condition upo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Heeled+Ankle+Boots?utm_term=madden-girl-stylish-while-heeled-booties-for-women"><img alt="madden-girl-while-boot-womens-black-size-6-boots-bootie-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/madden-girl-while-boot-womens-black-size-6-boots-bootie-1/h=540,fit=pad,background=black"/></a></div>
 
-[Madden Girl's While Black Patent ankle booties offer a mix of style and comfort.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Steve-Madden-Ankle-Boots.md) With a square toe and trendy block heel, these booties are an excellent addition to your cool weather wardrobe. 
+[Madden Girl's While Black Patent ankle booties offer a mix of style and comfort.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Steve-Madden-Ankle-Boots.md) With a square toe and trendy block heel, these booties are an excellent addition to your cool weather wardrobe. 
 
 The heeled ankle boots feature a zipper closure and a lightly cushioned footbed for a more comfortable fit. The booties have an approximate 3.5" angled block heel height, which provides a nice height without causing too much discomfort. Some users have mentioned that these booties might need a little breaking in and can feel a bit snug, but overall, they are a great choice for those looking for a stylish and comfortable ankle bootie for the fall and winter season. 
 
@@ -138,7 +138,7 @@ Whether I was dressing up for a night out or keeping it casual, the Nexus bootie
 
 The Madden Girl Cody 6 Women's Black is an attractive and comfortable heeled ankle boot that offers versatility and a chic look. These boots boast a secure zipper closure, a pointed toe, and a padded footbed for both style and comfort. The stylish design comes with a smooth lining, padded insole, and a flared heel, making it perfect for various occasions. 
 
-One of the best features of these boots is the exceptional traction and support they provide, making them perfect for everyday wear. [In addition, the boots are lightweight and flexible, perfect for events and casual outings.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Boots.md) 
+One of the best features of these boots is the exceptional traction and support they provide, making them perfect for everyday wear. [In addition, the boots are lightweight and flexible, perfect for events and casual outings.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
 
 However, some users reported discomfort when wearing them, as the design may not be suitable for those with sensitive skin or a specific foot shape. Additionally, some customers found it difficult to remove the boots due to the tight fit. 
 

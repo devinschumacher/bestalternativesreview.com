@@ -40,7 +40,7 @@ The USB plug-and-play functionality is another highlight. With no need to instal
 
 One downside I've noticed is the pick-up range of the microphone. If I sit close to my desk, I need to be directly in front of it to be picked up clearly. This can be an issue if I need to lean forward to be heard. However, this is a minor concern compared to the overall quality and performance of the microphone. 
 
-In conclusion, the Aluratek USB Rocket Microphone has been a reliable and high-performing audio device in my daily life. [If you're looking for a microphone that delivers clear broadcast-quality sound with ease of use, this is a great option to consider.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Noise-Cancelling-Microphone.md) 
+In conclusion, the Aluratek USB Rocket Microphone has been a reliable and high-performing audio device in my daily life. [If you're looking for a microphone that delivers clear broadcast-quality sound with ease of use, this is a great option to consider.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Noise-Cancelling-Microphone.md) 
 
 
 ### [Dynamic Vocal Microphone](https://serp.ly/@bar/amazon/Microphone?utm\_term=dynamic-vocal-microphone)

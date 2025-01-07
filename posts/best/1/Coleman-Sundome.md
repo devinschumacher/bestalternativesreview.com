@@ -45,7 +45,7 @@ Experience the perfect combination of compactness and spaciousness with the Cole
 
 Setting up the SunDome is an easy task, with continuous pole sleeves that are snag-free. Inside, you'll find ample space for two queen-sized airbeds, and convenient storage pockets to keep small items organized. When it's time to pack up and embark on your next adventure, the tent can be quickly returned to its expandable carry bag, complete with a rip strip for easy disposal. 
 
-Although it's suitable for two campers and comes with multiple features, it might not be the ideal choice for taller individuals due to its lower ceiling height. Some users have found it too small for their needs, and better suited for kids. [Despite these minor drawbacks, the Coleman Sundome 2-Person Navy and Grey Tent remains a reliable and affordable option for those seeking a comfortable camping experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Coleman-Dome-Tent.md) 
+Although it's suitable for two campers and comes with multiple features, it might not be the ideal choice for taller individuals due to its lower ceiling height. Some users have found it too small for their needs, and better suited for kids. [Despite these minor drawbacks, the Coleman Sundome 2-Person Navy and Grey Tent remains a reliable and affordable option for those seeking a comfortable camping experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coleman-Dome-Tent.md) 
 
 
 ### [Coleman Sundome 4 Person Expandable Camping Tent - Blue](https://serp.ly/@bar/amazon/Coleman+Sundome?utm\_term=coleman-sundome-4-person-expandable-camping-tent-blue)
@@ -152,7 +152,7 @@ Overall, the Coleman Skydome 6-Person Camping Tent proved to be a reliable and f
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Coleman+Sundome?utm_term=coleman-peak1-6-person-dome-tent"><img alt="coleman-peak1-6-person-dome-tent-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coleman-peak1-6-person-dome-tent-yellow-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the pleasure of using the Coleman Peak1 Dome Tent on a group camping trip, and I must say, it was a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Instant-Tent.md) This tent is designed with the outdoorsman in mind, featuring a sturdy aluminum frame and the WeatherTec Plus system to keep you and your gear dry. 
+[I recently had the pleasure of using the Coleman Peak1 Dome Tent on a group camping trip, and I must say, it was a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Instant-Tent.md) This tent is designed with the outdoorsman in mind, featuring a sturdy aluminum frame and the WeatherTec Plus system to keep you and your gear dry. 
 
 One of my favorite features is the star view window, which allows you to unzip from the inside and catch a mesmerizing view of the night sky. It's even great to enhance the airflow, making it a breathable and charming addition to the tent. The wide door and vestibule also make it incredibly convenient to move and store all the necessary camping gear, such as backpacks, sleeping bags, and more. 
 

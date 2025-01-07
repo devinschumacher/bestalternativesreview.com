@@ -81,7 +81,7 @@ Overall, the RainX Truck & SUV wiper blade offers a combination of style and fun
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Wiper+Blades?utm_term=duralast-22-conventional-wiper-blade-for-multiple-vehicles"><img alt="duralast-22-wiper-blade-conventional-design-at-autozone-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/duralast-22-wiper-blade-conventional-design-at-autozone-1/h=540,fit=pad,background=black"/></a></div>
 
-[As someone who has spent a fair amount of time behind the wheel, I've come to appreciate the importance of a good wiper blade.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wiper-Blades.md) One product that caught my attention recently is the Duralast 22" Wiper Blade Conventional Design from AutoZone. 
+[As someone who has spent a fair amount of time behind the wheel, I've come to appreciate the importance of a good wiper blade.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wiper-Blades.md) One product that caught my attention recently is the Duralast 22" Wiper Blade Conventional Design from AutoZone. 
 
 This wiper blade was designed to perfectly fit a number of vehicles, including the 1999 International 9300 and the 1990 Cadillac Fleetwood. After installing it in my own 1993 Chrysler Concorde, I was immediately impressed by its durability and efficiency. The blade is made from a tough material that held up well against the harsh weather we've been experiencing. 
 

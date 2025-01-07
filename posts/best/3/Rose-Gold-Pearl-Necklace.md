@@ -100,7 +100,7 @@ Though I must admit, upon receiving the necklace, I was initially disappointed t
 
 As someone who loves statement jewelry pieces, I recently discovered the Cultured Freshwater Pearl Mom 17" Pendant Necklace in Rose Gold. The pendant itself is a stunning, 7mm cultured freshwater pearl that captures the eye with its elegant luster. The chain is a comfortable single strand, making it perfect for everyday wear. 
 
-The rose gold metal used in this necklace adds a touch of luxury and sophistication, while the circle pendant design is a lovely nod to the maternal bond. [The lettering word "Mom" is engraved on the necklace, adding a special personal touch that I think many mothers will appreciate.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Necklace-For-Mom.md) 
+The rose gold metal used in this necklace adds a touch of luxury and sophistication, while the circle pendant design is a lovely nod to the maternal bond. [The lettering word "Mom" is engraved on the necklace, adding a special personal touch that I think many mothers will appreciate.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Necklace-For-Mom.md) 
 
 One aspect I really enjoy is the neutral color of the pearl, which makes it easy to pair with a variety of outfits. The lightweight design of the necklace also ensures that it doesn't feel too heavy or cumbersome to wear. However, it might not be the best choice for someone looking for a subtle, minimalist piece of jewelry. 
 

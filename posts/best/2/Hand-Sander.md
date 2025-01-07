@@ -92,7 +92,7 @@ The hook and loop backing makes changing sheets a breeze, while the heavy-duty l
 
 With a comfortable, curved shape that's contoured for a better grip, this hand sander is proudly brought to you from the USA. Users rave about its performance, ability to tackle detail projects, and the fact that it lasts longer than expected. 
 
-However, some users expressed a desire for a stiffer design and a wider range of sanding grades. [Overall, this hand sander is a valuable, versatile tool for a variety of projects, making it a worthwhile investment.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hand-Sander.md) 
+However, some users expressed a desire for a stiffer design and a wider range of sanding grades. [Overall, this hand sander is a valuable, versatile tool for a variety of projects, making it a worthwhile investment.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hand-Sander.md) 
 
 
 ### [Tacklife 5-Inch Hand Sander with 12 Pcs Accessories](https://serp.ly/@bar/amazon/Hand+Sander?utm\_term=tacklife-5-inch-hand-sander-with-12-pcs-accessories)

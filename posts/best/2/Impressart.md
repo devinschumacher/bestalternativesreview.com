@@ -93,7 +93,7 @@ ImpressArt's Border Metal Stamp Pack, Series 3 offers a versatile collection of 
 
 To use the stamps, simply place your metal on a bench block or anvil and strike with a hammer to create the desired design. The striking force will determine the depth of the stamped pattern. With a coat of lubricant to prevent rust, these stamps ensure a long-lasting, high-quality performance. 
 
-[Overall, users have praised the ImpressArt brand for its top-notch products and convenience, with many raving about the unique designs and excellent crafting results.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Impressart.md) 
+[Overall, users have praised the ImpressArt brand for its top-notch products and convenience, with many raving about the unique designs and excellent crafting results.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Impressart.md) 
 
 
 ### [ImpressArt Lightweight Brass Stamper Head](https://serp.ly/@bar/amazon/Impressart?utm\_term=impressart-lightweight-brass-stamper-head)

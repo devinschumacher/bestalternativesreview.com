@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Indoor-Smokeless-Grill.md
 
 # Cook up a Storm with the 38 Best Indoor Smokeless Grills
 
-[If you're a BBQ lover but frustrated with outdoor smoking, fret no more.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Indoor-Smokeless-Grill.md) We've rounded up the best smokeless grills that are designed to give you the perfect grilled taste without the mess. Explore our selection and find the ideal smokeless grill for your indoor cooking needs. 
+[If you're a BBQ lover but frustrated with outdoor smoking, fret no more.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Indoor-Smokeless-Grill.md) We've rounded up the best smokeless grills that are designed to give you the perfect grilled taste without the mess. Explore our selection and find the ideal smokeless grill for your indoor cooking needs. 
 
 *As an Amazon Affiliate™ I receive compensation through qualifying purchases.*
 

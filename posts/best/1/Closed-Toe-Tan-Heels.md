@@ -223,7 +223,7 @@ Overall, the Kenneth Cole Bri Platform Pump in Buff Beige had its pros and cons,
 
 ## Buyer's Guide
 
-[When it comes to fashionable footwear, closed toes tan heels are a versatile and stylish choice.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Closed-Toe-Tan-Heels.md) In this buyer's guide, we'll explore the essential features to consider when shopping for closed toe tan heels, as well as offer some helpful advice to ensure you find the perfect pair for your wardrobe. Let's dive in! 
+[When it comes to fashionable footwear, closed toes tan heels are a versatile and stylish choice.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Closed-Toe-Tan-Heels.md) In this buyer's guide, we'll explore the essential features to consider when shopping for closed toe tan heels, as well as offer some helpful advice to ensure you find the perfect pair for your wardrobe. Let's dive in! 
 
 
 ### Important Features to Consider

@@ -201,7 +201,7 @@ Overall, the Vince Camuto Faydra bootie is a chic and comfortable option for tho
 
 The Vince Camuto Signature Tarren Black Bootie offers style, comfort, and convenience for women. With a side zip closure and a 3.75-inch heel, these heels are perfect for both casual and formal occasions. The sleek black design is versatile and can easily transition from day to night. 
 
-[The boots feature a comfortable fit and a premium quality finish.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Boots.md) The reviews for this product are overwhelmingly positive, with customers praising both the aesthetic and the comfort. One customer shared their delight, stating that they had been eyeing the boot for some time and were thrilled with the purchase. 
+[The boots feature a comfortable fit and a premium quality finish.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) The reviews for this product are overwhelmingly positive, with customers praising both the aesthetic and the comfort. One customer shared their delight, stating that they had been eyeing the boot for some time and were thrilled with the purchase. 
 
 Overall, the Vince Camuto Signature Tarren Black Bootie is a stylish, comfortable, and functional option for women's footwear. 
 

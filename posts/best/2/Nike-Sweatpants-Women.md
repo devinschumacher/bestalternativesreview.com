@@ -38,7 +38,7 @@ Despite these drawbacks, my experience was not all negative. The midweight brush
 
 The Nike Phoenix Fleece Joggers deliver on comfort, but they come with an unexpected sense of style that may not be for everyone, particularly in their cropped look, which felt rather unflattering. As for the versatility, the clothing does not seem as adaptable as the description suggests. 
 
-In conclusion, the Nike Phoenix Fleece Joggers combine the benefits of softness with the drawbacks of its unconventional design. [Fitness enthusiasts seeking coziness might appreciate this, but for those looking for a more versatile, stylish addition to their wardrobe, these joggers might fall short.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Petite-Joggers.md) 
+In conclusion, the Nike Phoenix Fleece Joggers combine the benefits of softness with the drawbacks of its unconventional design. [Fitness enthusiasts seeking coziness might appreciate this, but for those looking for a more versatile, stylish addition to their wardrobe, these joggers might fall short.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Petite-Joggers.md) 
 
 
 ### [Nike Sportswear High-Waisted Phoenix Fleece Sweatpants for Women in Buff Gold](https://serp.ly/@bar/amazon/Nike+Sweatpants+Women?utm\_term=nike-sportswear-high-waisted-phoenix-fleece-sweatpants-for-women-in-buff-gold)
@@ -189,7 +189,7 @@ The Nike Phoenix Fleece High-Waisted Oversized Sweatpants are a cozy and comfort
 
 Available in various fits and finishes, the Phoenix Fleece Sweatpants are made for ultimate comfort and ease. The extra cosy brushed fleece keeps you warm during colder temperatures, while the loose hip and thighs offer a relaxed fit. The elongated ribbing at the waistband provides extra comfort and structure, ensuring a perfect fit. 
 
-Key features of the Phoenix Fleece Sweatpants include a premium, understated look, suitable for weekends and lounging. [With a variety of fits, finishes, and details, these sweatpants are a perfect addition to your wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Champion-Sweatpants.md) 
+Key features of the Phoenix Fleece Sweatpants include a premium, understated look, suitable for weekends and lounging. [With a variety of fits, finishes, and details, these sweatpants are a perfect addition to your wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Champion-Sweatpants.md) 
 
 When purchasing, be mindful of the sizing. Some users have reported that they run large, so it's best to choose a size smaller than your usual. Additionally, be cautious of the fleece shedding, as some buyers have experienced this issue after washing. Overall, the Nike Phoenix Fleece High-Waisted Oversized Sweatpants provide both comfort and style, making them a great choice for casual wear and lounging. 
 

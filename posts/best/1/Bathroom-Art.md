@@ -173,7 +173,7 @@ Each frame comes equipped with plexiglass, covered by protective film, and two m
 
 Incorporating a touch of elegance to your bathroom, this coastal-themed wall art captivates the serene beauty of the seashore. A sailboat with a seagull resting on it takes center stage framed against the backdrop of turquoise ocean waters, soaring seagulls, and fluffy white clouds. Perfect for creating a calming vibe, this nautical artwork is meticulously curated to evoke a tranquil atmosphere. 
 
-[Lightweight and effortless to hang, this artwork will blend seamlessly into your bathroom decor.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bathroom-Art-Decor.md) Crafted from premium natural canvas and boasting gallery-quality wrapping in sustainable wood, it's a beautiful addition to any nature-lover's collection. So go ahead, embark on an ocean escape every day with this stunning coastal-themed masterpiece. 
+[Lightweight and effortless to hang, this artwork will blend seamlessly into your bathroom decor.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bathroom-Art-Decor.md) Crafted from premium natural canvas and boasting gallery-quality wrapping in sustainable wood, it's a beautiful addition to any nature-lover's collection. So go ahead, embark on an ocean escape every day with this stunning coastal-themed masterpiece. 
 
 
 ### [Vintage Highland Cow Bathroom Wall Art Prints](https://serp.ly/@bar/amazon/Bathroom+Art?utm\_term=vintage-highland-cow-bathroom-wall-art-prints)

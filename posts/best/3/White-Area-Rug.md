@@ -47,7 +47,7 @@ One of the highlights of this rug is its easy maintenance. Despite its thick and
 
 However, there were a few drawbacks to using this rug. I found that it did require a bit of effort to install, as the padding needed for a proper fit wasn't included. Additionally, the color may not be exactly as depicted online, as I experienced with a previous rug that arrived a bit darker than expected. 
 
-[Overall, the California Solid Plush Shag Area Rug is a comfortable and well-made addition to any space, its ease of cleaning and durability making it a worthwhile investment.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Green-Shag-Rug.md) 
+[Overall, the California Solid Plush Shag Area Rug is a comfortable and well-made addition to any space, its ease of cleaning and durability making it a worthwhile investment.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Green-Shag-Rug.md) 
 
 
 ### [Minimalist White Area Rug with High-Low Pattern](https://serp.ly/@bar/amazon/White+Area+Rug?utm\_term=minimalist-white-area-rug-with-high-low-pattern)
@@ -327,7 +327,7 @@ Many manufacturers offer warranties for their rugs, which can cover issues such 
 
 [What are the different design styles or patterns available for the white area rugs in the roundup?](https://gist.github.com/janeknowsbest77/5d0f932b5cc54fd375beb8223e1244da) How can I choose the right rug for my home? The design styles for the white area rugs featured in the roundup include traditional, contemporary, and transitional styles. The design could range from geometrical or plain flat weaves to more intricate patterns, such as ornate floral or Persian motifs. Some rugs might incorporate natural elements, like stripes or checks, that evoke a rustic or beach-inspired look. Choose the rug that suits the design and feel of your home. 
 
-When selecting a rug, consider the style and decor of not only the room it will be placed in, but also the surrounding areas. The rug should complement the other elements in the room and help to create a cohesive design scheme. [Remember that the function of an area rug extends beyond its design: it can set the mood, define an area, and add comfort and warmth to a living space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Custom-Area-Rugs.md) Consider both practical uses like durability and softness, and aesthetic uses like color scheme and pattern when making your decision. 
+When selecting a rug, consider the style and decor of not only the room it will be placed in, but also the surrounding areas. The rug should complement the other elements in the room and help to create a cohesive design scheme. [Remember that the function of an area rug extends beyond its design: it can set the mood, define an area, and add comfort and warmth to a living space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Custom-Area-Rugs.md) Consider both practical uses like durability and softness, and aesthetic uses like color scheme and pattern when making your decision. 
 
 
 ### Brands and Reviews

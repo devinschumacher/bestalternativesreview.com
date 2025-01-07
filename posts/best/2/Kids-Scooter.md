@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/2/Kids-Scooter.md
 
 [Discover the best scooters for your little ones with our top picks for](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Micro-Mini-Scooters.md) [Kids Scooter](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kids-Scooter.md). 
 
-[We've done the research and selected a variety of scooters for different age groups and skill levels, ensuring that every young scooter enthusiast can find their perfect fit.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kids-Scooter.md) 
+[We've done the research and selected a variety of scooters for different age groups and skill levels, ensuring that every young scooter enthusiast can find their perfect fit.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kids-Scooter.md) 
 
 From stylish designs to sturdy builds, these Kids Scooter options are designed with safety and enjoyment in mind, making them the perfect choice for any active child. 
 
@@ -90,7 +90,7 @@ One downside I noticed was the scooter's weight limit; although it only listed f
 
 The Jetson Frozen 2-Wheel Kick Scooter is a magical ride perfect for both kids and adults alike. The scooter features vibrant graphics inspired by the Frozen movie, along with illuminating lights that sparkle as you zoom along. The scooter itself is lightweight and easy to carry around, thanks to the foldable design and height-adjustable handlebar. The built-in rear fender foot brake provides added safety and peace of mind for parents. 
 
-[While some users have had issues with the light quality and durability, the majority of reviews praise the scooter for its ease of use, fun features, and overall appeal.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mobility-Scooters.md) The lightweight, easy-to-carry design makes it a great choice for family outings or quick trips to the park. The added safety features, such as the foot brake, give parents extra confidence when their kids are riding. 
+[While some users have had issues with the light quality and durability, the majority of reviews praise the scooter for its ease of use, fun features, and overall appeal.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mobility-Scooters.md) The lightweight, easy-to-carry design makes it a great choice for family outings or quick trips to the park. The added safety features, such as the foot brake, give parents extra confidence when their kids are riding. 
 
 Overall, the Jetson Frozen 2-Wheel Kick Scooter is a fantastic choice for kids looking for a fun and stylish way to get around. With its Frozen theme and vibrant lighting, it's sure to be a hit with both kids and adults alike. While some users have had issues with the light quality and durability, the scooter's ease of use, fun features, and overall appeal make it a great option for families in search of a stylish, safe, and enjoyable ride. 
 

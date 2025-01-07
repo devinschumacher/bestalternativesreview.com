@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Hanging-Solar-Lanterns.md
 
 # Illuminate Your Outdoor Space with the 37 Best Hanging Solar Lanterns
 
-[Looking to add some warm, sustainable light to your outdoor space?](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hanging-Solar-Lanterns.md) [Hanging Solar Lanterns](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hanging-Solar-Lanterns.md) have got you covered! In this roundup, we'll explore the top picks for these eco-friendly, decorative lighting solutions, so you can illuminate your patio, garden, or backyard with style. 
+[Looking to add some warm, sustainable light to your outdoor space?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hanging-Solar-Lanterns.md) [Hanging Solar Lanterns](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hanging-Solar-Lanterns.md) have got you covered! In this roundup, we'll explore the top picks for these eco-friendly, decorative lighting solutions, so you can illuminate your patio, garden, or backyard with style. 
 
 *As an Amazon Affiliate we earn through qualifying purchases.*
 

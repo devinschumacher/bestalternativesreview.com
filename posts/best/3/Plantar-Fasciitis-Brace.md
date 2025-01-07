@@ -43,7 +43,7 @@ However, I did find that they tend to run small, which can be a bit of a challen
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Plantar+Fasciitis+Brace?utm_term=walgreens-plantar-fascia-sleeve-comforting-brace"><img alt="walgreens-plantar-fascia-sleeves-each-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/walgreens-plantar-fascia-sleeves-each-1/h=540,fit=pad,background=black"/></a></div>
 
-[Introducing the Walgreens Plantar Fascia Sleeves, designed to provide comfortable support for those suffering from plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) These sleeves are made with a lightweight material that won't interfere with your daily activities, allowing you to wear them under socks without any hassle. 
+[Introducing the Walgreens Plantar Fascia Sleeves, designed to provide comfortable support for those suffering from plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) These sleeves are made with a lightweight material that won't interfere with your daily activities, allowing you to wear them under socks without any hassle. 
 
 They are also great for using at night, providing added comfort as you rest. The sleeves come in a unisex size, catering to men with sizes between 8.5-13, and women with sizes 10 and above. Their slim design ensures a seamless fit under clothing or footwear. 
 
@@ -62,7 +62,7 @@ Another great feature is the non-slip material. I love how they stay in place wh
 
 With their lifetime unconditional guarantee, I knew I could trust the quality. And let me tell you, these copper arch compression sleeves have quickly become a must-have for anyone dealing with foot pain, especially runners like myself. 
 
-Some people might initially be skeptical about the results, but trust me, once you try them on, you'll feel the difference too. [If you're looking for amazing relief without the pain, give these Foots Love Plantar Fasciitis Brace a try!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Walking-Shoes-For-Plantar-Fasciitis.md) You won't regret it. 
+Some people might initially be skeptical about the results, but trust me, once you try them on, you'll feel the difference too. [If you're looking for amazing relief without the pain, give these Foots Love Plantar Fasciitis Brace a try!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Walking-Shoes-For-Plantar-Fasciitis.md) You won't regret it. 
 
 
 ### [Wonderwin Arch Support: 3 Pairs for Plantar Fasciitis Relief](https://serp.ly/@bar/amazon/Plantar+Fasciitis+Brace?utm\_term=wonderwin-arch-support-3-pairs-for-plantar-fasciitis-relief)

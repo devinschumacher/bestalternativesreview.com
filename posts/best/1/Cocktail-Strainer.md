@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cocktail-Strainer.md
 
 # Serving Perfect Drinks -  Our Top 19 Cocktail Strainer Picks
 
-Say goodbye to a drink covered in ice and unwanted garnishes. [Our roundup of the top cocktail strainers will transform your homemade cocktails into perfectly stirred masterpieces.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cocktail-Strainer.md) From classic metal designs to innovative silicone options, we've got you covered with a selection of the best cocktail strainers on the market to ensure your drinks are always on point. 
+Say goodbye to a drink covered in ice and unwanted garnishes. [Our roundup of the top cocktail strainers will transform your homemade cocktails into perfectly stirred masterpieces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cocktail-Strainer.md) From classic metal designs to innovative silicone options, we've got you covered with a selection of the best cocktail strainers on the market to ensure your drinks are always on point. 
 
 *As an Amazon Associate I earn through qualifying purchases*
 

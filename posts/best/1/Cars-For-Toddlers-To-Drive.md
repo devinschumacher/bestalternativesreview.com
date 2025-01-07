@@ -251,7 +251,7 @@ Battery-operated toy cars can be an excellent addition to any toddler's collecti
 
 ### Brand Reputation
 
-Some brands are renowned for producing high-quality, safe, and durable toy cars. Do your research and read reviews to ensure you are investing in a product from a reputable company that prioritizes your child's safety and enjoyment. [Look for brands that have a history of producing toys that stimulate your toddler's imagination and promote their development.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Little-People-Toys.md) 
+Some brands are renowned for producing high-quality, safe, and durable toy cars. Do your research and read reviews to ensure you are investing in a product from a reputable company that prioritizes your child's safety and enjoyment. [Look for brands that have a history of producing toys that stimulate your toddler's imagination and promote their development.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Little-People-Toys.md) 
 
 
 ## FAQ

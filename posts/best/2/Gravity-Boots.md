@@ -161,7 +161,7 @@ However, it's crucial to consult with a doctor before use to ensure it's suitabl
 
 Experience the ultimate comfort on your hikes with the Gravity Defyer Radius Tan Men's Shoes in size 14M. These shoes, designed to help you stay supported and injury-free, feature VersoShock Technology that converts shock into renewed positive energy. They are also waterproof, keeping your feet dry and comfortable during adventurous treks. 
 
-[Their removable insoles accommodate custom orthotic support, while the front rocker sole prevents and relieves plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) The microfiber and leather upper provide a breathable yet durable fit, and the mesh lining ensures a soft and comfortable wear. With a roomy toe box, your toes can enjoy a natural range of movement relief, and the front rolling design reduces foot stress. 
+[Their removable insoles accommodate custom orthotic support, while the front rocker sole prevents and relieves plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) The microfiber and leather upper provide a breathable yet durable fit, and the mesh lining ensures a soft and comfortable wear. With a roomy toe box, your toes can enjoy a natural range of movement relief, and the front rolling design reduces foot stress. 
 
 The shoes come with a waterproof membrane lining and a durable rubber outsole with lugged traction for optimal grip. Although there are no user reviews yet, the Gravity Defyer Radius Tan Men's Shoes are a perfect choice for those who want to enjoy pain-free hikes and stay supported. 
 
@@ -200,7 +200,7 @@ When choosing gravity boots, consider the following key features that can impact
 
 ### Design
 
-Different gravity boots have distinct designs that serve various purposes. Consider the boots' design features when making a purchase, such as the shape, material, and ventilation structure. These factors contribute to the boots' overall durability and comfort. [Opt for boots with a sturdy design that can withstand harsh outdoor environments and provide proper support for your feet.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Boots.md) 
+Different gravity boots have distinct designs that serve various purposes. Consider the boots' design features when making a purchase, such as the shape, material, and ventilation structure. These factors contribute to the boots' overall durability and comfort. [Opt for boots with a sturdy design that can withstand harsh outdoor environments and provide proper support for your feet.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
 
 
 ### Waterproofing
@@ -245,7 +245,7 @@ Another important feature is the breathable fabric used in the construction of t
 
 ### Are Gravity Boots durable?
 
-Yes, the Gravity Boots are designed to be durable and long-lasting. [The boots feature high-quality materials and components that are built to withstand the rigors of daily wear and tear.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Engineer-Boots.md) The advanced technology used in their construction ensures that they can handle the demands of various outdoor activities and environments, while still providing the comfort and support users expect. 
+Yes, the Gravity Boots are designed to be durable and long-lasting. [The boots feature high-quality materials and components that are built to withstand the rigors of daily wear and tear.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Engineer-Boots.md) The advanced technology used in their construction ensures that they can handle the demands of various outdoor activities and environments, while still providing the comfort and support users expect. 
 
 Furthermore, the boots are backed by a comprehensive warranty, giving consumers peace of mind and assurance that their investment is protected. This warranty covers any manufacturing defects or issues related to the materials or components used in the boots, ensuring that the customer is always satisfied with their purchase. 
 

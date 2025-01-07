@@ -219,7 +219,7 @@ Made with a combination of hardy materials and vibrant colors, the Spirit Untame
 
 With a 4.7-star rating and 14 reviews, the Spirit Untamed Stable Sweeties Playset has proven to be a hit among parents and children alike. Customers have praised the playset for its excellent quality, durability, and ability to enhance imaginative play. 
 
-So, why not bring a touch of adventure and friendship into your child's life with the Spirit Untamed Stable Sweeties Playset? [With its unique blend of storytelling, imaginative play, and nurturing, this playset is guaranteed to become a beloved addition to your child's toy collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Imagination-Toys.md) 
+So, why not bring a touch of adventure and friendship into your child's life with the Spirit Untamed Stable Sweeties Playset? [With its unique blend of storytelling, imaginative play, and nurturing, this playset is guaranteed to become a beloved addition to your child's toy collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Imagination-Toys.md) 
 
 
 ### [Spirit Riding Free Classic Series Abigail & Boomerang Soft Rider's Club Figure Set](https://serp.ly/@bar/amazon/Spirit+Toys?utm\_term=spirit-riding-free-classic-series-abigail-boomerang-soft-riders-club-figure-set)
@@ -380,7 +380,7 @@ Introducing the Spirit Untamed Forever Free Spirit horse: a magical addition to 
 
 What truly sets this horse apart is its realistic features. Not only does it have a beautiful blonde mane and tail, but it also comes with a variety of accessories, such as a fence for jumping and a bale of hay for added fun. And don't forget the brushing tool to play with and groom your horse. 
 
-One of the most exciting aspects of this Forever Free Spirit horse is its ability to make authentic neighing sounds whenever you push the button on its back. It's like having your very own Spirit horse from the movie. [The versatility and creativity this toy inspires will keep your child entertained for hours on end.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
+One of the most exciting aspects of this Forever Free Spirit horse is its ability to make authentic neighing sounds whenever you push the button on its back. It's like having your very own Spirit horse from the movie. [The versatility and creativity this toy inspires will keep your child entertained for hours on end.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
 
 If you're looking for the perfect gift for a child aged 3 years or older who loves animals or horses, this Forever Free Spirit horse is the ideal choice. It's a great way to introduce them to the world of Spirit Untamed, where friendship, bravery, and adventure come together in a world of magical horses. So, let your imagination soar with this fantastic toy and embark on a journey like no other. 
 

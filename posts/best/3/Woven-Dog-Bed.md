@@ -123,7 +123,7 @@ In my search for a stylish and sturdy pet bed, I stumbled upon the Iconic Pet Ra
 
 Despite a few challenges with assembly, such as misaligned holes and requiring new screws, the unique woven rattan design and powder-coated metal frame make this pet bed a standout option. My dog, who weighs around 60 pounds, loves sinking into the soft cushion and snoozing like a king. 
 
-[However, it's important to note that the size of the bed is smaller than expected, so pet owners with larger dogs may consider ordering a larger size.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Beds-For-Large-Dogs.md) Overall, I'm pleased with my purchase and will happily continue using the Iconic Pet Rattan Rectangular Pet Bed as our furry friend's cozy retreat. 
+[However, it's important to note that the size of the bed is smaller than expected, so pet owners with larger dogs may consider ordering a larger size.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dog-Beds-For-Large-Dogs.md) Overall, I'm pleased with my purchase and will happily continue using the Iconic Pet Rattan Rectangular Pet Bed as our furry friend's cozy retreat. 
 
 
 ### [Eco-Friendly Woven Dog Bed with Bolstered Sides and Center Pillowcase](https://serp.ly/@bar/amazon/Woven+Dog+Bed?utm\_term=eco-friendly-woven-dog-bed-with-bolstered-sides-and-center-pillowcase)

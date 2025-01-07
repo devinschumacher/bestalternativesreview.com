@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Large-Inflatable-Pool.md
 
 # Splash into Fun -  46 Best Large Inflatable Pools for Summertime Adventures
 
-[Get ready to dive into summer fun with our roundup of the best large inflatable pools!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Large-Inflatable-Pool.md) Whether you're looking to splash around with the family, or host a backyard pool party, we've got you covered. Let's take a look at the latest and greatest inflatable pools that will make your backyard the envy of the neighborhood. 
+[Get ready to dive into summer fun with our roundup of the best large inflatable pools!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Large-Inflatable-Pool.md) Whether you're looking to splash around with the family, or host a backyard pool party, we've got you covered. Let's take a look at the latest and greatest inflatable pools that will make your backyard the envy of the neighborhood. 
 
 *As an Amazon Affiliate I receive compensation from qualifying purchases at no cost to you!*
 

@@ -23,7 +23,7 @@ Whether you're looking to enhance your daily routine with a natural boost of pin
 
 Spruce Hemlock Essential Oil boasts a delightful balsamic fragrance with sweet fruit undertones, making it an ideal addition to any perfumery collection. Its middle note characteristic allows it to blend seamlessly with a variety of other scents. This 100% pure and natural product from Tsuga Canadensis is perfect for aromatherapy applications and recipes. 
 
-[With its silky texture, it's no surprise that Silky Scents Essential Oils are in high demand among those who appreciate the calming and soothing effects of various scents.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) This 1-oz bottle of Spruce Hemlock Essential Oil is a must-have for anyone seeking a versatile and delightful aromatic experience. 
+[With its silky texture, it's no surprise that Silky Scents Essential Oils are in high demand among those who appreciate the calming and soothing effects of various scents.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) This 1-oz bottle of Spruce Hemlock Essential Oil is a must-have for anyone seeking a versatile and delightful aromatic experience. 
 
 
 ### [Nature's Fusions - Wild Spruce Black Pure Essential Oil (15ml)](https://serp.ly/@bar/amazon/Spruce+Essential+Oil?utm\_term=natures-fusions-wild-spruce-black-pure-essential-oil-15ml)

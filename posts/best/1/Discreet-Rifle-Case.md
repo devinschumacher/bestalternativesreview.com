@@ -252,7 +252,7 @@ The material used in the construction of the discreet rifle case is another crit
 
 ### Locking Mechanisms
 
-Finally, the locking mechanisms of a discreet rifle case are essential for keeping your gear secure. [You will want to choose a case with a reliable locking mechanism that provides peace of mind when traveling with your rifle.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gun-Case-With-Lock.md) Look for cases with [combination locks](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Combination-Locks.md), keyed locks, or even biometric locks that allow access only to those who know the combination or have the right biometric credentials. 
+Finally, the locking mechanisms of a discreet rifle case are essential for keeping your gear secure. [You will want to choose a case with a reliable locking mechanism that provides peace of mind when traveling with your rifle.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gun-Case-With-Lock.md) Look for cases with [combination locks](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Combination-Locks.md), keyed locks, or even biometric locks that allow access only to those who know the combination or have the right biometric credentials. 
 
 
 ## FAQ
@@ -287,7 +287,7 @@ Another vital attribute is portability. A concealed rifle case should be lightwe
 
 While a concealed rifle case is not meant for serving as a primary gun safe, it can offer a reasonable level of security and protection when used as a portable storage solution. Most high-quality cases include locking mechanisms and sturdy construction to discourage theft and secure your firearm during transport. However, these cases, although secure, are not as durable or protective as traditional gun safes, and should not be solely relied upon for your firearm's storage.
 
-[If you need a more permanent and secure storage solution for your firearm, consider purchasing a top-notch gun safe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/64-Gun-Safes.md) These provide superior protection against theft, fire, and other possible threats, and are specifically designed to keep your firearms and valuable possessions secure and intact. Alternatively, a biometric or digital gun safe can be an even more secure option, employing fingerprint or access code-based locking systems for heightened security.
+[If you need a more permanent and secure storage solution for your firearm, consider purchasing a top-notch gun safe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/64-Gun-Safes.md) These provide superior protection against theft, fire, and other possible threats, and are specifically designed to keep your firearms and valuable possessions secure and intact. Alternatively, a biometric or digital gun safe can be an even more secure option, employing fingerprint or access code-based locking systems for heightened security.
 
 <div><a href="https://serp.ly/@bar/amazon/Discreet+Rifle+Case"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Discreet-Rifle-Case-6/h=540,fit=pad,background=black" alt="Discreet-Rifle-Case-6" height="540"></a></div>
 

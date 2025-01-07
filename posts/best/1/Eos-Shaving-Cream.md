@@ -314,7 +314,7 @@ Its appealing scent and beautiful packaging make it a perfect gift for men or as
 
 ## Buyer's Guide
 
-Welcome to our buyer's guide section for Eos Shaving Cream! [In this article, we will discuss important features, considerations, and general advice for choosing the right shaving cream in this product category.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shaving-Gel.md) We will not mention specific product picks or external resources, ensuring that our guide remains unbiased and informative. 
+Welcome to our buyer's guide section for Eos Shaving Cream! [In this article, we will discuss important features, considerations, and general advice for choosing the right shaving cream in this product category.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shaving-Gel.md) We will not mention specific product picks or external resources, ensuring that our guide remains unbiased and informative. 
 
 
 ### Considerations When Choosing Eos Shaving Cream

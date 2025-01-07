@@ -40,7 +40,7 @@ The folding feet and wheels on the playard are game-changers for storage and por
 
 However, there are some drawbacks to this product. The mattress cushioning requires some care and attention to avoid bunching, which could potentially be a safety concern. Additionally, the changing table does not have sufficient support on one side, making it a bit of a hassle to use. 
 
-[Overall, while there are a few areas in which the Graco Pack 'n Play could improve, the versatility and ease of use make it a worthwhile investment for any parent.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Graco-Duoglider.md) 
+[Overall, while there are a few areas in which the Graco Pack 'n Play could improve, the versatility and ease of use make it a worthwhile investment for any parent.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Graco-Duoglider.md) 
 
 
 ### [Daydreamer Portable Playpen with Bassinet](https://serp.ly/@bar/amazon/Play+Yard?utm\_term=daydreamer-portable-playpen-with-bassinet)
@@ -103,7 +103,7 @@ The 14-Panel Baby Playpen Kids Activity Center Foldable Play Yard with Lock Door
 
 The first thing I noticed about this playpen was its durability. Even though it's made of plastic, it's sturdy and can withstand my daughter's full-force tugs on the panels. This was quite a relief for me, as the last playpen I bought didn't last more than a week. 
 
-[The playpen also offers a variety of toys and interesting features, which keeps my little one entertained and engaged.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Little-People-Toys.md) Some of my favorite parts include the lock door feature, which provided an added layer of security when she was unattended for a few moments. Additionally, the foldable design makes it easy to move around the house, perfect for those who don't have a dedicated play area. 
+[The playpen also offers a variety of toys and interesting features, which keeps my little one entertained and engaged.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Little-People-Toys.md) Some of my favorite parts include the lock door feature, which provided an added layer of security when she was unattended for a few moments. Additionally, the foldable design makes it easy to move around the house, perfect for those who don't have a dedicated play area. 
 
 However, there were a couple of drawbacks that I encountered while using this playpen. Firstly, the assembly process was quite complicated and time-consuming. It took my partner and I approximately an hour to fully assemble it, which is longer than I expected for a product in its price range. 
 

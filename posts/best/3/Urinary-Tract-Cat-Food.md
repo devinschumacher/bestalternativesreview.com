@@ -27,7 +27,7 @@ The size of the can might be considered small by some, but considering that it's
 
 Being that my cat is quite sensitive when it comes to new foods, I was relieved to witness her positive reaction and willingness to consume the Purina Pro Plan formula. While it might be a bit more expensive than other cat foods, I find the additional benefits and peace of mind it provides well worth the extra cost. 
 
-[Overall, I'm quite happy with this Purina Pro Plan cat food, and I would definitely recommend it to other feline owners looking to provide their pets with a healthy and balanced diet.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Purina-Cat-Food.md) It's nice to see a brand dedicated to promoting the well-being of our furry friends, and I look forward to seeing what other products they have to offer in the future. 
+[Overall, I'm quite happy with this Purina Pro Plan cat food, and I would definitely recommend it to other feline owners looking to provide their pets with a healthy and balanced diet.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Purina-Cat-Food.md) It's nice to see a brand dedicated to promoting the well-being of our furry friends, and I look forward to seeing what other products they have to offer in the future. 
 
 
 ### [Indoor Cat Enclosure: Luxury Hammock and Extra Large Size for Small Animals](https://serp.ly/@bar/amazon/Urinary+Tract+Cat+Food?utm\_term=indoor-cat-enclosure-luxury-hammock-and-extra-large-size-for-small-animals)
@@ -69,7 +69,7 @@ Not only does this cat food contain high-quality protein, providing the optimal 
 
 However, the "smelly" reviews may not accurately represent the product as it has a mild scent resembling regular cat food. Furthermore, some cats may not accept the food immediately, but mixing it with another type of food may help them become more interested. 
 
-[Overall, the Purina Veterinary Diets UR St/Ox Urinary Cat Food is a top-quality choice for cats with urinary issues, providing the essential nutrients to support their health and happiness.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Purina-Kitten-Food.md) Don't let the small inconveniences deter you from trying this trusted brand for your beloved pet. 
+[Overall, the Purina Veterinary Diets UR St/Ox Urinary Cat Food is a top-quality choice for cats with urinary issues, providing the essential nutrients to support their health and happiness.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Purina-Kitten-Food.md) Don't let the small inconveniences deter you from trying this trusted brand for your beloved pet. 
 
 
 ### [Salmon Wet Cat Food for Urinary Tract Health: Pro Plan Focus Formula](https://serp.ly/@bar/amazon/Urinary+Tract+Cat+Food?utm\_term=salmon-wet-cat-food-for-urinary-tract-health-pro-plan-focus-formula)

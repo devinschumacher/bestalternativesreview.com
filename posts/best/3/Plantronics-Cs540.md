@@ -78,7 +78,7 @@ Overall, I would highly recommend the Plantronics CS540 to anyone looking for a 
 
 Using the Plantronics CS540 Spare Headset has been a joy in my daily routine. The lightweight, DECT wireless headset has been a game-changer for staying connected while I'm on the go, helping me to multi-task as I move around up to 350 feet from my desk. 
 
-The headset features a sleek, modern design, which I appreciate. But what really stands out to me is the advanced wideband audio using CAT-iq technology. [This high-definition voice quality makes my calls crystal clear, and I appreciate the noise-canceling microphone that significantly reduces background noise.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Noise-Cancelling-Microphone.md) 
+The headset features a sleek, modern design, which I appreciate. But what really stands out to me is the advanced wideband audio using CAT-iq technology. [This high-definition voice quality makes my calls crystal clear, and I appreciate the noise-canceling microphone that significantly reduces background noise.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Noise-Cancelling-Microphone.md) 
 
 However, there's still room for improvement with this headset. While I like the one-touch call answer/end, mute, and flash controls, some users have complained about the mute/volume button malfunction. Additionally, the magnetic headset docking seems elegant but can sometimes cause difficulties in charging and connecting the device. 
 

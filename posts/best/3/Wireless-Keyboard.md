@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Wireless-Keyboard.md
 
 # The Top 19 Wireless Keyboards for Comfort and Convenience -  Unleash Your Productivity
 
-[Welcome to our roundup of the top wireless keyboards on the market!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wireless-Keyboard.md) Are you tired of being tethered to your computer with a cumbersome cord? Say goodbye to those days with our selection of sleek and convenient wireless keyboards. Dive into the world of technology and freedom with this comprehensive guide. 
+[Welcome to our roundup of the top wireless keyboards on the market!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wireless-Keyboard.md) Are you tired of being tethered to your computer with a cumbersome cord? Say goodbye to those days with our selection of sleek and convenient wireless keyboards. Dive into the world of technology and freedom with this comprehensive guide. 
 
 *As an Amazon Associate we earn from qualified purchases*
 

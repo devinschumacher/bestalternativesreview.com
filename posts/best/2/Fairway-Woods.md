@@ -128,7 +128,7 @@ The D1 swing weight and included headcover are added bonuses for this excellent 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Fairway+Woods?utm_term=epic-speed-fairway-wood-for-ultimate-distance-and-precision"><img alt="epic-speed-fairway-4-wood-mens-right-callaway-golf-fairway-woods-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/epic-speed-fairway-4-wood-mens-right-callaway-golf-fairway-woods-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently tried out the Epic Speed Fairway 4 Wood from Callaway Golf, and let me tell you, it's a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Callaway-Super-Hybrid.md) The moment I swung it, I felt the power it had to offer. 
+[I recently tried out the Epic Speed Fairway 4 Wood from Callaway Golf, and let me tell you, it's a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Callaway-Super-Hybrid.md) The moment I swung it, I felt the power it had to offer. 
 
 This fairway wood is designed for speed, and it certainly doesn't disappoint. It's long and straight, making it a perfect addition to any golfer's bag. However, just like any product, it has its pros and cons. 
 
@@ -189,7 +189,7 @@ In my experience, this fairway wood truly shines when used in tandem with a Cobr
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Fairway+Woods?utm_term=ping-g430-lst-fairway-wood-enhance-your-swing"><img alt="ping-g430-lst-fairway-wood-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ping-g430-lst-fairway-wood-1/h=540,fit=pad,background=black"/></a></div>
 
-[As a golf enthusiast, I recently tried out the Ping G430 Max 3-Wood.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Ping-G425.md) It has made quite the impression on me with its impressive design and superb performance. 
+[As a golf enthusiast, I recently tried out the Ping G430 Max 3-Wood.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Ping-G425.md) It has made quite the impression on me with its impressive design and superb performance. 
 
 One highlight that stood out was the adjustable loft feature, which allowed me to fine-tune my shots for maximum distance and accuracy. The club's trajectory tuning hosel sleeve made it incredibly easy to adjust, offering eight positions to optimize my launch angle. 
 

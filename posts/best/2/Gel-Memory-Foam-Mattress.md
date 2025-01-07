@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md
 
 # The Best Gel Memory Foam Mattresses for a Restful Night's Sleep -  Our Top 21 Picks
 
-Welcome to our comprehensive review of the [Gel Memory Foam Mattress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md)! [This innovative mattress promises a restful night's sleep by combining the comfort of traditional memory foam with the cooling properties of gel.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) If you're in the market for a new mattress and want to learn more about this unique option, you've come to the right place. 
+Welcome to our comprehensive review of the [Gel Memory Foam Mattress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md)! [This innovative mattress promises a restful night's sleep by combining the comfort of traditional memory foam with the cooling properties of gel.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) If you're in the market for a new mattress and want to learn more about this unique option, you've come to the right place. 
 
 *As an Amazon Affiliate, we receive compensation from qualified purchases*
 
@@ -21,7 +21,7 @@ Welcome to our comprehensive review of the [Gel Memory Foam Mattress](https://gi
 
 I've been using the Slumber Solutions 10-Inch Gel Memory Foam Mattress for a few weeks now, and I must say, it's made quite an impression on me. Firstly, the comfort level is outstanding - it's soft yet firm, giving just the right amount of support to my back. The gel memory foam really absorbs motion, eliminating any uncomfortable pressure points I used to experience on my old mattress. 
 
-One of the highlights of this mattress is its firmness, which is perfect for me. [I appreciate that it's designed to provide ample support for side sleepers, and it's been a game-changer in alleviating my lower back stiffness.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Side-Sleeper-Pillow.md) Even my dog seems to love it! 
+One of the highlights of this mattress is its firmness, which is perfect for me. [I appreciate that it's designed to provide ample support for side sleepers, and it's been a game-changer in alleviating my lower back stiffness.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Side-Sleeper-Pillow.md) Even my dog seems to love it! 
 
 The mattress is also incredibly easy to set up - no more fussing with flipping or turning it around. And, the fact that it never needs turning is a major plus for me. The spot clean feature is a handy addition, but I have to admit, I haven't had to use it yet. 
 

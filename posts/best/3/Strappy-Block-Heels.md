@@ -50,7 +50,7 @@ The 2.5-inch block heels ensure a secure fit, while the open design offers breat
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Strappy+Block+Heels?utm_term=sam-edelman-kia-strappy-block-heeled-sandal-suede-leather-suede-sole-machine-wash"><img alt="sam-edelman-kia-strappy-sandal-wide-width-available-in-terracotta-pink-at-nordstrom-size-11-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sam-edelman-kia-strappy-sandal-wide-width-available-in-terracotta-pink-at-nordstrom-size-11-1/h=540,fit=pad,background=black"/></a></div>
 
-[Sam Edelman's iconic Kia strappy sandals are a stylish choice for both evening and day.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sam-Edelman-Sandals.md) The elegant combination of a slender ankle strap and a 3.5-inch block heel creates a comfortable and polished look for any occasion. Designed for versatility, these sandals provide comfort for all-day wear and are a wardrobe essential for weddings, dinner parties, and more. 
+[Sam Edelman's iconic Kia strappy sandals are a stylish choice for both evening and day.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sam-Edelman-Sandals.md) The elegant combination of a slender ankle strap and a 3.5-inch block heel creates a comfortable and polished look for any occasion. Designed for versatility, these sandals provide comfort for all-day wear and are a wardrobe essential for weddings, dinner parties, and more. 
 
 Available in a variety of colors, these sandals offer a touch of elegance to any outfit. However, some users have noted the sandal's tightness around the toes and the soles' lack of cushioning. 
 

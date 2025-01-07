@@ -65,7 +65,7 @@ As someone who loves organization, I found the Do It All Calendar from Orange Ci
 
 Not only was it functional, but the unique illustrations and designs on every page added a touch of elegance to my daily life. However, one downside was the lack of stickers for marking holidays and appointments, which I found necessary for my busy life. 
 
-[Overall, I highly recommend this calendar to anyone looking for a reliable and visually appealing way to manage their schedule.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Calendars.md) 
+[Overall, I highly recommend this calendar to anyone looking for a reliable and visually appealing way to manage their schedule.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Calendars.md) 
 
 
 ### [2024 Essential Monthly & Weekly Planner with Hourly Scheduling](https://serp.ly/@bar/amazon/Calendars?utm\_term=2024-essential-monthly-weekly-planner-with-hourly-scheduling)

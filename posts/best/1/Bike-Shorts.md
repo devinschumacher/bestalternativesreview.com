@@ -34,7 +34,7 @@ I recently got the chance to try out the Girls' Bike Shorts from Cat & Jack in t
 
 When it comes to the highlights, the bike shorts fall just above the knee, making them a nice length for both fun and practical activities. For the most part, they are a great buy, but there are a couple of cons. First, they do run slightly longer on my daughter than expected, and the inseam might be a bit too long for her taste. Additionally, the color we chose, dark black, is a bit more matte than I would have expected, but it's still a stylish choice. 
 
-Overall, the Girls' Bike Shorts from Cat & Jack are a great choice for families looking for comfortable, versatile shorts for their little ones. [With their stylish design and solid construction, these shorts have become a go-to addition to our wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Supreme-Shorts.md) 
+Overall, the Girls' Bike Shorts from Cat & Jack are a great choice for families looking for comfortable, versatile shorts for their little ones. [With their stylish design and solid construction, these shorts have become a go-to addition to our wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Supreme-Shorts.md) 
 
 
 ### [Sweaty Betty High-Performance Women's Bike Shorts](https://serp.ly/@bar/amazon/Bike+Shorts?utm\_term=sweaty-betty-high-performance-womens-bike-shorts)

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Linen-Paper.md
 
 # Capture Your Thoughts -  20 Best Linen Paper Options for Artistic Journaling and Note-Taking
 
-[Dive into the world of high-quality stationery with our comprehensive roundup of the best Linen Papers available in the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Linen-Paper.md) From its smooth texture to its elegant aesthetic appeal, this versatile paper is perfect for every stationery lover out there. With a variety of finishes and weights to choose from, we're sure you'll find your new favorite writing companion among our top picks. 
+[Dive into the world of high-quality stationery with our comprehensive roundup of the best Linen Papers available in the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Linen-Paper.md) From its smooth texture to its elegant aesthetic appeal, this versatile paper is perfect for every stationery lover out there. With a variety of finishes and weights to choose from, we're sure you'll find your new favorite writing companion among our top picks. 
 
 *As an Amazon Affiliate™, I earn through qualifying purchases.*
 

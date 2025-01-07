@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Rechargeable-Work-Light.md
 
 # Illuminate Your Path -  20 Best Rechargeable Work Light for Maximum Brightness and Portability
 
-[Welcome to our roundup of the top rechargeable work lights on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rechargeable-Work-Light.md) Whether you're a DIY enthusiast or a professional working in a dimly lit environment, our handpicked selection of quality and efficient portable lights will ensure that you're never in the dark again! 
+[Welcome to our roundup of the top rechargeable work lights on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rechargeable-Work-Light.md) Whether you're a DIY enthusiast or a professional working in a dimly lit environment, our handpicked selection of quality and efficient portable lights will ensure that you're never in the dark again! 
 
 *As an Amazon Affiliate, we may earn from qualifying purchases!*
 

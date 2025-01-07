@@ -28,7 +28,7 @@ The mattress also provided adequate support, thanks to the 805 individually wrap
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Twin+Xl+Mattress?utm_term=napqueen-maxima-8-twin-xl-hybrid-innerspring-and-gel-memory-foam-mattress"><img alt="napqueen-maxima-hybrid-of-innerspring-and-cooling-gel-memory-foam-mattress-8-twin-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/napqueen-maxima-hybrid-of-innerspring-and-cooling-gel-memory-foam-mattress-8-twin-xl-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently decided to dive into the world of hybrid mattresses and was glad I chose the NapQueen Maxima Twin XL Medium Hybrid Mattress. [As a side sleeper, I was excited to try something new that would provide the support and comfort I needed for a good night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Side-Sleeper-Pillow.md) 
+I recently decided to dive into the world of hybrid mattresses and was glad I chose the NapQueen Maxima Twin XL Medium Hybrid Mattress. [As a side sleeper, I was excited to try something new that would provide the support and comfort I needed for a good night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Side-Sleeper-Pillow.md) 
 
 One of the first things that stood out to me was the unboxing experience. The mattress arrived in a compact and manageable box, which made bringing it upstairs a breeze. Once it was time to set it up, the unwrapping process was straightforward - no major hassle to deal with. 
 
@@ -60,7 +60,7 @@ Despite my initial excitement for this mattress, it ultimately fell short of my 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Twin+Xl+Mattress?utm_term=twin-xl-beautyrest-silver-2-0-pillow-top-mattress-for-better-sleep"><img alt="twin-xl-beautyrest-silver-brs900-medium-pillow-top-mattress-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/twin-xl-beautyrest-silver-brs900-medium-pillow-top-mattress-1/h=540,fit=pad,background=black"/></a></div>
 
-The Beautyrest Silver BRS900 is a [Twin XL mattress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Twin-Xl-Mattress.md) that delivers excellent comfort and support. [With its unique combination of air cool foam, firm comfort foam, plush comfort foam, and energy foam, you'll experience a luxurious and restful night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) 
+The Beautyrest Silver BRS900 is a [Twin XL mattress](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Twin-Xl-Mattress.md) that delivers excellent comfort and support. [With its unique combination of air cool foam, firm comfort foam, plush comfort foam, and energy foam, you'll experience a luxurious and restful night's sleep.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) 
 
 The BeautyEdge foam ensures a consistent and stable sleeping area, while the pocketed coil system provides accurate contouring for ultimate support. Its DualCool Technology Fiber even helps maintain the perfect sleeping temperature, keeping you cool and comfortable all night long. 
 

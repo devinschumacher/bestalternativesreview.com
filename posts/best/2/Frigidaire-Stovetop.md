@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Frigidaire-Stovetop.md
 
 # Cook Up a Storm with the Best Frigidaire Stovetop -  Our Top 46 Picks
 
-Welcome to our roundup of the [Frigidaire Stovetop](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Frigidaire-Stovetop.md), a collection of top-notch products that have been carefully selected to meet your culinary needs. [Get ready to explore a range of Frigidaire stovetops, each offering unique features and benefits, and find the perfect one to elevate your cooking experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Frigidaire-Stovetop.md) 
+Welcome to our roundup of the [Frigidaire Stovetop](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Frigidaire-Stovetop.md), a collection of top-notch products that have been carefully selected to meet your culinary needs. [Get ready to explore a range of Frigidaire stovetops, each offering unique features and benefits, and find the perfect one to elevate your cooking experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Frigidaire-Stovetop.md) 
 
 *As an Amazon Affiliate, I earn through qualifying purchases*
 

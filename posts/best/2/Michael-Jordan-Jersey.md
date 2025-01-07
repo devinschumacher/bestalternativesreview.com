@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Michael-Jordan-Jersey.md
 
 # Champion Style -  20 Best Michael Jordan Jerseys for Sports Fans and MJ Enthusiasts
 
-[Get ready to relive the glory days of basketball with our collection of the top Michael Jordan jerseys on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Michael-Jordan-Jersey.md) Whether you're a die-hard fan or just looking to add some style to your game, our roundup showcases the very best in Jordan memorabilia. Let's dive in and discover the perfect jersey for you. 
+[Get ready to relive the glory days of basketball with our collection of the top Michael Jordan jerseys on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Michael-Jordan-Jersey.md) Whether you're a die-hard fan or just looking to add some style to your game, our roundup showcases the very best in Jordan memorabilia. Let's dive in and discover the perfect jersey for you. 
 
 *As an Amazon Affiliate™ we may earn from qualified purchases*
 
@@ -50,7 +50,7 @@ Its comfortable mesh construction ensures your child stays cool and comfortable 
 
 Enjoy the thrill of the game with this comfortable and stylish Jordan Boys 23 Jersey, available in Black Size S. This breathable tank top is made from smooth mesh fabric that feels soft against your skin, keeping you cool even during the most intense matches. 
 
-The classic tank top design features stitched player name and number on the back for added authenticity, while side slits at the hem add a touch of comfort and versatility. [Whether you're playing basketball or cheering on your favorite team, this vibrant and well-fitting jersey is the perfect addition to your sports wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Basketball-Jersey.md) 
+The classic tank top design features stitched player name and number on the back for added authenticity, while side slits at the hem add a touch of comfort and versatility. [Whether you're playing basketball or cheering on your favorite team, this vibrant and well-fitting jersey is the perfect addition to your sports wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Basketball-Jersey.md) 
 
 
 ### [Authentic Michael Jordan 1998 All-Star Game Jersey - Chicago Bulls Edition](https://serp.ly/@bar/amazon/Michael+Jordan+Jersey?utm\_term=authentic-michael-jordan-1998-all-star-game-jersey-chicago-bulls-edition)

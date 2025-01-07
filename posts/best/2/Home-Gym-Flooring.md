@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/2/Home-Gym-Flooring.md
 
 Transform your home gym experience with our roundup of the best flooring options.   
 
-[From cork and rubber to interlocking tiles, find the perfect fit to enhance your workout routine and maximize safety.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Home-Gym-Flooring.md) Get ready to create your ideal home gym set-up with choices to suit any budget and preference. 
+[From cork and rubber to interlocking tiles, find the perfect fit to enhance your workout routine and maximize safety.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Home-Gym-Flooring.md) Get ready to create your ideal home gym set-up with choices to suit any budget and preference. 
 
 *As an Amazon Affiliate™, I may earn from qualifying purchases*
 

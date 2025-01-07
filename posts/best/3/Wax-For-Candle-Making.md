@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Wax-For-Candle-Making.md
 
 # Best Waxes for Candle Making -  Our Top 23 Picks for Perfectly Pourable Creations
 
-Are you ready to dive into the world of candle making? Let us guide you through the process and discover the best [wax for candle making](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wax-For-Candle-Making.md). [Our roundup covers everything from natural beeswax to soy wax and other top-rated options, ensuring you find the perfect wax to bring your creations to life.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wax-For-Candle-Making.md) 
+Are you ready to dive into the world of candle making? Let us guide you through the process and discover the best [wax for candle making](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wax-For-Candle-Making.md). [Our roundup covers everything from natural beeswax to soy wax and other top-rated options, ensuring you find the perfect wax to bring your creations to life.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wax-For-Candle-Making.md) 
 
 *As an Amazon Affiliate I receive compensation from qualifying purchases.*
 
@@ -255,7 +255,7 @@ As a beginner in the art of candle making, I was excited to try out the Hearth &
 
 The step-by-step instructions were simple and easy to follow, making it a breeze for even the most novice crafters like myself. The premium quality materials used in the kit also added to my experience, making it feel like I was working with a professional-grade product. 
 
-[While the process of making candles was relatively easy, I did find the fragrance oils to be a bit overpowering at times.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) This made it difficult to find the right balance between scent and wax, and I ended up adding less fragrance than I would have liked. Overall, however, the experience was enjoyable, and I was proud of the handmade candles that I created. 
+[While the process of making candles was relatively easy, I did find the fragrance oils to be a bit overpowering at times.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) This made it difficult to find the right balance between scent and wax, and I ended up adding less fragrance than I would have liked. Overall, however, the experience was enjoyable, and I was proud of the handmade candles that I created. 
 
 As a gift, the candle-making kit would be perfect for someone looking to start their own candle-making journey or for someone who enjoys creating unique and thoughtful handmade gifts. While I had a few minor issues with the kit, the simplicity and affordability of the product made it a great choice for a beginner in the world of candle making. 
 

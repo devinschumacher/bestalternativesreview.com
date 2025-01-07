@@ -58,7 +58,7 @@ What's interesting is how it supports both PC and Mac, meaning it's designed for
 
 A minor issue I faced was one of the charging ports not working consistently. I discovered that only one of the four ports would charge my device at a time, which has been a bit frustrating at times. 
 
-Overall, the Onn. [Portable 4-Port USB Hub has proven to be a reliable and practical way of managing multiple USB devices at once.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Multiple-Usb-Port.md) Its compact design, versatile compatibility, and high-speed data transfer rates are features that have made my life much easier. Though the occasional charging issue is irritating, I believe it's a small compromise worth taking for the overall functionality of the product. 
+Overall, the Onn. [Portable 4-Port USB Hub has proven to be a reliable and practical way of managing multiple USB devices at once.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Multiple-Usb-Port.md) Its compact design, versatile compatibility, and high-speed data transfer rates are features that have made my life much easier. Though the occasional charging issue is irritating, I believe it's a small compromise worth taking for the overall functionality of the product. 
 
 
 ### [Ultra-Fast 10-Port USB Hub with Charging Ports and On/Off Switches](https://serp.ly/@bar/amazon/Multiple+Usb+Port?utm\_term=ultra-fast-10-port-usb-hub-with-charging-ports-and-on-off-switches)
@@ -89,7 +89,7 @@ Introducing the TOTU 13-in-1 Type C Hub, a versatile and easy-to-use device that
 
 The hub is designed to support a resolution of up to 1080p, ensuring clear and crisp visuals. Additionally, it features a transfer rate of up to 10 Gbps, allowing for quick data transmission. 
 
-The hub comes with a USB Type-C Female PD charging port, 1 HDMI port, 1 SD card slot, 1 TF card slot, 1 USB 2.0 Type A port, and 2 USB 3.0 Type A ports. [Whether you're at home, work, or on the go, this powerful USB hub will meet all your connection requirements.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/USB-3.0-Hub.md) 
+The hub comes with a USB Type-C Female PD charging port, 1 HDMI port, 1 SD card slot, 1 TF card slot, 1 USB 2.0 Type A port, and 2 USB 3.0 Type A ports. [Whether you're at home, work, or on the go, this powerful USB hub will meet all your connection requirements.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/USB-3.0-Hub.md) 
 
 
 ### [WAVLINK USB-C Docking Station with Triple Display Support & Fast Charging Feature](https://serp.ly/@bar/amazon/Multiple+Usb+Port?utm\_term=wavlink-usb-c-docking-station-with-triple-display-support-fast-charging-feature)
@@ -441,7 +441,7 @@ As someone who's always on the go, I found this Powered USB 3.2 Hub to be a real
 
 The 30W power adapter is powerful enough to quickly charge any device, and the Type A and C cable options are a great touch. The splitter function also came in handy when I needed to plug in multiple devices at once. 
 
-However, one downside is that it's not the smallest hub out there, so it might be a bit harder to pack in a bag. [Overall, I'd definitely recommend this Powered USB 3.2 Hub to anyone looking for a reliable and versatile charging solution.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Powered-USB-Hub.md) 
+However, one downside is that it's not the smallest hub out there, so it might be a bit harder to pack in a bag. [Overall, I'd definitely recommend this Powered USB 3.2 Hub to anyone looking for a reliable and versatile charging solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Powered-USB-Hub.md) 
 
 
 ### [UtechSmart USB C Hub Triple Display Docking Station Review](https://serp.ly/@bar/amazon/Multiple+Usb+Port?utm\_term=utechsmart-usb-c-hub-triple-display-docking-station-review)

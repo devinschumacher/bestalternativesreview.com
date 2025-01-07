@@ -19,7 +19,7 @@ Stylish, comfortable and effortlessly cool, [low top sneakers](https://github.co
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Low+Top+Sneakers?utm_term=nike-borough-low-recraft-sneakers-in-pale-ivory-melon-tint-for-kids-size-3-5"><img alt="nike-big-kids-court-borough-low-recraft-casual-shoes-in-yellow-pale-ivory-size-3-5-leather-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nike-big-kids-court-borough-low-recraft-casual-shoes-in-yellow-pale-ivory-size-3-5-leather-1/h=540,fit=pad,background=black"/></a></div>
 
-[These sneakers, designed for the kiddos, have a recrafted look - think classic but with a twist.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kids-White-Sneakers.md) They're made from durable materials both on the upper and the sole, to give them that long-lasting vibe. The toe box has been redesigned too, offering a bit extra space for your little ones' feet to really run, jump, and play without any restriction. 
+[These sneakers, designed for the kiddos, have a recrafted look - think classic but with a twist.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kids-White-Sneakers.md) They're made from durable materials both on the upper and the sole, to give them that long-lasting vibe. The toe box has been redesigned too, offering a bit extra space for your little ones' feet to really run, jump, and play without any restriction. 
 
 The coolest part? The classic laces that add a bit of stylish touch to their look. And don't forget about those flex grooves on the outsole - they're there to make sure your kids' steps are comfortable, no matter where they are. 
 
@@ -54,7 +54,7 @@ I recently tried the Coach Outlet Clip Court Low Top Sneaker in Signature Canvas
 
 One noteworthy feature of these sneakers was their comfort level. The cushioned insole and EVA and rubber outsole made walking a breeze, even for long hours. The footbed, lined with fabric, was soft and breathable, ensuring a comfortable feel even after extended wear. 
 
-However, there was one downside I encountered – the sizing. As one user mentioned, they can run a bit bigger than expected, so it's advisable to size down or go half a size smaller for a better fit. [Despite this minor issue, these sneakers truly make a great addition to any wardrobe, offering both style and comfort.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dress-Sneakers.md) 
+However, there was one downside I encountered – the sizing. As one user mentioned, they can run a bit bigger than expected, so it's advisable to size down or go half a size smaller for a better fit. [Despite this minor issue, these sneakers truly make a great addition to any wardrobe, offering both style and comfort.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dress-Sneakers.md) 
 
 
 ### [Nike SB Dunk Low Fog - All-Season Foggy Low-Top Sneakers](https://serp.ly/@bar/amazon/Low+Top+Sneakers?utm\_term=nike-sb-dunk-low-fog-all-season-foggy-low-top-sneakers)

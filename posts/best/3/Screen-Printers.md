@@ -47,7 +47,7 @@ One key feature of this starter kit is its versatility – the frames included c
 
 However, one downside of this kit is that it may not include every necessary screen printing supply. It's essential to double-check before ordering to ensure that you have access to all the tools you need for your projects. Another thing to note is that the inkjet film has two sides – the carrier sheet side and the inkjet receptive side – so it's important to use the correct side for optimal results. 
 
-Overall, the Colovis 23 Pcs Screen Printing Starter Kit is a fantastic choice for beginners looking to explore the world of screen printing. [Its versatility, comprehensive collection of tools, and easy-to-follow instructions make it a standout option among similar kits on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tool-Kit.md) 
+Overall, the Colovis 23 Pcs Screen Printing Starter Kit is a fantastic choice for beginners looking to explore the world of screen printing. [Its versatility, comprehensive collection of tools, and easy-to-follow instructions make it a standout option among similar kits on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tool-Kit.md) 
 
 
 ### [6 Color Full Set Rotating Screen Printing Machine](https://serp.ly/@bar/amazon/Screen+Printers?utm\_term=6-color-full-set-rotating-screen-printing-machine)

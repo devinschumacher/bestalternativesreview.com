@@ -50,7 +50,7 @@ This formula is specifically designed for the health and well-being of smaller d
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dog+Food+Blue+Bag?utm_term=blue-basics-grain-free-salmon-potato-dog-food-22-lbs-bag"><img alt="blue-basics-grain-free-dog-food-salmon-potato-recipe-22-lb-bag-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/blue-basics-grain-free-dog-food-salmon-potato-recipe-22-lb-bag-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently switched my furry friend to the Blue Basics Grain-Free Salmon & Potato dog food, and let me tell you, it's been a game-changer for his digestive system and overall health.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Blue-Dog-Food.md) Normally, we've been feeding him Blue Buffalo but we decided to give this alternative a try. 
+[I recently switched my furry friend to the Blue Basics Grain-Free Salmon & Potato dog food, and let me tell you, it's been a game-changer for his digestive system and overall health.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Blue-Dog-Food.md) Normally, we've been feeding him Blue Buffalo but we decided to give this alternative a try. 
 
 The first thing I noticed about this Blue Basics dog food is its smell - it's a pleasant and strong smell of salmon, which is something most dogs appreciate. The change in smell immediately caught my dog's attention and made him excited to eat. 
 

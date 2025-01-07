@@ -30,7 +30,7 @@ Each sock features a signature multicolor design and a ribbed support band at th
 
 Experience the perfect blend of style and comfort with the Amiri White & Blue Collegiate Socks. These socks stand out with their bold colorblocking and stylishly slanted logo lettering. Made from a combination of cotton, polyester, and spandex, these ribbed crew socks provide both comfort and a fashionable touch. 
 
-Perfect for everyday wear or dressing up, they are machine washable and tumble dry safe. [So, get ready to add some color and comfort to your everyday life with these designer socks.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hue-Socks.md) 
+Perfect for everyday wear or dressing up, they are machine washable and tumble dry safe. [So, get ready to add some color and comfort to your everyday life with these designer socks.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hue-Socks.md) 
 
 
 ### [Burberry Archive Beige Designer Socks with 8% Cashmere and 4% Elastane (Size Large)](https://serp.ly/@bar/amazon/Designer+Socks?utm\_term=burberry-archive-beige-designer-socks-with-8-cashmere-and-4-elastane-size-large)

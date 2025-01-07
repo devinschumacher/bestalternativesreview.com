@@ -50,7 +50,7 @@ But wait, there's more! The JK-24G features tempered glass panels, a safety feat
 
 The Primo Lanterns JK-31E is a stunning 31-inch copper lantern, meticulously handcrafted using 22-gauge copper. Its four-sided body is adorned with an architectural top featuring tempered glass and powder-painted aluminum bracket. 
 
-[This sturdy and elegant lantern is perfect for adding a touch of warmth and charm to any outdoor space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hanging-Solar-Lanterns.md) The sturdy aluminum mount is included, providing added stability and security. Its clear powder coat finish ensures long-lasting protection against the elements. 
+[This sturdy and elegant lantern is perfect for adding a touch of warmth and charm to any outdoor space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hanging-Solar-Lanterns.md) The sturdy aluminum mount is included, providing added stability and security. Its clear powder coat finish ensures long-lasting protection against the elements. 
 
 The lantern comes in an electric version with two 60-watt candelabra bulbs, making it a practical choice for your outdoor lighting needs. As an ETL certified product, you can rest assured that it meets the highest safety standards. Overall, the Primo Lanterns JK-31E is a beautiful and versatile addition to any outdoor living area. 
 

@@ -19,7 +19,7 @@ If you're a golf enthusiast, the name "Callaway" likely sparks instant recogniti
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Callaway+Apex?utm_term=callaway-apex-19-hybrid-used-demo-right-handed-mens-graphite-club"><img alt="callaway-apex-19-hybrid-used-demo-right-hand-mens-graphite-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/callaway-apex-19-hybrid-used-demo-right-hand-mens-graphite-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently tried out the Callaway Apex 19 Hybrid, and let me tell you, it's been a game-changer for my golfing experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Callaway-Super-Hybrid.md) I've been using it for a while now, and I must say, the controlled ball flight and workability it provides make a noticeable difference on the course. 
+[I recently tried out the Callaway Apex 19 Hybrid, and let me tell you, it's been a game-changer for my golfing experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Callaway-Super-Hybrid.md) I've been using it for a while now, and I must say, the controlled ball flight and workability it provides make a noticeable difference on the course. 
 
 One of the standout features is the Jailbreak Technology, which really delivers on its promise of faster ball speeds across a larger portion of the face. The Forged Face Cup, made from Carpenter 455 steel, is another impressive addition that increases ball speed and distance on impacts across the face. 
 

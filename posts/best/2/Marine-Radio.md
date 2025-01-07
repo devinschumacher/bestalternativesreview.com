@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Marine-Radio.md
 
 # Stay Connected at Sea -  Top 50 Marine Radios for Safe Navigation
 
-[Welcome to our comprehensive roundup of top-tier Marine Radios.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Marine-Radio.md) In this article, we'll be diving into the world of marine communication and exploring the latest, most innovative, and reliable devices on the market. Whether you're an experienced sailor or just starting your maritime journey, we've got you covered. Join us as we navigate through the best Marine Radios available, finding the perfect fit for your needs. 
+[Welcome to our comprehensive roundup of top-tier Marine Radios.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Marine-Radio.md) In this article, we'll be diving into the world of marine communication and exploring the latest, most innovative, and reliable devices on the market. Whether you're an experienced sailor or just starting your maritime journey, we've got you covered. Join us as we navigate through the best Marine Radios available, finding the perfect fit for your needs. 
 
 *As an Amazon Associate I receive compensation through qualifying purchases.*
 

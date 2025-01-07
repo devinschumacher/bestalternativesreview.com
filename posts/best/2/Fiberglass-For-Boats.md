@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Fiberglass-For-Boats.md
 
 # Durable and Lightweight -  Top 20 Fiberglass Options for Your Boat
 
-If you're a boat owner, you know the importance of keeping your vessel in top shape. From hull structure to the finish, every detail matters. [In this article, we're diving into the world of fiberglass, a popular choice for boatbuilding.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fiberglass-For-Boats.md) We've rounded up the best fiberglass boats on the market, so sit back, relax, and let's explore the many benefits and features of these fantastic vessels. 
+If you're a boat owner, you know the importance of keeping your vessel in top shape. From hull structure to the finish, every detail matters. [In this article, we're diving into the world of fiberglass, a popular choice for boatbuilding.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fiberglass-For-Boats.md) We've rounded up the best fiberglass boats on the market, so sit back, relax, and let's explore the many benefits and features of these fantastic vessels. 
 
 *As an Amazon Affiliate I earn through qualifying purchases at no cost to you*
 

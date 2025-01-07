@@ -295,7 +295,7 @@ However, there's always room for improvement - I wish the sandal were available 
 
 Experience the perfect blend of style and comfort with the Sperry x Pleasures Float Slide Sandal in Black. This unique sandal is crafted from an ultra-light EVA material, making it ideal for those on-the-go. With its stylish ripped fishnet pattern, the sandal stands out from the rest. The signature razor-cut Wave-Siping technology guarantees added traction, ensuring that you're always on your feet. 
 
-[Users have praised the sandal for its comfortable fit and form-fitting design, making it their go-to footwear option.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Leopard-Sandal-Heels.md) The collaboration between Pleasures and Sperry has resulted in a visually appealing piece that's both fashionable and functional. However, some users have noted that the size specs are not as precise as they would have liked, and the price point seems a tad high compared to similar sandals. 
+[Users have praised the sandal for its comfortable fit and form-fitting design, making it their go-to footwear option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Leopard-Sandal-Heels.md) The collaboration between Pleasures and Sperry has resulted in a visually appealing piece that's both fashionable and functional. However, some users have noted that the size specs are not as precise as they would have liked, and the price point seems a tad high compared to similar sandals. 
 
 Overall, the Sperry x Pleasures Float Slide Sandal in Black offers a striking combination of style and functionality, making it a worthwhile addition to any wardrobe. 
 

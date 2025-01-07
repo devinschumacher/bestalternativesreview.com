@@ -130,7 +130,7 @@ The fragrance and oil-free nature of Applebiotic also made it a great choice for
 
 However, my experience with Applebiotic wasn't entirely positive. While I appreciated the color-safe and cruelty-free aspects of the product, I did notice slight residue left behind, requiring a bit more rinsing than usual. And, though it worked wonders for my hair type, I couldn't help but wonder how effective it would be for those with different hair concerns, such as oily hair types or those with more fragile strands. 
 
-In conclusion, Applebiotic has proven to be a helpful addition to my hair care routine. But like any product, there are pros and cons to consider. [If you're someone who prefers a simple, natural approach to hair care, and you have dry or frizzy hair, this could be the perfect solution for you.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hair-Moisturizer.md) Just be mindful of the residue and give it some extra rinse time. 
+In conclusion, Applebiotic has proven to be a helpful addition to my hair care routine. But like any product, there are pros and cons to consider. [If you're someone who prefers a simple, natural approach to hair care, and you have dry or frizzy hair, this could be the perfect solution for you.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hair-Moisturizer.md) Just be mindful of the residue and give it some extra rinse time. 
 
 
 ### [The Rootist AHA+ACV Pre-Shampoo Scalp Clarifying Rinse](https://serp.ly/@bar/amazon/Acv+Hair+Rinse?utm\_term=the-rootist-ahaacv-pre-shampoo-scalp-clarifying-rinse)

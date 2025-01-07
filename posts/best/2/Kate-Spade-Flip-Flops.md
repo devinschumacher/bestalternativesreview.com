@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Kate-Spade-Flip-Flops.md
 
 # Sizzling Summer -  12 Best Kate Spade Flip Flops for Chic and Comfortable Footwear
 
-[Slightly tanned skin and a comfortable pair of flip flops are summer's best companions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kate-Spade-Flip-Flops.md) In this roundup, we've collected the top choices of [Kate Spade flip flops](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kate-Spade-Flip-Flops.md), offering elegance and comfort blended into one. Whether you're lounging by the pool or exploring new sights, these stylish flip flops are the perfect addition to your summer shoe collection. 
+[Slightly tanned skin and a comfortable pair of flip flops are summer's best companions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kate-Spade-Flip-Flops.md) In this roundup, we've collected the top choices of [Kate Spade flip flops](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kate-Spade-Flip-Flops.md), offering elegance and comfort blended into one. Whether you're lounging by the pool or exploring new sights, these stylish flip flops are the perfect addition to your summer shoe collection. 
 
 *As an Amazon Affiliate™ I receive compensation through qualified purchases!*
 

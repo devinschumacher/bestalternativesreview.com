@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Psychological-Thriller-Books.md
 
 # Mind Games Unveiled -  20 Best Psychological Thriller Books to Keep You on the Edge
 
-[Immerse yourself in the realm of psychological thrillers through our meticulously selected range of books!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Psychological-Thriller-Books.md) Prepare to encounter nerve-wracking suspense and mind-bending plot twists as we present to you the finest psychological thrillers available. Our list boasts of seasoned storytellers alongside emerging authors, ensuring a diverse, exhilarating collection that will keep you on the edge of your seat. So, grab a comfortable spot, unwind, and get ready to be engrossed in these intriguing reads.
+[Immerse yourself in the realm of psychological thrillers through our meticulously selected range of books!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Psychological-Thriller-Books.md) Prepare to encounter nerve-wracking suspense and mind-bending plot twists as we present to you the finest psychological thrillers available. Our list boasts of seasoned storytellers alongside emerging authors, ensuring a diverse, exhilarating collection that will keep you on the edge of your seat. So, grab a comfortable spot, unwind, and get ready to be engrossed in these intriguing reads.
 
 *As an Amazon Affiliate™ we earn from qualified purchases at no cost to you*
 
@@ -211,7 +211,7 @@ This psychological thriller will take you on a rollercoaster of emotions as you 
 
 Delve into the chilling and suspenseful world of Ruth Ware's psychological thriller, "In a Dark, Dark Wood. " With a paperback binding and 352 pages, this book is an instant New York Times, USA Today, and Los Angeles Times bestseller. Set in the English countryside, an ordinary weekend takes a sinister turn as the party is forced to confront their deepest secrets and darkest fears. 
 
-This compulsively readable novel is not for the faint of heart and will keep you on the edge of your seat until the very end. [Experience the gripping storyline, memorable characters, and unexpected twists that make Ruth Ware's novels a must-read for thriller enthusiasts.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Ruth-Ware-Books.md) 
+This compulsively readable novel is not for the faint of heart and will keep you on the edge of your seat until the very end. [Experience the gripping storyline, memorable characters, and unexpected twists that make Ruth Ware's novels a must-read for thriller enthusiasts.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Ruth-Ware-Books.md) 
 
 
 ### [The Prisoner: A Suspenseful Psychological Thriller](https://serp.ly/@bar/amazon/Psychological+Thriller+Books?utm\_term=the-prisoner-a-suspenseful-psychological-thriller)

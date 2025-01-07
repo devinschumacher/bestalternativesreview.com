@@ -236,7 +236,7 @@ One of the perks of this high-quality art paper is the ease with which it can be
 
 However, the Colors of the World Premium Project Paper's price point may be a limiting factor for some budget-conscious customers. The 48 sheets-per-pack might not provide sufficient coverage for larger projects, which means it might be wise to consider purchasing multiple packs in one sitting. Additionally, while this paper is engineered for premium performance, it might not be the most suitable choice for heavy-duty, large-scale artwork or poster-making. 
 
-[Despite these minor drawbacks, the Colors of the World Premium Project Paper has managed to capture the hearts of artists and crafters alike, offering a diverse and inclusive palette of colors that's sure to inspire creativity and promote self-expression.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rainbow-Paper.md) 
+[Despite these minor drawbacks, the Colors of the World Premium Project Paper has managed to capture the hearts of artists and crafters alike, offering a diverse and inclusive palette of colors that's sure to inspire creativity and promote self-expression.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rainbow-Paper.md) 
 
 
 ###

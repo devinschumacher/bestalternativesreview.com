@@ -85,7 +85,7 @@ I appreciate the Auto-Shut Off feature, which activates when the water reaches b
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Glass+Electric+Kettle?utm_term=aiheal-glass-electric-kettle-with-temperature-control-and-led-lights"><img alt="electric-kettle-aiheal-glass-kettle-temperature-control-with-5-colors-led-lights-variable-keep-warm--1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/electric-kettle-aiheal-glass-kettle-temperature-control-with-5-colors-led-lights-variable-keep-warm--1/h=540,fit=pad,background=black"/></a></div>
 
-[As a self-proclaimed tea aficionado, I stumbled upon the Aiheal Glass Kettle Temperature Control Electric Kettle, and it's been a game-changer in my daily tea-drinking routine.](https://gist.github.com/janeknowsbest77/df70e29d95af328b8dbadc7d8034806c) [This isn't just another run-of-the-mill electric kettle; it's a versatile, user-friendly device that boasts an array of features that impress even the most discerning tea lover.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cuisinart-Tea-Kettle.md) 
+[As a self-proclaimed tea aficionado, I stumbled upon the Aiheal Glass Kettle Temperature Control Electric Kettle, and it's been a game-changer in my daily tea-drinking routine.](https://gist.github.com/janeknowsbest77/df70e29d95af328b8dbadc7d8034806c) [This isn't just another run-of-the-mill electric kettle; it's a versatile, user-friendly device that boasts an array of features that impress even the most discerning tea lover.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cuisinart-Tea-Kettle.md) 
 
 One of the best aspects of this Aiheal kettle is its ability to control the temperature with precision. The 5-setting temperature control ensures that I can set the perfect heat level for my preferred green, black, or herbal teas. The different LED colors indicate varying temperature degrees, making it easy to keep track of the brewing process. 
 
@@ -348,7 +348,7 @@ As a busy coffee and tea enthusiast, I recently switched to using an Electric Ke
 
 One feature that really stood out for me is the kettle's auto shut-off function, which ensures complete safety while using the device, even when I forget to turn it off. The concealed heating element and cool-touch handle are also thoughtful design elements that make this kettle a win for every kitchen. 
 
-However, the product care instructions mention that it needs to be hand-washed, which might be a minor inconvenience for some users. [Overall, this Electric Kettle has been a fantastic addition to my daily routine, providing a seamless brewing experience every time.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fellow-Kettle.md) 
+However, the product care instructions mention that it needs to be hand-washed, which might be a minor inconvenience for some users. [Overall, this Electric Kettle has been a fantastic addition to my daily routine, providing a seamless brewing experience every time.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fellow-Kettle.md) 
 
 
 ### [Smart WiFi-Enabled Glass Electric Water Kettle](https://serp.ly/@bar/amazon/Glass+Electric+Kettle?utm\_term=smart-wifi-enabled-glass-electric-water-kettle)
@@ -425,7 +425,7 @@ Overall, the Ovente Electric Glass Hot Water Kettle 1.7 Liter Teapot Infuser is 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Glass+Electric+Kettle?utm_term=amazon-basics-electric-glass-and-steel-kettle-1-0-liter"><img alt="amazon-basics-electric-glass-and-steel-kettle-1-0-liter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amazon-basics-electric-glass-and-steel-kettle-1-0-liter-1/h=540,fit=pad,background=black"/></a></div>
 
-[Boil water with ease and convenience using this electric glass and steel kettle by Amazon Basics.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glass-Electric-Kettle.md) This versatile 1-liter kettle is perfect for whipping up a quick herbal tea, hot chocolate or instant soup, without the need for heating water on the stovetop. 
+[Boil water with ease and convenience using this electric glass and steel kettle by Amazon Basics.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Glass-Electric-Kettle.md) This versatile 1-liter kettle is perfect for whipping up a quick herbal tea, hot chocolate or instant soup, without the need for heating water on the stovetop. 
 
 The kettle's glass carafe, accompanied by a non-heating handle, detaches effortlessly from its base for cordless servings. Safety remains a priority with features such as auto-shutoff, blue operational lights, and boil dry protection. 
 

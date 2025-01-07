@@ -271,7 +271,7 @@ Toys for big kids can also play an important role in their social and interactiv
 
 ### What are the benefits of these toys for big kids?
 
-[These toys are designed to challenge and stimulate the minds of older children, promoting critical thinking, problem-solving skills, and creativity.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smart-Toys-For-Kids.md) They also help children to develop stronger social connections through teamwork and collaboration. Additionally, these toys can enhance children's hand-eye coordination, dexterity, and gross motor skills. 
+[These toys are designed to challenge and stimulate the minds of older children, promoting critical thinking, problem-solving skills, and creativity.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smart-Toys-For-Kids.md) They also help children to develop stronger social connections through teamwork and collaboration. Additionally, these toys can enhance children's hand-eye coordination, dexterity, and gross motor skills. 
 
 These toys often come with detailed instructions, which can help big kids learn how to read manuals and follow step-by-step procedures. As they work through these challenges, they build self-confidence and a strong sense of accomplishment. [Some toys even enable children to learn about STEM subjects such as engineering and architecture, providing valuable knowledge for future careers.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Discovery-Toys.md) 
 

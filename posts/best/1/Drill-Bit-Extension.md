@@ -146,7 +146,7 @@ Drill America's GLBCOX619/64 Cobalt Aircraft Extension Drill Bit stands out as a
 
 Moreover, the round shanks make these drill bits compatible with a wide range of tool holding systems. The cobalt-based material improves the performance when cutting harder metals while the gold-coated surface adds an attractive touch. The Drill America Cobalt Aircraft Extension Drill Bits are manufactured according to National Aerospace Standard 907 and available in various sizes and lengths to accommodate different job requirements. 
 
-[The exceptional build, solid performance, and reliable accuracy make these drill bits a must-have for aerospace professionals and enthusiasts alike.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Norseman-Drill-Bits.md) 
+[The exceptional build, solid performance, and reliable accuracy make these drill bits a must-have for aerospace professionals and enthusiasts alike.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Norseman-Drill-Bits.md) 
 
 
 ### [Durable Steel Quik-Lok Extension for Milwaukee Drills](https://serp.ly/@bar/amazon/Drill+Bit+Extension?utm\_term=durable-steel-quik-lok-extension-for-milwaukee-drills)

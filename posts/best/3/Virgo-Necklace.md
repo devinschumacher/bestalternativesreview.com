@@ -103,7 +103,7 @@ Overall, the Virgo Sign Pendant from The GLD Shop is a great addition to any jew
 
 Personalize your zodiac sign with the charming Tai New Zodiac Charm Necklace featuring a crystal-clear representation of your sign, alongside radiant crescent moon charm. Impressive design embellished with a mix of brass, yellow gold plating, and glittering elements creates a statement-worthy accessory for special occasions or everyday wear. 
 
-[Ideal for birthday, Mother's Day, Valentine's Day, and Christmas presents, this thoughtful necklace makes for a breathtaking gift.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Necklace-For-Mom.md) 
+[Ideal for birthday, Mother's Day, Valentine's Day, and Christmas presents, this thoughtful necklace makes for a breathtaking gift.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Necklace-For-Mom.md) 
 
 
 ### [Virgo Zodiac Diamond Accent Pendant Necklace](https://serp.ly/@bar/amazon/Virgo+Necklace?utm\_term=virgo-zodiac-diamond-accent-pendant-necklace)

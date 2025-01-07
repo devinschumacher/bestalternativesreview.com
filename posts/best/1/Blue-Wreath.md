@@ -105,7 +105,7 @@ The premium silk material ensures zero shredding, providing extra longevity and 
 
 Bring a touch of elegance to your doorstep with the Sullivans Dahlia Berry Wreath. This beautiful blue wreath boasts dazzling dahlias and verdant foliage, effortlessly elevating the style of your entryway. While some customers found the dimensions were slightly misconstrued, the overall result left most buyers satisfied. 
 
-[The wreath's design, coupled with the timeless charm of the dahlia, creates a striking visual that captures the essence of this classic floral creation - a perfect addition to any home, reflecting the harmony of tradition and modernity.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Floral-Fabric.md) 
+[The wreath's design, coupled with the timeless charm of the dahlia, creates a striking visual that captures the essence of this classic floral creation - a perfect addition to any home, reflecting the harmony of tradition and modernity.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Floral-Fabric.md) 
 
 
 ### [Beautiful Blue Kings Pine Wreath - 24" Diameter](https://serp.ly/@bar/amazon/Blue+Wreath?utm\_term=beautiful-blue-kings-pine-wreath-24-diameter)

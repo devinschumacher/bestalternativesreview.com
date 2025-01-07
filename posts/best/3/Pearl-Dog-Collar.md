@@ -43,7 +43,7 @@ In conclusion, the Sprinkles dog collar is a stunning choice for those looking f
 
 This exquisite Pearl and Clear Crystal Puppy Collar stands out with its radiant pearls and hand-set clear crystals, all set on a soft faux leather band. Measuring 3/8” wide, this collar is available in various colors and sizes, making it a fantastic choice for your new puppy or small dog. 
 
-The collar features a crystal-encrusted buckle and a d-ring for attaching tags or leashes. [Its sophisticated design and luxurious materials make it a standout choice that adds a touch of elegance to your pet's accessory collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cool-Dog-Leashes.md) 
+The collar features a crystal-encrusted buckle and a d-ring for attaching tags or leashes. [Its sophisticated design and luxurious materials make it a standout choice that adds a touch of elegance to your pet's accessory collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cool-Dog-Leashes.md) 
 
 
 ### [3/8" Pearl Collar - White Dog Accessory](https://serp.ly/@bar/amazon/Pearl+Dog+Collar?utm\_term=3-8-pearl-collar-white-dog-accessory)
@@ -61,7 +61,7 @@ The only downside was that it wasn't the most budget-friendly option, but the va
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pearl+Dog+Collar?utm_term=kentucky-handmade-pearl-dog-collars-artificial-leather-and-stylish-design"><img alt="kentucky-dog-collar-handmade-pearls-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kentucky-dog-collar-handmade-pearls-1/h=540,fit=pad,background=black"/></a></div>
 
-If you're searching for the ultimate accessory for your esteemed dog, look no further than these exquisite handmade dog collars from Kentucky Pearls. [Featuring a distinctive emphasis on vibrant colors, these collars are a fashion statement in themselves, while also adding a touch of sophistication to your canine companion.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pink-Dog-Collar.md)
+If you're searching for the ultimate accessory for your esteemed dog, look no further than these exquisite handmade dog collars from Kentucky Pearls. [Featuring a distinctive emphasis on vibrant colors, these collars are a fashion statement in themselves, while also adding a touch of sophistication to your canine companion.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pink-Dog-Collar.md)
 
 Skillfully crafted from superior artificial leather, these collars boast durability and longevity. The coordinating lead attachment and loop ensure a snug fit and provide peace of mind for your furry friend during outdoor adventures. These collar masterpieces have earned a stellar 5.0 rating and 4.0 reviews, consistently praised for their style, quality, and craftsmanship.
 

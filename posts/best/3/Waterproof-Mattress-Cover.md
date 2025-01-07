@@ -465,7 +465,7 @@ The Project Source Clear Mattress Bag offers excellent protection for your mattr
 
 Featuring a double seal, it effectively prevents bed bugs and severe weather from damaging your mattress. With microban antimicrobial protection, this cover keeps mold and mildew in check. 
 
-[Although some reviewers mention that the bags may tear while moving heavy mattresses, the overall satisfaction and ease of use make this product a smart choice for temporary mattress protection and waste disposal.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mattress-Bag-For-Moving.md) 
+[Although some reviewers mention that the bags may tear while moving heavy mattresses, the overall satisfaction and ease of use make this product a smart choice for temporary mattress protection and waste disposal.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mattress-Bag-For-Moving.md) 
 
 
 ### [Triple-Sealed Bed Bug Barrier Protector - Waterproof Mattress Cover with 3-Layer Barrier Protection](https://serp.ly/@bar/amazon/Waterproof+Mattress+Cover?utm\_term=triple-sealed-bed-bug-barrier-protector-waterproof-mattress-cover-with-3-layer-barrier-protection)

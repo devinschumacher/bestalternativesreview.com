@@ -19,7 +19,7 @@ Welcome to our roundup of the best Boho Flush Mount Lights! We've scoured the ma
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Boho+Flush+Mount+Light?utm_term=kira-home-tessa-boho-flush-mount-ceiling-light"><img alt="kira-home-tessa-13-2-light-modern-boho-flush-mount-wood-beaded-close-to-ceiling-light-brushed-pewter-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/kira-home-tessa-13-2-light-modern-boho-flush-mount-wood-beaded-close-to-ceiling-light-brushed-pewter-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Tessa 13-inch 2-light bohemia style flush mount ceiling light brings a modern, rustic touch to any space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Semi-Flush-Mount-Ceiling-Light.md) Its classy Tessa finish and beaded accents complement a variety of decors, from farmhouse style bulbs to elegant dining rooms. Standing at just six inches, this fixture is perfect for illuminating small spaces. 
+[The Tessa 13-inch 2-light bohemia style flush mount ceiling light brings a modern, rustic touch to any space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Semi-Flush-Mount-Ceiling-Light.md) Its classy Tessa finish and beaded accents complement a variety of decors, from farmhouse style bulbs to elegant dining rooms. Standing at just six inches, this fixture is perfect for illuminating small spaces. 
 
 However, its fixed form means it can't be easily moved, which might be a drawback for those who prefer flexibility. Nonetheless, the Tessa lights work with dimmer switches for mood-setting, and it's ETL approved for your safety. 
 

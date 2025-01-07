@@ -165,7 +165,7 @@ As a kayaker who loves fishing trips, the Perception Pescador Pro 12.0 kayak in 
 
 The abundance of storage options is truly appreciated, from the bow tankwell with mesh cover and rear tankwell to the recessed tackle box storage and even the center console for mounting fish finder electronics. Though I did encounter slight challenges when attempting to fit certain rods into the molded-in rod holders, I was able to find a workaround with the help of a Yak Gear paddle clip. 
 
-[I have also found this kayak to be very comfortable, stable, and easy to maneuver in the water.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Recreational-Kayaks.md) The tracking and stability make it an ideal choice for anglers looking to catch their fill, and the adjustable seat further enhances my overall experience. 
+[I have also found this kayak to be very comfortable, stable, and easy to maneuver in the water.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Recreational-Kayaks.md) The tracking and stability make it an ideal choice for anglers looking to catch their fill, and the adjustable seat further enhances my overall experience. 
 
 Although the Pescador Pro 12.0 kayak is a bit heavier than some of its competitors, the solid construction and long-lasting materials make it a worthwhile investment for avid fishermen and kayakers alike. It may not be the perfect fit for everyone, but for me, the benefits far outweigh the drawbacks. This kayak is an excellent choice for those who crave stability while on the water and are seeking a convenient and comfortable ride to their fishing hotspots. 
 
@@ -174,7 +174,7 @@ Although the Pescador Pro 12.0 kayak is a bit heavier than some of its competito
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Backpacking+Kayak?utm_term=teton-angler-kayak-backpacking-adventure-in-azure-fusion"><img alt="lifetime-teton-angler-kayak-azure-fusion-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lifetime-teton-angler-kayak-azure-fusion-1/h=540,fit=pad,background=black"/></a></div>
 
-The Lifetime Teton Angler kayak is a versatile, luxurious, and performance-driven option for fishing enthusiasts. [This sit-on-top kayak is perfect for a day of fishing and offers a comfortable experience on the water.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fishing-Kayak.md) 
+The Lifetime Teton Angler kayak is a versatile, luxurious, and performance-driven option for fishing enthusiasts. [This sit-on-top kayak is perfect for a day of fishing and offers a comfortable experience on the water.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fishing-Kayak.md) 
 
 It boasts a unique hull design that provides excellent stability and tracking capabilities, making it ideal for slow-moving rivers, lakes, and calm ocean bays. The framed seat ensures ultimate relaxation and supreme comfort, while the large front and rear tankwell storage provides ample space to secure gear. The built-in universal track allows you to conveniently accessorize your kayak without damaging it, adding functionality for rod holders, fish finders, cameras, and more. 
 

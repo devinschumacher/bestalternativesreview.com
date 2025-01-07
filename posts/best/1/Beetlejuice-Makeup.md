@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/1/Beetlejuice-Makeup.md
 
 Get ready to unleash the spooky fun with this roundup of the best [Beetlejuice makeup](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beetlejuice-Makeup.md) products! From striking face paints to unforgettable costumes, discover the perfect accessories to channel the spirit of the iconic film character. 
 
-[Whether you're a fan of cult classics or simply looking for a unique way to celebrate Halloween, this roundup delves into the world of Beetlejuice makeup and provides you with the essentials to bring this ghostly mischief-maker to life.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beetlejuice-Makeup.md) 
+[Whether you're a fan of cult classics or simply looking for a unique way to celebrate Halloween, this roundup delves into the world of Beetlejuice makeup and provides you with the essentials to bring this ghostly mischief-maker to life.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beetlejuice-Makeup.md) 
 
 *As an Amazon Associate I earn from qualifying purchases!*
 

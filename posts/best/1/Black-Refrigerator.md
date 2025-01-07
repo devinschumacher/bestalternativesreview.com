@@ -109,7 +109,7 @@ One of the standout features of this refrigerator is the humidity-controlled cri
 
 However, something that left me a bit disappointed was the lack of a lower wire bin in the freezer. Items tended to slide around, which wasn't a problem but it would have been more organized. Despite this minor issue, it's hard to find anything else that I truly disliked about this refrigerator. 
 
-Overall, I would highly recommend the Frigidaire FRTD2021AB 20.5 Cu. [ft. Black Top Freezer Refrigerator to anyone looking for a reliable and stylish unit to fit into their kitchen.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Refrigerator.md) Its sleek design, adaptable storage options, and humidity-controlled crispers make it a top choice in my book. 
+Overall, I would highly recommend the Frigidaire FRTD2021AB 20.5 Cu. [ft. Black Top Freezer Refrigerator to anyone looking for a reliable and stylish unit to fit into their kitchen.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Refrigerator.md) Its sleek design, adaptable storage options, and humidity-controlled crispers make it a top choice in my book. 
 
 
 ### [LG 20 Cu. Ft. Top Freezer Refrigerator: Top-Rated Energy-Saving Option](https://serp.ly/@bar/amazon/Black+Refrigerator?utm\_term=lg-20-cu-ft-top-freezer-refrigerator-top-rated-energy-saving-option)
@@ -230,9 +230,9 @@ This Frigidaire top freezer refrigerator is a perfect addition to any busy famil
 
 The humidity-controlled crisper drawer ensures that your produce stays fresh, and the auto-close doors prevent food spoilage and soupy ice cream. With Energy Star certification and ADA compliance, this refrigerator saves both energy and money while providing easy-to-reach controls. 
 
-[The refrigerator also offers flexible interior storage and an optional ice maker for added convenience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Refrigerator-With-Ice-Maker.md) However, be aware that it may require some effort to reverse the door, and the bottom drawer might not be to everyone's liking. 
+[The refrigerator also offers flexible interior storage and an optional ice maker for added convenience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Refrigerator-With-Ice-Maker.md) However, be aware that it may require some effort to reverse the door, and the bottom drawer might not be to everyone's liking. 
 
-[Overall, if you're in need of a versatile, energy-efficient, and well-equipped refrigerator, this Frigidaire top freezer refrigerator is a fantastic choice.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bottom-Freezer-Refrigerator.md) 
+[Overall, if you're in need of a versatile, energy-efficient, and well-equipped refrigerator, this Frigidaire top freezer refrigerator is a fantastic choice.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bottom-Freezer-Refrigerator.md) 
 
 
 ### [Whirlpool 24-Inch Top-Freezer Fridge, 11.6 Cu. ft. Storage](https://serp.ly/@bar/amazon/Black+Refrigerator?utm\_term=whirlpool-24-inch-top-freezer-fridge-11-6-cu-ft-storage)

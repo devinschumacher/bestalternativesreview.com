@@ -208,7 +208,7 @@ In conclusion, the Amish Country Popcorn Blue Popcorn Kernels are a delicious an
 
 Riehle's Select Popping Corn offers a delightful experience with their unique hull-less popcorn. The small, tender kernels burst with flavor and antioxidants, making it a delicious, high-fiber snack. 
 
-[While this popcorn is perfect for stovetop or oven popping, it's not recommended for air poppers.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Air-Popcorn-Popper.md) With a wide range of specialty varieties to choose from, Riehle's Select ensures you can find the perfect blend to suit your taste buds. 
+[While this popcorn is perfect for stovetop or oven popping, it's not recommended for air poppers.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Popcorn-Popper.md) With a wide range of specialty varieties to choose from, Riehle's Select ensures you can find the perfect blend to suit your taste buds. 
 
 [However, be mindful of the size of the kernels when popped, as some users have found them too small and the popcorn not worth the investment.](https://gist.github.com/janeknowsbest77/88528aa7f73e87e5ca4f29decb9e4324) Overall, this gourmet popcorn is a delightful treat, but it may not be the best choice for everyone's taste preferences or popping methods. 
 
@@ -243,7 +243,7 @@ Overall, this popcorn has the potential to captivate lovers of sweet and spicy f
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Blue+Popcorn?utm_term=all-natural-100-whole-grain-blue-popcorn-perfect-snack-for-a-healthy-lifestyle"><img alt="whole-grain-blue-un-popped-popcorn-popcorn-county-usa-2-lb-bag-10-pack-shipping-included-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/whole-grain-blue-un-popped-popcorn-popcorn-county-usa-2-lb-bag-10-pack-shipping-included-1/h=540,fit=pad,background=black"/></a></div>
 
-Experience the delightful crunch of whole grain blue popcorn with Popcorn County USA's un-popped variety. [This delicious snack is a natural and healthy choice, making it the perfect way to satisfy your cravings without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Combos.md) 
+Experience the delightful crunch of whole grain blue popcorn with Popcorn County USA's un-popped variety. [This delicious snack is a natural and healthy choice, making it the perfect way to satisfy your cravings without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Combos.md) 
 
 The 2 lb bag ensures you have enough to share with family and friends, and its small size allows it to pop up extra crunchy. As a gluten-free snack, you can enjoy it worry-free. 
 

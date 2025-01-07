@@ -309,7 +309,7 @@ Some desktop organizers offer adjustable heights, allowing flexibility for users
 
 When shopping for a vertical desktop organizer, consider the following features to ensure it meets your needs: versatility, storage capacity, and ease of use. Versatile options may include adjustable heights, swivel or rotating sections, and various shelf configurations that accommodate different-sized items. 
 
-[Storage capacity is crucial, so look for organizer designs that provide adequate space for storing pens, paper clips, business cards, and other essentials on the desktop.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pen-Organizer.md) Ease of use is another factor; look for organizers with features such as a locking mechanism to secure your items or a flat bottom that keeps the organizer stable on the desktop. Additionally, consider the design style and material of the organizer, as these factors may influence its compatibility with your overall office decor. 
+[Storage capacity is crucial, so look for organizer designs that provide adequate space for storing pens, paper clips, business cards, and other essentials on the desktop.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pen-Organizer.md) Ease of use is another factor; look for organizers with features such as a locking mechanism to secure your items or a flat bottom that keeps the organizer stable on the desktop. Additionally, consider the design style and material of the organizer, as these factors may influence its compatibility with your overall office decor. 
 
 
 ### Are there any alternatives to a vertical desktop organizer?

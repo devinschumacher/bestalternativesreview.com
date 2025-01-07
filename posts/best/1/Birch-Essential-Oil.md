@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Birch-Essential-Oil.md
 
 # Discover the Benefits of Birch Essential Oil with These Top 15 Picks
 
-[Welcome to our roundup of top-rated Birch Essential Oils!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Birch-Essential-Oil.md) In this article, we'll be diving into the world of Birch Oil, exploring its uses, benefits, and why you should consider adding it to your essential oil collection. Get ready to discover the natural wonders of [Birch Essential Oil](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Birch-Essential-Oil.md) and how it can enhance your daily wellness routine. 
+[Welcome to our roundup of top-rated Birch Essential Oils!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Birch-Essential-Oil.md) In this article, we'll be diving into the world of Birch Oil, exploring its uses, benefits, and why you should consider adding it to your essential oil collection. Get ready to discover the natural wonders of [Birch Essential Oil](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Birch-Essential-Oil.md) and how it can enhance your daily wellness routine. 
 
 *As an Amazon Affiliate we earn from qualified purchases.*
 
@@ -185,7 +185,7 @@ This revitalizing oil is a dermatologically-proven treatment that leaves your sk
 
 Weleda Birch Cellulite Oil is perfect for use on your thighs, hips, and bottom, and can be accompanied by a brush massage or a hot/cold change shower using Weleda's body cleansing scrub for an even more effective experience. Apply once or twice a day for optimal results, but don't apply it to broken skin. 
 
-[The essential oil fragrance, which contains natural essential oils, adds an inviting aroma to this high-quality product.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) 
+[The essential oil fragrance, which contains natural essential oils, adds an inviting aroma to this high-quality product.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) 
 
 
 ## Buyer's Guide

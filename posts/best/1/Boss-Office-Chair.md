@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Boss-Office-Chair.md
 
 # Upgrade Your Workspace with the 19 Best Boss Office Chairs
 
-Say goodbye to uncomfortable office chairs and hello to the [Boss Office Chair](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boss-Office-Chair.md)! [This roundup article presents a curated selection of the most comfortable, stylish, and ergonomic office chairs on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Upholstered-Office-Chairs.md) We've gathered the best options to help you make an informed decision and turn your office into the comfiest workspace you've ever had. 
+Say goodbye to uncomfortable office chairs and hello to the [Boss Office Chair](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boss-Office-Chair.md)! [This roundup article presents a curated selection of the most comfortable, stylish, and ergonomic office chairs on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Upholstered-Office-Chairs.md) We've gathered the best options to help you make an informed decision and turn your office into the comfiest workspace you've ever had. 
 
 *As an Amazon Affiliate I earn from qualifying purchases*
 
@@ -34,7 +34,7 @@ This mesh back task chair has received high praise from users, with a rating of 
 
 I recently tried out the Leather Office Chair with Arms by Boss Office Products, and it turned out to be a comfortable addition to my work-from-home setup. The height adjustment and leather upholstery were big highlights for me. It's great for an office or conference room environment, and it holds up well for daily use. 
 
-However, I did notice that the assembly instructions were sparse, and the screw for one arm was missing from the box. Despite these minor issues, I'm still happy with my purchase and how well it's been working for me. [Overall, I'd recommend this chair for anyone looking for a comfortable and functional office chair without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
+However, I did notice that the assembly instructions were sparse, and the screw for one arm was missing from the box. Despite these minor issues, I'm still happy with my purchase and how well it's been working for me. [Overall, I'd recommend this chair for anyone looking for a comfortable and functional office chair without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
 
 
 ### [Boss Office Products: Traditional Black Wingback Chair](https://serp.ly/@bar/amazon/Boss+Office+Chair?utm\_term=boss-office-products-traditional-black-wingback-chair)

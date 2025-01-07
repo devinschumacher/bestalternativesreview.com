@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Recreational-Kayaks.md
 
 # Best Recreational Kayaks -  Top 20 Picks for Adventure and Fun
 
-[Discover the joy of paddling through serene waters with our handpicked selection of](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Recreational-Kayaks.md) [recreational kayaks](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Recreational-Kayaks.md). From beginner-friendly designs to versatile models perfect for family outings, we've rounded up the best options to make your on-water adventure enjoyable and effortless. 
+[Discover the joy of paddling through serene waters with our handpicked selection of](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Recreational-Kayaks.md) [recreational kayaks](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Recreational-Kayaks.md). From beginner-friendly designs to versatile models perfect for family outings, we've rounded up the best options to make your on-water adventure enjoyable and effortless. 
 
 *As an Amazon Affiliate™ I may earn from qualifying purchases at no cost to you*
 

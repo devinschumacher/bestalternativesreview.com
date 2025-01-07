@@ -85,7 +85,7 @@ While it doesn't come with the necessary screws, it is easily adaptable to most 
 
 I recently decided to spruce up my office by adding some extra storage space using these 12 x 14 inch shelf brackets. Let me tell you, they're a game changer! Made of sturdy steel, they're not only strong and durable, but the painted gray finish gives them a sleek and modern look. 
 
-One great feature is the pre-drilled holes, making installation incredibly easy. I was able to set them up in no time and the extra storage has been a lifesaver. However, I did notice that they're quite bulky, so they might not be the best choice for tight spaces. [Despite this minor drawback, these shelf brackets have significantly boosted my storage capacity, and I highly recommend them to anyone looking for an affordable and versatile storage solution.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shelf-Brackets.md) 
+One great feature is the pre-drilled holes, making installation incredibly easy. I was able to set them up in no time and the extra storage has been a lifesaver. However, I did notice that they're quite bulky, so they might not be the best choice for tight spaces. [Despite this minor drawback, these shelf brackets have significantly boosted my storage capacity, and I highly recommend them to anyone looking for an affordable and versatile storage solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shelf-Brackets.md) 
 
 
 ### [Project Source Heavy-Duty Black Shelf Bracket](https://serp.ly/@bar/amazon/Brackets+For+Shelves?utm\_term=project-source-heavy-duty-black-shelf-bracket)
@@ -103,7 +103,7 @@ However, I did notice that the mounting hardware is sold separately - something 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Brackets+For+Shelves?utm_term=knape-vogt-8-in-black-steel-bracket"><img alt="knape-vogt-8-in-black-steel-bracket-50-lbs-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/knape-vogt-8-in-black-steel-bracket-50-lbs-1/h=540,fit=pad,background=black"/></a></div>
 
-[Imagine coming home to a beautifully crafted and functional storage solution that not only enhances the aesthetic of your living space but also provides sturdy support for your books and decorative items.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bookshelves-With-Storage.md) That's exactly what the Knape & Vogt 8 in. Black Steel Bracket does, offering a blend of style and practicality. 
+[Imagine coming home to a beautifully crafted and functional storage solution that not only enhances the aesthetic of your living space but also provides sturdy support for your books and decorative items.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bookshelves-With-Storage.md) That's exactly what the Knape & Vogt 8 in. Black Steel Bracket does, offering a blend of style and practicality. 
 
 With a load capacity of 50 lbs per pair, you can trust these brackets to hold your most prized possessions. The BHMA Grade 1 Compliance ensures that the product is made of high-quality materials and craftsmanship. The distinct traditional styles will fit seamlessly into any decor, and the screw holes make mounting a breeze. 
 

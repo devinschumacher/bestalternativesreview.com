@@ -19,7 +19,7 @@ Discover the world of [unique promise rings](https://github.com/devinschumacher/
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Unique+Promise+Rings?utm_term=cute-1-25-carat-rose-gold-promise-ring"><img alt="twist-1-25-carat-round-cut-promise-ring-for-her-in-sterling-silver-5-rose-925-sterling-silver-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/twist-1-25-carat-round-cut-promise-ring-for-her-in-sterling-silver-5-rose-925-sterling-silver-1/h=540,fit=pad,background=black"/></a></div>
 
-[This sparkling promise ring is a charming addition to any jewelry collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cute-Promise-Rings.md) Crafted from high-quality 925 Sterling Silver, it gleams in a warm rose gold tone, accentuated by the rhodium plating for added durability and luster. The central stone is a stunning round cut Sona simulated diamond, weighing 1.25 carats and featuring a captivating white color. 
+[This sparkling promise ring is a charming addition to any jewelry collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cute-Promise-Rings.md) Crafted from high-quality 925 Sterling Silver, it gleams in a warm rose gold tone, accentuated by the rhodium plating for added durability and luster. The central stone is a stunning round cut Sona simulated diamond, weighing 1.25 carats and featuring a captivating white color. 
 
 Surrounded by shimmering ribbons that encircle the ring's charming split shank, this dainty piece exudes femininity and sophistication. Perfect for adding a touch of elegance to everyday wear or to make a memorable gift, this exquisite promise ring is sure to become a cherished keepsake. 
 
@@ -32,7 +32,7 @@ I recently got my hands on the Giani Bernini Cubic Zirconia Octagon Promise Ring
 
 First off, I must say that the ring is much smaller than I expected. While this makes it perfect for casual wear, it might not be everyone's cup of tea. Aside from that, the ring is quite beautiful and would indeed make a great statement piece for a day party or any special occasion. 
 
-One of the things I noticed about this ring is how much it sparkles! The cubic zirconias are perfectly placed and shine like a real diamond. [Overall, it's a lovely ring that can be a great addition to any jewelry collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Steel-Rings-Mens.md) 
+One of the things I noticed about this ring is how much it sparkles! The cubic zirconias are perfectly placed and shine like a real diamond. [Overall, it's a lovely ring that can be a great addition to any jewelry collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Steel-Rings-Mens.md) 
 
 However, I have to mention one downside - the ring felt quite cheap, which was a bit disappointing considering its price. But, the high-quality shine of the cubic zirconias and the classic silver metal design definitely make up for it. 
 

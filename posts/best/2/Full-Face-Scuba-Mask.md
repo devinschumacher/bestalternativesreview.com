@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Full-Face-Scuba-Mask.md
 
 # Discover the Top 20 Full-Face Scuba Masks for Breathing Easy Underwater
 
-[Dive into the world of full face scuba masks with our comprehensive roundup.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Full-Face-Scuba-Mask.md) From features and functions to reviews and ratings, we've got you covered. Explore the best full face scuba masks on the market, suitable for both beginners and experienced divers alike. Discover the perfect mask to enhance your underwater adventures! 
+[Dive into the world of full face scuba masks with our comprehensive roundup.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Full-Face-Scuba-Mask.md) From features and functions to reviews and ratings, we've got you covered. Explore the best full face scuba masks on the market, suitable for both beginners and experienced divers alike. Discover the perfect mask to enhance your underwater adventures! 
 
 *As an Amazon Affiliate I receive compensation from qualified purchases at no cost to you!*
 

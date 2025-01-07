@@ -27,7 +27,7 @@ One notable feature of this dishwasher is the Piranha hard food disposer, which 
 
 However, it's important to note that despite its efficiency and cleaning power, this dishwasher may not be as long-lasting as some higher-end models, as it is considered light-duty in construction and weight. This could impact the dishwasher's reliability over time. Furthermore, some users have reported issues with the door alignment, rust patches, and leaking in their units, requiring repairs under warranty. 
 
-[Overall, the GE GDF510PGRWW dishwasher offers a blend of efficiency and convenience, but it may not be the best choice for customers seeking durability and a maintenance-free experience in the long run.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/GE-Dishwasher.md) 
+[Overall, the GE GDF510PGRWW dishwasher offers a blend of efficiency and convenience, but it may not be the best choice for customers seeking durability and a maintenance-free experience in the long run.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/GE-Dishwasher.md) 
 
 
 ### [Advanced Monogram Stainless Steel Dishwasher with Steam Sanitization](https://serp.ly/@bar/amazon/GE+Monogram+Dishwasher?utm\_term=advanced-monogram-stainless-steel-dishwasher-with-steam-sanitization)

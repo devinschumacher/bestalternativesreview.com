@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Herman-Miller-Desk.md
 
 # Upgrade Your Workspace with the Best Herman Miller Desks on the Market
 
-Welcome to the wonderful world of [Herman Miller Desk](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Herman-Miller-Desk.md)! [If you're in the market for a high-quality office desk, you'll find the most popular and innovative options right here.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Desks.md) This roundup brings together the best Herman Miller Desk designs, materials, and features to make your office space truly remarkable. Get ready to explore, compare, and discover your ultimate work companion! 
+Welcome to the wonderful world of [Herman Miller Desk](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Herman-Miller-Desk.md)! [If you're in the market for a high-quality office desk, you'll find the most popular and innovative options right here.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desks.md) This roundup brings together the best Herman Miller Desk designs, materials, and features to make your office space truly remarkable. Get ready to explore, compare, and discover your ultimate work companion! 
 
 *As an Amazon Affiliate, we receive compensation through qualifying purchases at no cost to you!*
 
@@ -137,7 +137,7 @@ Herman Miller offers a wide range of desk sizes to suit different workspaces and
 
 ### Assess the Storage Space
 
-Many Herman Miller desks come with integrated storage solutions, such as drawers or shelves. Consider how much storage space you'll need for your office supplies and files. [This will help you determine whether you need a desk with additional storage compartments or if a more minimalist design will suit your needs.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Desk-With-Storage.md) 
+Many Herman Miller desks come with integrated storage solutions, such as drawers or shelves. Consider how much storage space you'll need for your office supplies and files. [This will help you determine whether you need a desk with additional storage compartments or if a more minimalist design will suit your needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Desk-With-Storage.md) 
 
 
 ### Look for Adjustable Features

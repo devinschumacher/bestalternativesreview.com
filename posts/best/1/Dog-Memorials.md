@@ -182,7 +182,7 @@ Dog memorials also provide a unique way for friends and family to remember your 
 There are many different types of dog memorials available based on personal preferences and the location of the memorial. Here are some common forms of dog memorials you can find: 
 1) Pet cemetery plots or markers: These are designated areas in a cemetery specifically for pets, often with markers or monuments for each individual pet. 
 
-[2) Personalized pet tags: Many people choose to use a pet tag from the pet's life, engraved with the pet's name, image, or other personal details.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pet-Name-Tags.md) This can be attached to other dog memorials or items, such as a collapsible bowl or picture frame. 3) Memorial books or journals: These books often have sections dedicated to different days of the year or to specific types of pets. Pet owners can use them to remember their pets through stories, photographs, or other memorabilia. 
+[2) Personalized pet tags: Many people choose to use a pet tag from the pet's life, engraved with the pet's name, image, or other personal details.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pet-Name-Tags.md) This can be attached to other dog memorials or items, such as a collapsible bowl or picture frame. 3) Memorial books or journals: These books often have sections dedicated to different days of the year or to specific types of pets. Pet owners can use them to remember their pets through stories, photographs, or other memorabilia. 
 
 
 ### What should I consider when choosing a dog memorial?

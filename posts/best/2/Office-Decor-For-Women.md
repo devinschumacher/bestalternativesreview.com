@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Office-Decor-For-Women.md
 
 # Enhance Your Workspace -  Top 13 Office Decor Ideas for Women
 
-[Create a warm, inviting workspace with these stunning office decor ideas specifically curated for women.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Office-Decor-For-Women.md) In this roundup, we've gathered an eclectic mix of products to inspire and uplift your office space. 
+[Create a warm, inviting workspace with these stunning office decor ideas specifically curated for women.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Office-Decor-For-Women.md) In this roundup, we've gathered an eclectic mix of products to inspire and uplift your office space. 
 
 *As an Amazon Affiliate, we earn from qualified purchases!*
 

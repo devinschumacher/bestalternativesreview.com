@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Tan-Sectional.md
 
 # Sun-lovers Rejoice -  13 Best Tan Sectionals for Your Backyard Entertainment
 
-[Get ready to explore the world of tan sectionals as we showcase the top-rated seating options that are sure to make your living space pop.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tan-Sectional.md) Discover which sectionals are worth adding to your home and elevate your relaxation experience. 
+[Get ready to explore the world of tan sectionals as we showcase the top-rated seating options that are sure to make your living space pop.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tan-Sectional.md) Discover which sectionals are worth adding to your home and elevate your relaxation experience. 
 
 *As an Amazon Associate, I earn from qualified purchases at no cost to you.*
 
@@ -54,7 +54,7 @@ I recently purchased the Provins Khaki Linen Modern Sectional Sofa with a right-
 
 One aspect that stood out during my experience with this sofa was the solid wood legs. Not only do they add a touch of elegance to the piece, but they also contribute to its stability and durability. The 5.9-inch cushion thickness contributes to the overall comfort, making it the perfect spot for lounging or napping. 
 
-I also love that the cushions are easily removable for cleaning or to change up the look of the sofa. The size of 97 x 64.5 x 34 inches provides an ideal height, making it easy to sit on and stand up from the sofa. [The linen fabric on the cushions adds a touch of luxury and softness to the furniture.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Luxury-Couches.md) 
+I also love that the cushions are easily removable for cleaning or to change up the look of the sofa. The size of 97 x 64.5 x 34 inches provides an ideal height, making it easy to sit on and stand up from the sofa. [The linen fabric on the cushions adds a touch of luxury and softness to the furniture.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Luxury-Couches.md) 
 
 However, it's essential to note that the color I chose, Khaki Linen, may not be suitable for all interior styles. It's a bold choice and would need to be carefully coordinated with the rest of the room. Overall, though, I'm thrilled with the style and comfort this sofa provides, and I'd definitely recommend it to anyone in the market for a modern, stylish sectional sofa. 
 

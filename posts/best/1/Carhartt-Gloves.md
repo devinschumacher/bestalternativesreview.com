@@ -19,7 +19,7 @@ Gear up for the ultimate glove experience with our roundup of the best [Carhartt
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Carhartt+Gloves?utm_term=carhartt-mens-insulated-gauntlet-glove-for-cold-weather"><img alt="carhartt-mens-gauntlet-glove-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/carhartt-mens-gauntlet-glove-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the pleasure of trying out Carhartt's Men's Gauntlet Glove, and let me tell you, these gloves are a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Carhartt-Gloves.md) The fleece shell and synthetic palm provided me with maximum warmth in the bitter cold, while the insulated polyfil kept my fingers toasty. 
+[I recently had the pleasure of trying out Carhartt's Men's Gauntlet Glove, and let me tell you, these gloves are a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Carhartt-Gloves.md) The fleece shell and synthetic palm provided me with maximum warmth in the bitter cold, while the insulated polyfil kept my fingers toasty. 
 
 One thing I particularly loved was the FastDry technology lining. I've used gloves in the past that would leave my hands feeling clammy and sweaty, but with these Carhartt gloves, I never experienced that issue. The waterproof insert was a nice touch, perfect for those unpredictable winter days. 
 

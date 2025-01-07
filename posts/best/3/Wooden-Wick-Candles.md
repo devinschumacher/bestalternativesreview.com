@@ -30,7 +30,7 @@ However, one thing I would like to mention is the requirement to trim the wick b
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Wooden+Wick+Candles?utm_term=wooden-wick-maple-scented-candle"><img alt="pure-maple-syrup-candle-with-wooden-wick-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pure-maple-syrup-candle-with-wooden-wick-1/h=540,fit=pad,background=black"/></a></div>
 
-[As someone who enjoys the cozy atmosphere of a candle, the Pure Maple Syrup candle with a wooden wick quickly caught my attention.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wooden-Wick-Candles.md) I've been using this candle in my home for some time now, and I'm glad I made this purchase. The scent is perfect for those cold winter evenings when you just want to snuggle up in a blanket and enjoy some warmth. 
+[As someone who enjoys the cozy atmosphere of a candle, the Pure Maple Syrup candle with a wooden wick quickly caught my attention.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wooden-Wick-Candles.md) I've been using this candle in my home for some time now, and I'm glad I made this purchase. The scent is perfect for those cold winter evenings when you just want to snuggle up in a blanket and enjoy some warmth. 
 
 One of the first things I noticed about this candle is the wooden wick. It gives off a unique crackling sound that adds a soothing background noise to my space. The scent is incredibly authentic, just like the real deal from the maple syrup trees in Canada. It's truly a delightful aroma that fills my home and lifts my spirits. 
 
@@ -144,7 +144,7 @@ The flared design allows for a complete melted wax pool, providing a consistent 
 
 Take a stroll through a mystical forest with the CLCo Velvet Woods Wooden-Wick 14oz Jar Candle. This enchanting blend of white peach, bergamot, jasmine, sweet whipped cream, and velvet amber creates a captivating scent that is perfect for all seasons. The wooden wick adds a unique touch and provides a long, steady burn. 
 
-This candle is made from high-quality, phthalate-free, sulfate-free, and paraben-free materials, making it a great choice for those who value natural products. [With a scent that is strong yet not overpowering, this candle is perfect for aromatherapy sessions or simply for creating a cozy ambiance at home.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) 
+This candle is made from high-quality, phthalate-free, sulfate-free, and paraben-free materials, making it a great choice for those who value natural products. [With a scent that is strong yet not overpowering, this candle is perfect for aromatherapy sessions or simply for creating a cozy ambiance at home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oils-For-Candle-Making.md) 
 
 The classic, round shape of the jar is both practical and aesthetically pleasing, making it a wonderful addition to any room. 
 

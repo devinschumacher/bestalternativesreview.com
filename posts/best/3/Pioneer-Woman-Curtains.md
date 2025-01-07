@@ -23,7 +23,7 @@ Bring a touch of charm to your home with these Pioneer Woman Hattie Border 3-Pie
 
 The crochet trim adds a delightful cottage core style, while the rod pocket makes it simple to secure with your choice of curtain rod. With a light filtering quality, you can enjoy a balancing of light and privacy in any room. 
 
-[These versatile curtains make a perfect fit for indoor spaces, adding a touch of warmth and character to your decor.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lush-Decor-Curtains.md) 
+[These versatile curtains make a perfect fit for indoor spaces, adding a touch of warmth and character to your decor.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lush-Decor-Curtains.md) 
 
 
 ### [Pioneer Woman Sweet Romance Gingham Shower Curtain](https://serp.ly/@bar/amazon/Pioneer+Woman+Curtains?utm\_term=pioneer-woman-sweet-romance-gingham-shower-curtain)
@@ -36,7 +36,7 @@ One of the things I love most about this shower curtain is the vibrant print on 
 
 While I have enjoyed the unique design and quality of The Pioneer Woman Sweet Romance Gingham Floral Cotton-Rich Shower Curtain, I must admit that it can be challenging to match it with other items in my bathroom. The teal trim at the bottom of the curtain, although lovely, may clash with other accents in my space, so I need to think carefully when selecting coordinating items. 
 
-Overall, I highly recommend this shower curtain for those looking for a unique and charming addition to their bathroom. [The high-quality materials and stunning design are sure to make your bathroom a more beautiful and serene space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bathroom-Art-Decor.md) 
+Overall, I highly recommend this shower curtain for those looking for a unique and charming addition to their bathroom. [The high-quality materials and stunning design are sure to make your bathroom a more beautiful and serene space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bathroom-Art-Decor.md) 
 
 
 ### [Pioneer Woman's Beautiful Floral Shower Curtain](https://serp.ly/@bar/amazon/Pioneer+Woman+Curtains?utm\_term=pioneer-womans-beautiful-floral-shower-curtain)
@@ -80,7 +80,7 @@ The panels feature a contrasting crochet-look trim at the bottom and a standard 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pioneer+Woman+Curtains?utm_term=pioneer-woman-floral-tier-valance-set-for-casement-windows"><img alt="the-pioneer-woman-mazie-3-piece-floral-tier-valance-set-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-pioneer-woman-mazie-3-piece-floral-tier-valance-set-1/h=540,fit=pad,background=black"/></a></div>
 
-As a big fan of The Pioneer Woman, I was excited to try her Mazie 3-Piece Floral Tier & Valance Set for my kitchen window. [The moment I laid eyes on the vibrant floral design in these curtains, I knew they were a perfect fit for my country-style kitchen.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kitchen-Window-Curtains.md) The detailing on the valances was absolutely charming, with the red and white gingham trim adding an extra touch of country charm. 
+As a big fan of The Pioneer Woman, I was excited to try her Mazie 3-Piece Floral Tier & Valance Set for my kitchen window. [The moment I laid eyes on the vibrant floral design in these curtains, I knew they were a perfect fit for my country-style kitchen.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kitchen-Window-Curtains.md) The detailing on the valances was absolutely charming, with the red and white gingham trim adding an extra touch of country charm. 
 
 Installing the curtains was a breeze, thanks to the easy-to-use rod pockets. However, I did notice that the tiers were long, extending past the window frame. I ended up using double curtain rods and hanging them sideways to accommodate my window size. While this wasn't ideal, it still looked adorable in my kitchen. 
 

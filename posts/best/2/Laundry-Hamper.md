@@ -225,7 +225,7 @@ One of the things that stood out the most was how easy it was to clean; it defin
 
 Another feature I appreciated was the large capacity. It was just the right size for storing clean and dirty laundry without taking up too much space. Though the lid could have been a bit more secure, it wasn't a major issue. 
 
-In conclusion, while I did encounter a minor issue with the advertised height, I am overall quite happy with my purchase of the My Store Laundry Hamper. [The combination of its modern design, sturdiness, and practicality make it a great choice for anyone looking for a high-quality, easy-to-clean laundry storage solution.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Laundry-Balls.md) 
+In conclusion, while I did encounter a minor issue with the advertised height, I am overall quite happy with my purchase of the My Store Laundry Hamper. [The combination of its modern design, sturdiness, and practicality make it a great choice for anyone looking for a high-quality, easy-to-clean laundry storage solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Laundry-Balls.md) 
 
 
 ### [Sterilite Ultra Wheeled Laundry Hamper - Convenient and Stylish Storage Solution](https://serp.ly/@bar/amazon/Laundry+Hamper?utm\_term=sterilite-ultra-wheeled-laundry-hamper-convenient-and-stylish-storage-solution)

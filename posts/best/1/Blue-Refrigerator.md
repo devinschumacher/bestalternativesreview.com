@@ -29,7 +29,7 @@ I recently added the Avanti 3.0 Cu. ft. Retro Compact Blue Refrigerator to my ki
 
 "Using this fridge has been a breeze, and it adds a touch of style to my kitchen. The interior light is a nice touch, making it easier to find items in the fridge when the lighting is low. However, I did notice that the temperature can get a bit too cold in the back if not adjusted properly. "
 
-"Overall, I highly recommend the Avanti 3.0 Cu. ft. Retro Compact Blue Refrigerator. [It's a great choice for anyone looking for a stylish, compact fridge with useful features.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Refrigerator.md) Just remember to keep an eye on the temperature settings! 
+"Overall, I highly recommend the Avanti 3.0 Cu. ft. Retro Compact Blue Refrigerator. [It's a great choice for anyone looking for a stylish, compact fridge with useful features.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Refrigerator.md) Just remember to keep an eye on the temperature settings! 
 
 
 ### [Viking Professional 5 Series Alluvial Blue Refrigerator](https://serp.ly/@bar/amazon/Blue+Refrigerator?utm\_term=viking-professional-5-series-alluvial-blue-refrigerator)
@@ -203,7 +203,7 @@ When I first laid my eyes on the Smeg Retro Style Refrigerator, I was immediatel
 
 However, there were a few drawbacks. The Smeg lacks an ice maker, which I found to be a minor inconvenience. As a heavy coffee drinker, having to go to the store to buy ice every morning became a hassle. Despite this, the energy-efficient performance of the Smeg offset some of the additional costs. 
 
-[In conclusion, the Smeg Retro Style Refrigerator is a charming addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smeg-Refrigerator.md) With enough space for groceries and a unique design that stands out, it’s the perfect choice for those looking to make a statement in their home. But if you're someone who enjoys the convenience of an ice maker, you might want to look elsewhere. 
+[In conclusion, the Smeg Retro Style Refrigerator is a charming addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smeg-Refrigerator.md) With enough space for groceries and a unique design that stands out, it’s the perfect choice for those looking to make a statement in their home. But if you're someone who enjoys the convenience of an ice maker, you might want to look elsewhere. 
 
 
 ### [Retro 3.1 Cu. ft. Mini Fridge in Blue - Galanz](https://serp.ly/@bar/amazon/Blue+Refrigerator?utm\_term=retro-3-1-cu-ft-mini-fridge-in-blue-galanz)

@@ -66,14 +66,14 @@ The finish is long-lasting and fresh, with a lingering concentration of sapid fr
 
 Bergstrom's Cumberland Reserve Pinot Noir 2021 (750 ml) is a captivating and aromatic wine, with notes of dark cherry, cranberry sauce, floral potpourri, blood orange, and dried herbs. A medium-bodied palate with generous allspice flavors and a chalky, tensile frame suggests it has more to offer after additional time in the bottle. 
 
-The 2021 vintage reflects a well-structured wine, with high scores from reputable critics, including Robert Parker's Wine Advocate, Wine Spectator, James Suckling, and Wine Enthusiast. [It's a delightful red wine to enjoy, perfect for bistro meals or a relaxed evening at home.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Red-Wine-Glasses.md) 
+The 2021 vintage reflects a well-structured wine, with high scores from reputable critics, including Robert Parker's Wine Advocate, Wine Spectator, James Suckling, and Wine Enthusiast. [It's a delightful red wine to enjoy, perfect for bistro meals or a relaxed evening at home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Red-Wine-Glasses.md) 
 
 
 ### [Bergstrom Le Pre du Col Pinot Noir 2020](https://serp.ly/@bar/amazon/Bergstrom+Winery?utm\_term=bergstrom-le-pre-du-col-pinot-noir-2020)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Bergstrom+Winery?utm_term=bergstrom-le-pre-du-col-pinot-noir-2020"><img alt="bergstrom-pinot-noir-le-pre-du-col-2020-750ml-wine-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bergstrom-pinot-noir-le-pre-du-col-2020-750ml-wine-1/h=540,fit=pad,background=black"/></a></div>
 
-I've been enjoying the Bergstrom Pinot Noir Le Pre du Col 2020 750ml wine recently, and let me tell you, it's a delightful addition to my everyday life. [This particular wine from Bergstrom has become my favorite choice for a relaxing evening in, or even for special occasions with friends and family.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bergstrom-Winery.md) 
+I've been enjoying the Bergstrom Pinot Noir Le Pre du Col 2020 750ml wine recently, and let me tell you, it's a delightful addition to my everyday life. [This particular wine from Bergstrom has become my favorite choice for a relaxing evening in, or even for special occasions with friends and family.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bergstrom-Winery.md) 
 
 The distinctive fruity and spiced-note flavors make it stand out from other Pinot Noirs I've tried, but what truly sets it apart is its smooth, medium-bodied texture which allows it to pair well with a wide range of dishes. Whether enjoyed after a long day at work or enjoyed with a hearty meal, this wine has a knack for enhancing the flavors it's paired with. 
 
@@ -92,7 +92,7 @@ The first sip introduced me to a complex wine with a perfect balance of elegance
 
 What truly stood out to me, though, was the aging process - the fruit underwent transformation in French oak barrels that gave it structural support and a slight hint of spice. It all culminated in a well-rounded, refined taste that was simply an indulgence to experience. 
 
-[Overall, I highly recommend this Pinot Noir to those who appreciate the intricacy and refinement that this specific grape varietal can offer.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mirassou-Pinot-Noir.md) It's a wine that demands to be savored and can't be forgotten easily! 
+[Overall, I highly recommend this Pinot Noir to those who appreciate the intricacy and refinement that this specific grape varietal can offer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mirassou-Pinot-Noir.md) It's a wine that demands to be savored and can't be forgotten easily! 
 
 
 ### [Bergstrom Pinot Noir Le Pre du Col 2021 - Exceptional 94 Points Wine](https://serp.ly/@bar/amazon/Bergstrom+Winery?utm\_term=bergstrom-pinot-noir-le-pre-du-col-2021-exceptional-94-points-wine)

@@ -37,7 +37,7 @@ However, these sandals do run slightly large and may require adjustment. Overall
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Kelsi+Dagger?utm_term=kelsi-dagger-womens-brooklyn-logan-boots-black-size-8"><img alt="kelsi-dagger-brooklyn-logan-womens-boots-black-8-m-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/kelsi-dagger-brooklyn-logan-womens-boots-black-8-m-1/h=540,fit=pad,background=black"/></a></div>
 
-Indulge in stylish sophistication with Kelsi Dagger's Brooklyn Logan boots, now available in black. [These elegant thigh-high boots offer a perfect blend of comfort and fashion, making them a standout choice for any occasion.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cream-Knee-High-Boots.md) 
+Indulge in stylish sophistication with Kelsi Dagger's Brooklyn Logan boots, now available in black. [These elegant thigh-high boots offer a perfect blend of comfort and fashion, making them a standout choice for any occasion.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cream-Knee-High-Boots.md) 
 
 Featuring elasticized back panels, stacked block heels, and a suede upper construction, these exquisite boots provide exceptional support and timeless appeal. Complete with rounded toes, zippered side closures, and recycled rubber outsoles, the Brooklyn Logan boots are the perfect addition to any wardrobe. 
 
@@ -132,7 +132,7 @@ The Kelsi Dagger Belle Dress Sandal, however, was different. From the moment I u
 
 One thing I loved about this sandal was the light wear it showed after a few months of use. The sole, made of synthetic material, seemed durable and held up well against any dirt or gravel I faced, while the insoles remained in great condition too, with only a hint of wear. 
 
-Despite the high-quality craftsmanship, the Belle Dress Sandal still had a slight drawback - it was a bit wider than I'd prefer. But overall, this was a small price to pay for the comfort and style it offered. [I'm looking forward to adding more styles from Kelsi Dagger to my collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kelsi-Dagger.md) 
+Despite the high-quality craftsmanship, the Belle Dress Sandal still had a slight drawback - it was a bit wider than I'd prefer. But overall, this was a small price to pay for the comfort and style it offered. [I'm looking forward to adding more styles from Kelsi Dagger to my collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kelsi-Dagger.md) 
 
 
 ### [Kelsi Dagger Stacked Platform Sandal with Microsuede Lining](https://serp.ly/@bar/amazon/Kelsi+Dagger?utm\_term=kelsi-dagger-stacked-platform-sandal-with-microsuede-lining)

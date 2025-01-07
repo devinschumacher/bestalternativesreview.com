@@ -19,7 +19,7 @@ Introducing the [Hawke Crossbow Scope](https://github.com/devinschumacher/bestal
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Hawke+Crossbow+Scope?utm_term=hawke-endurance-ed-spotting-scope-with-twist-up-eye-cup-and-lens-cloth"><img alt="hawke-endurance-ed-25-75x85-spotting-scope-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hawke-endurance-ed-25-75x85-spotting-scope-1/h=540,fit=pad,background=black"/></a></div>
 
-[Hawke's Endurance series has been garnering praise for its impressive performance in comparison to scopes within the budget and mid-priced ranges.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hawke-Scopes.md) The Endurance ED 25-75x85 spotting scope boasts an optical system that is incredibly sharp and offers outstanding contrast levels. 
+[Hawke's Endurance series has been garnering praise for its impressive performance in comparison to scopes within the budget and mid-priced ranges.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hawke-Scopes.md) The Endurance ED 25-75x85 spotting scope boasts an optical system that is incredibly sharp and offers outstanding contrast levels. 
 
 Users also appreciate the lightweight design and the availability of accessories like a fine focus wheel, lens covers, and lens cloths. However, some reviewers found the clarity and crispness of the image to be a slight disappointment when compared to their older scopes. Overall, the Hawke Endurance ED 25-75x85 spotting scope continues to earn high ratings and endorsements from satisfied customers. 
 

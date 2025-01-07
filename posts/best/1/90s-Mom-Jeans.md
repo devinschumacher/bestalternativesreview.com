@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/90s-Mom-Jeans.md
 
 # Relive the 90s with the Top 15 Mom Jeans in Fashion Today
 
-Take a trip down memory lane with us as we delve into the world of [90s mom jeans](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/90s-Mom-Jeans.md). [These iconic denim staples are making a comeback, and if you're curious about what was once the epitome of casual chic, you're in for a treat.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/90s-Mom-Jeans.md) 
+Take a trip down memory lane with us as we delve into the world of [90s mom jeans](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/90s-Mom-Jeans.md). [These iconic denim staples are making a comeback, and if you're curious about what was once the epitome of casual chic, you're in for a treat.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/90s-Mom-Jeans.md) 
 
 In this roundup, we'll be featuring the best 90s mom jeans on the market today, offering a range of styles, fits, and price points. Whether you're looking to relive your favorite decade or want to add a retro touch to your wardrobe, we've got you covered. 
 
@@ -218,7 +218,7 @@ Most 90s mom jeans are made from denim, which can be heavy and require special c
 
 ### Accessorize to Complete the Look
 
-90s mom jeans were often worn with oversized sweaters, denim jackets, and chunky sneakers or boots. [To achieve the authentic look, complete your outfit with chunky platforms, high-top sneakers, or classic Converse shoes.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/White-Converse-High-Tops-Platform.md) You can also accessorize with a choker necklace, combat boots, or a crop top for a more modern take on the trend. 
+90s mom jeans were often worn with oversized sweaters, denim jackets, and chunky sneakers or boots. [To achieve the authentic look, complete your outfit with chunky platforms, high-top sneakers, or classic Converse shoes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/White-Converse-High-Tops-Platform.md) You can also accessorize with a choker necklace, combat boots, or a crop top for a more modern take on the trend. 
 
 
 ## FAQ

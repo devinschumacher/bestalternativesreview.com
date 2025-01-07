@@ -45,7 +45,7 @@ The Boho Modern 30" Wide 2-Drawer Prairie Oak Nightstand is a charming addition 
 
 With two drawers offering ample storage space, the nightstand also boasts a USB port for overnight charging, making it practical and convenient. The brushed bronze hardware adds a touch of vintage charm, while the overall design exudes simplicity and sophistication. Assembled dimensions are 30"W x 17"D x 27"H, ensuring it fits seamlessly into any space. 
 
-[With its durability and ease of assembly, this bedside table makes a fantastic choice for enhancing your bedroom's décor.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wooden-Bedside-Table.md) 
+[With its durability and ease of assembly, this bedside table makes a fantastic choice for enhancing your bedroom's décor.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wooden-Bedside-Table.md) 
 
 
 ### [Boho Chic Five-Drawer Bedroom Chest for Boho Style Decor](https://serp.ly/@bar/amazon/Boho+Bedroom+Furniture?utm\_term=boho-chic-five-drawer-bedroom-chest-for-boho-style-decor)

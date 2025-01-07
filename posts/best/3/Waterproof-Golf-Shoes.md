@@ -62,7 +62,7 @@ Some of the noteworthy features that stood out for me were the Fast Twist 3.0 Pu
 
 However, the sizing seemed to be slightly off for some people, making it crucial to order the correct size. Additionally, while the shoes were comfortable for walking the course, they could feel a bit bulky and heavy to some users. 
 
-Overall, the Men's 997 Golf shoes were a reliable, comfortable, and stylish choice for a round of golf. Their waterproof feature made sure my feet stayed dry, which was quite a relief after long, wet days on the course. [Despite the minor issues, these shoes proved to be a solid addition to my golf gear and came highly recommended by those who have tried them.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Nike-Roshe-Golf-Shoes.md) 
+Overall, the Men's 997 Golf shoes were a reliable, comfortable, and stylish choice for a round of golf. Their waterproof feature made sure my feet stayed dry, which was quite a relief after long, wet days on the course. [Despite the minor issues, these shoes proved to be a solid addition to my golf gear and came highly recommended by those who have tried them.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Nike-Roshe-Golf-Shoes.md) 
 
 
 ### [Breathable Waterproof Golf Shoes for Extra Protection](https://serp.ly/@bar/amazon/Waterproof+Golf+Shoes?utm\_term=breathable-waterproof-golf-shoes-for-extra-protection)
@@ -160,7 +160,7 @@ These Skechers Go Golf Max 3 shoes are the ultimate blend of comfort and style o
 
 As I stepped onto the course, I noticed the ultra-lightweight ULTRA FLIGHT cushioning, which not only provided responsive cushioning but also superb traction. The outsole, with its advanced grip TPU technology, ensured a firm footing on any terrain. 
 
-What made these shoes truly special, though, was the 'out of the box' comfort Skechers prides itself on. [These golf shoes felt like an extension of my feet – a testament to their well-thought-out design and the attention to detail that went into crafting them.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sketchers-Golf-Shoes.md) 
+What made these shoes truly special, though, was the 'out of the box' comfort Skechers prides itself on. [These golf shoes felt like an extension of my feet – a testament to their well-thought-out design and the attention to detail that went into crafting them.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sketchers-Golf-Shoes.md) 
 
 Despite the occasional slippage – a common issue with spikeless shoes – the Skechers Go Golf Max 3 shoes were a game-changer on the course. The perfect balance of comfort and performance made them my go-to choice for every round, and the stylish design added a touch of sophistication to my golfing wardrobe. 
 

@@ -295,7 +295,7 @@ Users are raving about it, with one stating that it's perfect for those with sen
 
 However, there's an element that some users are not too keen on. Make sure to double-check your purchase before you hit the 'buy' button to avoid any confusion regarding the quantity of bars you're purchasing. Despite this minor hitch, this product's positives seem to far outweigh its negatives. 
 
-[Experiencing a bath bar that not only cleanses but also moisturizes would be a treat for your skin.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shower-Bar.md) So why not indulge in the Dial Tone Bath Bars, Cocoa Butter? You'll be doing your body a favor! 
+[Experiencing a bath bar that not only cleanses but also moisturizes would be a treat for your skin.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shower-Bar.md) So why not indulge in the Dial Tone Bath Bars, Cocoa Butter? You'll be doing your body a favor! 
 
 
 ### [Dial Professional Antibacterial Deodorant Soap Bar](https://serp.ly/@bar/amazon/Dial+Soap+Bar?utm\_term=dial-professional-antibacterial-deodorant-soap-bar)

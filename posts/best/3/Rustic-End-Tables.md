@@ -19,7 +19,7 @@ Introducing a collection of handcrafted, [rustic end tables](https://github.com/
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Rustic+End+Tables?utm_term=rustic-farmhouse-end-table-for-aesthetic-versatility"><img alt="cozayh-2-pieces-rustic-farmhouse-tray-top-end-table-concavelegs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cozayh-2-pieces-rustic-farmhouse-tray-top-end-table-concavelegs-1/h=540,fit=pad,background=black"/></a></div>
 
-[The COZAYH Rustic Farmhouse Tray Top End Table is a versatile and beautiful addition to any living space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rustic-Farmhouse-Table.md) With its concave legs and lightly distressed design, it brings a charming touch of industrial history and cabin-inspired style to your home. 
+[The COZAYH Rustic Farmhouse Tray Top End Table is a versatile and beautiful addition to any living space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rustic-Farmhouse-Table.md) With its concave legs and lightly distressed design, it brings a charming touch of industrial history and cabin-inspired style to your home. 
 
 Measuring 18.9 inches in length, width, and height, this compact yet spacious end table is perfect for use as a nightstand, corner table, or accent piece. Its easy-to-assemble design and sturdy construction make it a desirable choice for many users, with positive reviews highlighting its attractive visual appeal and perfect size. 
 
@@ -114,7 +114,7 @@ I recently discovered the Waytrim Storage End Table, and I'm absolutely in love 
 
 What stood out the most to me was its versatility. I've been using it in my living room next to my sofa and have been loving its practicality. The sturdy build and easy-to-clean wood grain finish make it a durable addition to my home. Plus, the protective feet ensure that it won't scratch the floor, and the slight adjustability makes it ideal for uneven floors. 
 
-While I don't have any cons to mention, I do wish the product came with a manual for assembly, as it took me a bit to figure out how to put it together. [Overall, the Waytrim Storage End Table has exceeded my expectations and is definitely a stylish and functional piece for any home.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/End-Table-With-Storage.md) 
+While I don't have any cons to mention, I do wish the product came with a manual for assembly, as it took me a bit to figure out how to put it together. [Overall, the Waytrim Storage End Table has exceeded my expectations and is definitely a stylish and functional piece for any home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/End-Table-With-Storage.md) 
 
 
 ### [Rustic Barn Door End Table Set of 2: Modern Farmhouse Charm](https://serp.ly/@bar/amazon/Rustic+End+Tables?utm\_term=rustic-barn-door-end-table-set-of-2-modern-farmhouse-charm)

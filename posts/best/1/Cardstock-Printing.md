@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cardstock-Printing.md
 
 # Impress & Inspire -  19 Best Cardstock Printing Options for Stunning Business Cards and Invites
 
-Welcome to our [Cardstock Printing](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cardstock-Printing.md) roundup! [In this article, we've compiled an exciting collection of cardstock printing options that cater to different needs and preferences.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cardstock-Printing.md) [Whether you're looking for high-quality business cards, eye-catching invites, or stylish memos, we've got you covered.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Business-Card-Paper.md) Get ready to explore the world of cardstock printing and discover the perfect fit for your next project! 
+Welcome to our [Cardstock Printing](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cardstock-Printing.md) roundup! [In this article, we've compiled an exciting collection of cardstock printing options that cater to different needs and preferences.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cardstock-Printing.md) [Whether you're looking for high-quality business cards, eye-catching invites, or stylish memos, we've got you covered.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Business-Card-Paper.md) Get ready to explore the world of cardstock printing and discover the perfect fit for your next project! 
 
 *As an Amazon Affiliate™ I may earn through qualified purchases.*
 
@@ -164,7 +164,7 @@ All in all, I highly recommend the Joyberg White Cardstock for anyone looking fo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Cardstock+Printing?utm_term=pen-gear-premium-8-5-x-11-inch-white-cardstock-for-printing"><img alt="pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pen-gear-white-card-stock-8-5-x-11-inches-67-lb-147-gsm-800-sheets-1/h=540,fit=pad,background=black"/></a></div>
 
-[As a stationery enthusiast, I've always been on the lookout for high-quality paper for all my DIY projects.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Linen-Paper.md) Pen+Gear White Card Stock caught my eye due to its bright white shade and promising print results. I have to say, the packaging is nice and it was a breeze to set up. 
+[As a stationery enthusiast, I've always been on the lookout for high-quality paper for all my DIY projects.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Linen-Paper.md) Pen+Gear White Card Stock caught my eye due to its bright white shade and promising print results. I have to say, the packaging is nice and it was a breeze to set up. 
 
 Ever since I started using this card stock, I've been delighted with the sturdy and professional finish it adds to my projects. Whether it's for printing envelopes or creating invitations, this paper just takes it to the next level. The ink and color reproduction is fantastic, even without any issues like bleeding or smudging, regardless of the printer I use. 
 

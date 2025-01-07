@@ -56,7 +56,7 @@ One of the most admirable features of this bed frame is its versatility. It can 
 
 However, there were a few drawbacks to consider. Firstly, the bed frame does make a slight noise when you get on and off the bed, which can be a bit disruptive if you're sensitive to noise. Secondly, the frame does not come with any additional accessories or stabilizers, which might be helpful for those with more substantial beds. 
 
-Overall, despite the minor drawbacks, I was quite pleased with the headboard & footboard bed frame. It did exactly what it was supposed to do, and it made my bed look and feel much more luxurious. [If you're in the market for a sturdy and versatile bed frame, this Hollywood option just might be the one for you.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Profile-Bed-Frame.md) 
+Overall, despite the minor drawbacks, I was quite pleased with the headboard & footboard bed frame. It did exactly what it was supposed to do, and it made my bed look and feel much more luxurious. [If you're in the market for a sturdy and versatile bed frame, this Hollywood option just might be the one for you.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Profile-Bed-Frame.md) 
 
 
 ### [Affordable High-Profile Foldable Steel Twin Bed Frame](https://serp.ly/@bar/amazon/Cheap+Twin+Beds+Under+%24100?utm\_term=affordable-high-profile-foldable-steel-twin-bed-frame)
@@ -170,7 +170,7 @@ Assembling the bed frame was also a breeze. The clear, step-by-step instructions
 
 However, there are a couple of minor drawbacks worth mentioning. While the bed frame offers no squeaking or movement, it does have posts in the middle of each edge, which can be an inconvenience for some users, especially if they're not used to this design. 
 
-[In conclusion, the Zinus Kai platform bed frame is a high-quality, modern option for any bedroom.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Platform-Bed.md) It combines both durability and style, making it the ideal choice for those looking to enhance their living space without breaking the bank. Overall, I highly recommend giving it a try. 
+[In conclusion, the Zinus Kai platform bed frame is a high-quality, modern option for any bedroom.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Platform-Bed.md) It combines both durability and style, making it the ideal choice for those looking to enhance their living space without breaking the bank. Overall, I highly recommend giving it a try. 
 
 
 ### [Affordable 6-inch Twin Mattress in Box, Medium-Firm, Pressure Relief & Temp Regulation](https://serp.ly/@bar/amazon/Cheap+Twin+Beds+Under+%24100?utm\_term=affordable-6-inch-twin-mattress-in-box-medium-firm-pressure-relief-temp-regulation)

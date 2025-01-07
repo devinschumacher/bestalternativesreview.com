@@ -159,7 +159,7 @@ The Bushnell 15-45x60 T Series FDE scope stands out with its versatile 15-45x ma
 
 The FFP scope features the Mil-Hash reticle, making it easy to use and speed up the zeroing process. The patented RainGuard HD ensures a clear, bright view even in wet conditions, while the fully-multi coated optics deliver bright and detailed images. 
 
-Designed for durability, the scope is waterproof and fogproof, ensuring it can withstand harsh outdoor conditions. [With a combination of precision and affordability, this scope is a fantastic option for budget-conscious shooters.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Red-Dot-Scope.md) 
+Designed for durability, the scope is waterproof and fogproof, ensuring it can withstand harsh outdoor conditions. [With a combination of precision and affordability, this scope is a fantastic option for budget-conscious shooters.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Red-Dot-Scope.md) 
 
 
 ### [Sightron Excalibur Dead-Zone Scope](https://serp.ly/@bar/amazon/Scope+Parallax?utm\_term=sightron-excalibur-dead-zone-scope)

@@ -25,7 +25,7 @@ The moment I opened the package, I was struck by the exquisite design. The cast 
 
 In addition to the beautiful aesthetics, these limited-edition balls continued to impress on the course. The quality of performance was top-notch, just like any other TP5 ball. Although they may not be everyone's first choice for play, the collectible aspect made them a worthy addition to my collection. 
 
-One minor downside was the hefty price tag; $60 for a dozen golf balls seems a bit steep. But as a collector, I'm willing to pay a premium for limited-edition items like these. [Overall, the TaylorMade TP5 Pix Limited Edition British Open Golf Balls were a memorable addition to my collection, and I eagerly await next year's release with anticipation.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Taylormade-Tp5.md) 
+One minor downside was the hefty price tag; $60 for a dozen golf balls seems a bit steep. But as a collector, I'm willing to pay a premium for limited-edition items like these. [Overall, the TaylorMade TP5 Pix Limited Edition British Open Golf Balls were a memorable addition to my collection, and I eagerly await next year's release with anticipation.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Taylormade-Tp5.md) 
 
 
 ### [Taylormade 2020 TP5 Golf Balls: Tour Ball with Enhanced Speed and Distance](https://serp.ly/@bar/amazon/Tp5?utm\_term=taylormade-2020-tp5-golf-balls-tour-ball-with-enhanced-speed-and-distance)

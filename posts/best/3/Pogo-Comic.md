@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Pogo-Comic.md
 
 # Unleash the Fun with 36 Top Pogo Comics for All Ages
 
-Welcome to this exciting roundup of [Pogo Comic](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pogo-Comic.md) - a world of humor and adventure that has captured the hearts of millions! [Join us as we explore the best Pogo Comics, from classic tales to modern-day masterpieces.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pogo-Comic.md) Discover the characters that have defined this iconic franchise and experience the delight Pogo Comic has to offer. 
+Welcome to this exciting roundup of [Pogo Comic](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pogo-Comic.md) - a world of humor and adventure that has captured the hearts of millions! [Join us as we explore the best Pogo Comics, from classic tales to modern-day masterpieces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pogo-Comic.md) Discover the characters that have defined this iconic franchise and experience the delight Pogo Comic has to offer. 
 
 *As an Amazon Affiliate™ we earn from qualified purchases at no cost to you.*
 

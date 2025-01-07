@@ -19,7 +19,7 @@ Dress up your style with the perfect combination of class and color. In this art
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Mens+Burgundy+Dress+Shoes?utm_term=belvedere-mens-dark-burgundy-ostrich-dress-shoes"><img alt="belvedere-orlando-mens-formal-oxfords-dark-burgundy-genuine-ostrich-shoes-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/belvedere-orlando-mens-formal-oxfords-dark-burgundy-genuine-ostrich-shoes-1/h=540,fit=pad,background=black"/></a></div>
 
-Elevate your fashion sense with these dapper Belvedere Orlando Men's Formal Oxfords, available in the rich burgundy hue. [Crafted from genuine ostrich leather, these shoes boast a luxurious appeal.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Ostrich-Boots.md) 
+Elevate your fashion sense with these dapper Belvedere Orlando Men's Formal Oxfords, available in the rich burgundy hue. [Crafted from genuine ostrich leather, these shoes boast a luxurious appeal.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Ostrich-Boots.md) 
 
 The supple leather lining ensures breathability and comfort, while the cushioned insole guarantees comfort all day long. The leather sole adds an element of durability to these stylish footwear options. 
 
@@ -231,7 +231,7 @@ Despite the minor issue with the strap, I believe this stylish and well-made sho
 
 ## Buyer's Guide
 
-[Welcome to our buyer's guide for mens burgundy dress shoes.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mens-Burgundy-Dress-Shoes.md) Whether you're attending a formal event, a job interview, or just looking to elevate your wardrobe, these shoes can add an air of sophistication to any outfit. In this guide, we'll cover the important features, considerations, and general advice for purchasing the perfect pair of burgundy dress shoes for men. 
+[Welcome to our buyer's guide for mens burgundy dress shoes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mens-Burgundy-Dress-Shoes.md) Whether you're attending a formal event, a job interview, or just looking to elevate your wardrobe, these shoes can add an air of sophistication to any outfit. In this guide, we'll cover the important features, considerations, and general advice for purchasing the perfect pair of burgundy dress shoes for men. 
 
 
 ### Important Features

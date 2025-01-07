@@ -131,7 +131,7 @@ After trying out Carbona's 2-in-1 Oxy-powered Carpet and Upholstery Cleaner, I m
 
 But, as the saying goes, "With great power comes great responsibility". The product did have a bit of a flaw, which was the plastic seal on the bottle. It was supposed to ensure the safe transportation of the product, but on two occasions, the seal was missing, causing the product to leak all over the place. This was quite a bummer, but overall, the product's amazing capabilities had a stronger impact on my experience than its minor flaws. 
 
-[I would definitely recommend this product to anyone looking for a reliable and efficient carpet cleaner.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Carpet-Shampoo.md) With its oxy-powered formula, built-in brush, and strong cleaning power, it makes light work of even the toughest stains. 
+[I would definitely recommend this product to anyone looking for a reliable and efficient carpet cleaner.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Carpet-Shampoo.md) With its oxy-powered formula, built-in brush, and strong cleaning power, it makes light work of even the toughest stains. 
 
 
 ### [Bissell Pet Carpet & Upholstery 12 oz Cleaner](https://serp.ly/@bar/amazon/Car+Upholstery+Cleaner?utm\_term=bissell-pet-carpet-upholstery-12-oz-cleaner)

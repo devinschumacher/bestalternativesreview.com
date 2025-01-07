@@ -11,7 +11,7 @@ slug: /blob/main/posts/best/2/Mitre-Saw.md
 
 Our comprehensive roundup will help you find the perfect saw for your next DIY project, ensuring precision and efficiency every time
 
-*As an Amazon Affiliate we receive compensation through qualifying purchases at no cost to you*](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mitre-Saw.md)
+*As an Amazon Affiliate we receive compensation through qualifying purchases at no cost to you*](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mitre-Saw.md)
 
 
 ## Reviews

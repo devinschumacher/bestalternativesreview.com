@@ -34,7 +34,7 @@ Versatile in its uses, the BoErSi Foldable Bed can be utilized in various settin
 
 Bed To Go's Brookside Cot Rollaway Bed with Memory Foam Mattress is designed to accommodate those last-minute house guests with ease and comfort. Constructed with durable steel, this bed boasts locking wheels and a hammock-style spring suspension base that ensures stability. 
 
-[The bed's four-inch memory foam mattress, complete with gel infusions, provides a luxurious sleeping experience while minimizing overheating.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) Additionally, there's ample storage space underneath for storing luggage. When the guests depart, the bed quickly folds up and discreetly stows away in a closet for future use. 
+[The bed's four-inch memory foam mattress, complete with gel infusions, provides a luxurious sleeping experience while minimizing overheating.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gel-Memory-Foam-Mattress.md) Additionally, there's ample storage space underneath for storing luggage. When the guests depart, the bed quickly folds up and discreetly stows away in a closet for future use. 
 
 
 ### [Portable, Foldable Guest Bed with Memory Foam Mattress](https://serp.ly/@bar/amazon/Beds+To+Go?utm\_term=portable-foldable-guest-bed-with-memory-foam-mattress)
@@ -86,14 +86,14 @@ I recently came across this portable folding bed, and I must say, it's a game-ch
 
 One of the standout features for me was the super comfortable mattress cover made of breathable fabric. It's easy to clean and adds a touch of coziness to the bed. The sturdy frame makes the folding bed suitable for various locations, and it can even withstand weights of up to 250 pounds. 
 
-However, I would like to mention that this bed is not meant for children to jump on, so make sure to keep that in mind. Overall, the product has been a practical and comfortable addition to my household. [If you're looking for an easy-to-use folding bed with a durable and comfy design, this one is truly worth considering.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Folding-Bed.md) 
+However, I would like to mention that this bed is not meant for children to jump on, so make sure to keep that in mind. Overall, the product has been a practical and comfortable addition to my household. [If you're looking for an easy-to-use folding bed with a durable and comfy design, this one is truly worth considering.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Folding-Bed.md) 
 
 
 ### [Portable Folding Bed - Memory Foam Mattress for Comfort and Space-Saving Design](https://serp.ly/@bar/amazon/Beds+To+Go?utm\_term=portable-folding-bed-memory-foam-mattress-for-comfort-and-space-saving-design)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Beds+To+Go?utm_term=portable-folding-bed-memory-foam-mattress-for-comfort-and-space-saving-design"><img alt="costway-portable-folding-bed-with-memory-foam-mattress-rollaway-cot-beige-made-in-italy-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/costway-portable-folding-bed-with-memory-foam-mattress-rollaway-cot-beige-made-in-italy-1/h=540,fit=pad,background=black"/></a></div>
 
-[I was in the market for a comfortable, lightweight bed that could easily fold up and store away when not in use.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fold-Away-Bed.md) The Costway Portable Folding Bed with Memory Foam Mattress Rollaway Cot caught my eye, as it seemed to offer all these features and more. 
+[I was in the market for a comfortable, lightweight bed that could easily fold up and store away when not in use.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fold-Away-Bed.md) The Costway Portable Folding Bed with Memory Foam Mattress Rollaway Cot caught my eye, as it seemed to offer all these features and more. 
 
 Upon arrival, I was impressed by the sturdy, metal construction of the bed frame, which was powder-coated for added durability. The folding design made it perfect for saving space in my small apartment, and the easy-to-roll wheels allowed me to effortlessly move the bed around as needed. 
 
@@ -233,7 +233,7 @@ Bed size is a crucial factor to consider when selecting a bed. Determine the ava
 
 ### Bed Frame Material
 
-[Bed frames are available in a variety of materials, including wooden, metal, and upholstered frames.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wood-Bed-Frame.md) Choose the material that best suits your style and budget. Wooden frames tend to be more classic and durable, while metal frames offer sleek, modern designs and are often more affordable. Upholstered frames provide a luxurious touch and can be a good choice for those who want additional storage or a built-in headboard. 
+[Bed frames are available in a variety of materials, including wooden, metal, and upholstered frames.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wood-Bed-Frame.md) Choose the material that best suits your style and budget. Wooden frames tend to be more classic and durable, while metal frames offer sleek, modern designs and are often more affordable. Upholstered frames provide a luxurious touch and can be a good choice for those who want additional storage or a built-in headboard. 
 
 
 ### Mattress Type

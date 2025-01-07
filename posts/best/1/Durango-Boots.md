@@ -27,7 +27,7 @@ The X-treme Comfort footbeds with memory foam were definitely a plus. They reall
 
 However, they're not perfect. The ventilation's a bit of a double-edged sword. On one hand, it helps your feet breathe, but it also means water can get in more easily. And there's the issue of the black material in the back heel cracking after a certain amount of time, which can be quite frustrating. 
 
-[Overall, I definitely think these boots are worth checking out if you're looking for a comfortable, supportive pair of work boots.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Boots.md) Just be aware of the potential downsides, like the ventilation and durability issues. 
+[Overall, I definitely think these boots are worth checking out if you're looking for a comfortable, supportive pair of work boots.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) Just be aware of the potential downsides, like the ventilation and durability issues. 
 
 
 ### [Durango Maverick XP Waterproof Lacer Work Boot - Slip and Oil Resistant](https://serp.ly/@bar/amazon/Durango+Boots?utm\_term=durango-maverick-xp-waterproof-lacer-work-boot-slip-and-oil-resistant)
@@ -86,7 +86,7 @@ Not just comfortable and stylish, but also practical, the Durango Men's Rebel Pr
 
 The Durango Men's Arena Pro Western Boots, Size 7, Tobacco are a great fit for men who love western styles. The full-grain leather upper and leather lining provide a comfortable and durable feel. The 13-inch shaft height and western embroidery design add a touch of elegance. 
 
-The stockman heel and pull tabs make them easy to wear and remove. However, the 3/4 Goodyear welt construction might not be the best for those seeking a longer-lasting boot. [Overall, these boots offer a blend of comfort and style, making them a great choice for men who enjoy western fashion.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cowboy-Boots-Mens.md) 
+The stockman heel and pull tabs make them easy to wear and remove. However, the 3/4 Goodyear welt construction might not be the best for those seeking a longer-lasting boot. [Overall, these boots offer a blend of comfort and style, making them a great choice for men who enjoy western fashion.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cowboy-Boots-Mens.md) 
 
 
 ### [Durango Brown Ventilated Western Boot - 13 Cimarron Brown (Stylish and Comfortable Option)](https://serp.ly/@bar/amazon/Durango+Boots?utm\_term=durango-brown-ventilated-western-boot-13-cimarron-brown-stylish-and-comfortable-option)
@@ -316,7 +316,7 @@ The Durango Boots line comprises a myriad of offerings, catering to both men, wo
 
 ### Are Durango Boots Robust Enough for My Lifestyle?
 
-Yes, indeed! The Durango Boots reputation precedes itself for their robustness. [Crafted with excellent attention to detail and high-quality materials, these boots are engineered with sturdiness in mind.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Engineer-Boots.md) The brand's commitment to durability manifests in their use of premium leather, solid soles, and reinforced stitching, all of which contribute to their resistance against the harshest of elements and work settings.
+Yes, indeed! The Durango Boots reputation precedes itself for their robustness. [Crafted with excellent attention to detail and high-quality materials, these boots are engineered with sturdiness in mind.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Engineer-Boots.md) The brand's commitment to durability manifests in their use of premium leather, solid soles, and reinforced stitching, all of which contribute to their resistance against the harshest of elements and work settings.
 
 Those who have owned Durango Boots have reported that their boots hold up well even after prolonged use with proper care. To maintain their resilience and longevity, remember to clean, condition, and store your boots appropriately.
 

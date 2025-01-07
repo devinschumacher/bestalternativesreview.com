@@ -19,7 +19,7 @@ Unearth some of the finest work boots offered at Tractor Supply! This piece offe
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Tractor+Supply+Work+Boots?utm_term=thorogood-american-heritage-moc-toe-work-boots-for-men"><img alt="thorogood-mens-american-heritage-6-moc-toe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/thorogood-mens-american-heritage-6-moc-toe-1/h=540,fit=pad,background=black"/></a></div>
 
-Thorogood Men's American Heritage 6" Moc Toe boots have become my staple footwear for the past few months. [I was always on the lookout for comfortable work boots without compromising on style, and these beauties fit the bill.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Keen-Boots.md) 
+Thorogood Men's American Heritage 6" Moc Toe boots have become my staple footwear for the past few months. [I was always on the lookout for comfortable work boots without compromising on style, and these beauties fit the bill.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
 
 The first thing that struck me was the classic style and sturdy construction. The Goodyear Storm Welt construction is a testament to the boot's durability, and the unlined design ensures a natural and comfortable feel. I particularly appreciate the fiberglass shank and the poron comfort cushion insole which provide that perfect blend of comfort and support. 
 
@@ -65,7 +65,7 @@ Overall, these work boots from Carhartt are well-crafted and reliable, offering 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Tractor+Supply+Work+Boots?utm_term=genuine-leather-waterproof-work-boots-for-tough-jobs"><img alt="mens-georgia-boot-g108-8-inch-homeland-waterproof-work-boot-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-georgia-boot-g108-8-inch-homeland-waterproof-work-boot-brown-1/h=540,fit=pad,background=black"/></a></div>
 
-These men's work boots from Georgia Boot are perfect for those who need boots that can handle the toughest jobs. [With 60% full-grain waterproof leather and 40% rubber, you can expect these boots to keep your feet dry in even the wettest conditions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rubber-Rain-Boots.md) The heat-resistant and abrasion-resistant outsole ensures that your boots can withstand any job. 
+These men's work boots from Georgia Boot are perfect for those who need boots that can handle the toughest jobs. [With 60% full-grain waterproof leather and 40% rubber, you can expect these boots to keep your feet dry in even the wettest conditions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rubber-Rain-Boots.md) The heat-resistant and abrasion-resistant outsole ensures that your boots can withstand any job. 
 
 Wearing these boots, you'll notice that they provide flexibility and comfort, thanks to the direct-attached oil-resistant PVC outsole. The shaft measures approximately 8.5 inches from the arch, providing ankle support while still allowing movement. The memory foam footbed adds an extra layer of comfort, and the moisture-wicking lining ensures that your feet stay dry and fresh throughout the day. 
 
@@ -111,7 +111,7 @@ One standout feature is the padded collar, which provides extra comfort while th
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Tractor+Supply+Work+Boots?utm_term=iron-age-mens-trencher-6-inch-work-boot-brown"><img alt="iron-age-mens-trencher-ia5002-work-boot-9-w-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/iron-age-mens-trencher-ia5002-work-boot-9-w-brown-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently tried a pair of Iron Age Men's Trencher IA5002 Work Boots in the 9-W Brown color. [These work boots were designed to be tough and durable, perfectly suited for those who work in harsh conditions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Engineer-Boots.md) The full-grain leather upper is a great feature for ensuring longevity, and I appreciate that they come with padded collars to make the boots more comfortable. 
+I recently tried a pair of Iron Age Men's Trencher IA5002 Work Boots in the 9-W Brown color. [These work boots were designed to be tough and durable, perfectly suited for those who work in harsh conditions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Engineer-Boots.md) The full-grain leather upper is a great feature for ensuring longevity, and I appreciate that they come with padded collars to make the boots more comfortable. 
 
 One thing that stood out to me was how comfortable these work boots are, even after an entire day on my feet. I work in a construction environment, and the rubber soles provided excellent grip and traction on uneven ground, making my job much easier. However, the soles are a bit hard, similar to concrete, which might take some adjusting time for others. 
 

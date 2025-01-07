@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md
 
 # Stunning Navy Bridesmaid Dresses -  Our Top 20 Picks for Your Wedding Party
 
-[Looking for the perfect Navy bridesmaid dress to complement your wedding theme?](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md) Look no further! In this article, we've compiled a fantastic selection of [Navy bridesmaid dresses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md) that will surely catch your eye. From classic styles to modern designs, we've got you covered. Get ready to find your dream dress and make your bridesmaids shine on your special day. 
+[Looking for the perfect Navy bridesmaid dress to complement your wedding theme?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md) Look no further! In this article, we've compiled a fantastic selection of [Navy bridesmaid dresses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Navy-Bridesmaid-Dresses.md) that will surely catch your eye. From classic styles to modern designs, we've got you covered. Get ready to find your dream dress and make your bridesmaids shine on your special day. 
 
 *As an Amazon Affiliate I may earn from qualified purchases*
 
@@ -60,7 +60,7 @@ One feature that really stood out to me was the light-weight satin material. It 
 
 Despite loving many aspects of this dress, there were a couple of minor issues I encountered. First, the length was slightly long for my taste, which might be an issue for those who prefer a shorter maxi dress. Additionally, some reviewers mentioned a slight difficulty with sizing, which could be a concern for those who are particular about their fit. 
 
-[Overall, the Tina Navy Formal Maxi Dress from Beginning Boutique is an attractive and comfortable option for those seeking a chic and versatile dress for formal occasions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Navy-Maxi-Dress.md) Its craftsmanship, ease of putting on/taking off, and stunning navy color make it a standout choice. 
+[Overall, the Tina Navy Formal Maxi Dress from Beginning Boutique is an attractive and comfortable option for those seeking a chic and versatile dress for formal occasions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Navy-Maxi-Dress.md) Its craftsmanship, ease of putting on/taking off, and stunning navy color make it a standout choice. 
 
 
 ### [Navy Blue Bridesmaid Dress by Sarah Houston Champagne](https://serp.ly/@bar/amazon/Navy+Bridesmaid+Dresses?utm\_term=navy-blue-bridesmaid-dress-by-sarah-houston-champagne)

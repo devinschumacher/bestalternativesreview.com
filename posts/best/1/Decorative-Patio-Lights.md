@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Decorative-Patio-Lights.md
 
 # Brighten Up Your Patio -  Top 19 Decorative Patio Lights to Illuminate Your Outdoor Space
 
-Transform your outdoor space into a cozy oasis with [Decorative Patio Lights](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Patio-Lights.md)! [In this roundup, we have handpicked a selection of beautiful outdoor lighting fixtures that not only enhance the look of your patio but also serve as functional lighting solutions.](https://gist.github.com/janeknowsbest77/11417327e203bc320077349457104e45) [From string lights to lanterns, get ready to discover the perfect patio lighting to suit your style and budget.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Patio-Lights.md) Let's illuminate your world together! 
+Transform your outdoor space into a cozy oasis with [Decorative Patio Lights](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Patio-Lights.md)! [In this roundup, we have handpicked a selection of beautiful outdoor lighting fixtures that not only enhance the look of your patio but also serve as functional lighting solutions.](https://gist.github.com/janeknowsbest77/11417327e203bc320077349457104e45) [From string lights to lanterns, get ready to discover the perfect patio lighting to suit your style and budget.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Decorative-Patio-Lights.md) Let's illuminate your world together! 
 
 *As an Amazon Affiliate™ I receive compensation through qualified purchases at no cost to you*
 
@@ -183,7 +183,7 @@ However, the only downside was that these lights require a good dose of sunshine
 
 This sturdy and elegant solar-powered garden decor is a charming addition to your outdoor space. Its bright, green metal peacock figure comes complete with a lengthened pole and a soft, warm string light that illuminates from the tail feathers, adding a memorable glow to your garden. 
 
-The metal construction ensures durability, while the solar-powered feature means it charges during the day and turns on automatically at dusk. With its IP44 waterproof feature, this stake light can withstand raining, snowing, and frosting, making it a versatile choice for any outdoor location. [Ideal for patios, lawns, yards, porches, and gardens, this mesmerizing solar light stake will surely brighten up your outdoor experience.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Solar-Lights-For-Patio.md) 
+The metal construction ensures durability, while the solar-powered feature means it charges during the day and turns on automatically at dusk. With its IP44 waterproof feature, this stake light can withstand raining, snowing, and frosting, making it a versatile choice for any outdoor location. [Ideal for patios, lawns, yards, porches, and gardens, this mesmerizing solar light stake will surely brighten up your outdoor experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Solar-Lights-For-Patio.md) 
 
 
 ### [29Feet Solar String Lights for Backyard Patio](https://serp.ly/@bar/amazon/Decorative+Patio+Lights?utm\_term=29feet-solar-string-lights-for-backyard-patio)

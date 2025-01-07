@@ -272,7 +272,7 @@ Another standout tool in this kit was the DC411 cut-off tool, which boasts a hig
 
 The DeWalt DCK955X 18V Cordless XRP 9-Tool Combo Kit also included a DW919 18V flexible floodlight, which provided hands-free, bright lighting in the dim corners of my workshop. However, I observed that the floodlight's battery life was rather short, especially when used in conjunction with other tools. 
 
-[To be honest, the highlight of this kit for me was the comprehensive set of tools it provided, as they were versatile and met my day-to-day needs.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tool-Kit.md) The one-year free service contract also added great value and peace of mind. Of course, nothing is perfect and there were a few minor downsides like the battery life of the DC390 circular saw and the floodlight, as well as the limited number of batteries provided. Nonetheless, this kit has been a valuable addition to my workshop and I can't wait to use it on more projects. 
+[To be honest, the highlight of this kit for me was the comprehensive set of tools it provided, as they were versatile and met my day-to-day needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tool-Kit.md) The one-year free service contract also added great value and peace of mind. Of course, nothing is perfect and there were a few minor downsides like the battery life of the DC390 circular saw and the floodlight, as well as the limited number of batteries provided. Nonetheless, this kit has been a valuable addition to my workshop and I can't wait to use it on more projects. 
 
 
 ### [DeWalt 20V MAX Brushless 6-Tool Combo Kit for Efficient Construction](https://serp.ly/@bar/amazon/Dewalt+Combo+Kit?utm\_term=dewalt-20v-max-brushless-6-tool-combo-kit-for-efficient-construction)
@@ -283,7 +283,7 @@ The DeWalt 20V MAX Brushless 6-Tool Combo Kit is a versatile and powerful collec
 
 The DCF787 impact driver delivers the power required for most jobs and is designed for comfortable use in tight spaces. [The DCS566 circular saw is built for superior productivity and offers a powerful brushless motor for fast, accurate cuts.](https://gist.github.com/janeknowsbest77/d85b54a03e7921082906d2868b68160e) 
 
-The reciprocating saw and oscillating multi-tool make their debut with the DCS382 and DCS356, respectively. [These tools are a reliable addition to any DIY enthusiast's collection, offering great value for their price.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tool-Set.md) 
+The reciprocating saw and oscillating multi-tool make their debut with the DCS382 and DCS356, respectively. [These tools are a reliable addition to any DIY enthusiast's collection, offering great value for their price.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tool-Set.md) 
 
 
 ### [DeWalt 20V MAX Cordless 6-Tool Combo Kit](https://serp.ly/@bar/amazon/Dewalt+Combo+Kit?utm\_term=dewalt-20v-max-cordless-6-tool-combo-kit)
@@ -486,7 +486,7 @@ Overall, the DeWalt Combo Kit is an excellent choice for homeowners and small co
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dewalt+Combo+Kit?utm_term=dewalt-15-amp-dual-bevel-miter-saw-kit-with-compact-stand"><img alt="dewalt-15-amp-corded-12-in-double-bevel-sliding-compound-miter-saw-kit-with-compact-miter-saw-stand--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/dewalt-15-amp-corded-12-in-double-bevel-sliding-compound-miter-saw-kit-with-compact-miter-saw-stand--1/h=540,fit=pad,background=black"/></a></div>
 
-[DeWalt's miter saw kit is a fantastic tool for woodworking enthusiasts looking for increased precision and versatility.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dewalt-Radial-Arm-Saw.md) The 15 Amp motor combined with an integrated XPS crosscut positioning system ensures accurate and adjustment-free cut line indication. With a maximum bevel cut angle of 49° and 50° for the left side, and a maximum miter cut angle of 60°, this saw is perfect for a wide range of projects. 
+[DeWalt's miter saw kit is a fantastic tool for woodworking enthusiasts looking for increased precision and versatility.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dewalt-Radial-Arm-Saw.md) The 15 Amp motor combined with an integrated XPS crosscut positioning system ensures accurate and adjustment-free cut line indication. With a maximum bevel cut angle of 49° and 50° for the left side, and a maximum miter cut angle of 60°, this saw is perfect for a wide range of projects. 
 
 The DEWALT Compact Miter Saw Stand DWX724 is designed to work with all miter saws, making it a universal addition. Owners have praised this tool for its excellent performance and longevity, making it an ideal choice for those seeking a high-quality miter saw kit. 
 

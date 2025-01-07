@@ -30,7 +30,7 @@ Featuring a smooth surface, these fenders are not only impact resistant and scra
 
 I recently started using the C. E. Smith Round Trailer Fenders, and I must say, they're a game-changer for my boat trailer. Made of heavy 16-gauge galvanized steel, these round fenders are sturdy and durable. One of the best features is that they can be painted to match or complement my trailer, making it look cohesive and sleek. 
 
-The only downside is that the fender brackets are not included, and they need to be purchased separately. However, this didn't deter me from giving these fenders a solid 4.9 rating. [Overall, these C. E. Smith Round Trailer Fenders are a great investment for any boat trailer owner, providing both protection and style.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boat-Trailer-Fenders.md) 
+The only downside is that the fender brackets are not included, and they need to be purchased separately. However, this didn't deter me from giving these fenders a solid 4.9 rating. [Overall, these C. E. Smith Round Trailer Fenders are a great investment for any boat trailer owner, providing both protection and style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Boat-Trailer-Fenders.md) 
 
 
 ### [Durable HDPE Boat Trailer Fenders](https://serp.ly/@bar/amazon/Boat+Trailer+Fenders?utm\_term=durable-hdpe-boat-trailer-fenders)

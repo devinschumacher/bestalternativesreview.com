@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Overwatch-Figures.md
 
 # Top 11 Overwatch Figures -  Bring Your Favorite Heroes to Life
 
-[Get ready to dive into the world of Overwatch as we showcase a collection of stunning figures that capture the essence of your favorite characters from the popular game!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Overwatch-Figures.md) This roundup brings together the best of the best, highlighting the intricate details and lifelike quality of each figure. Join us as we explore the world of Overwatch through these amazing collectibles. 
+[Get ready to dive into the world of Overwatch as we showcase a collection of stunning figures that capture the essence of your favorite characters from the popular game!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Overwatch-Figures.md) This roundup brings together the best of the best, highlighting the intricate details and lifelike quality of each figure. Join us as we explore the world of Overwatch through these amazing collectibles. 
 
 *As an Amazon Affiliate™, we earn through qualifying purchases at no cost to you*
 

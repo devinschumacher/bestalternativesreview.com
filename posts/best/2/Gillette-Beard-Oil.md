@@ -51,7 +51,7 @@ The balm serves as a leave-in conditioner for your beard, softening the hair and
 
 However, one downside is that the King C. Gillette Beard Balm might be overpowering for those who dislike strong scents. Additionally, some users have reported residue buildup if over-applied. 
 
-[Overall, if you're looking for a high-quality beard balm that combines moisturizing and styling properties, this product is worth considering.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beard-Balm.md) Just be mindful of the strong fragrance and the importance of correct dosage to avoid residue. 
+[Overall, if you're looking for a high-quality beard balm that combines moisturizing and styling properties, this product is worth considering.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beard-Balm.md) Just be mindful of the strong fragrance and the importance of correct dosage to avoid residue. 
 
 
 ### [Nourishing Citrus Beard Serum by Paul Mitchell](https://serp.ly/@bar/amazon/Gillette+Beard+Oil?utm\_term=nourishing-citrus-beard-serum-by-paul-mitchell)
@@ -62,7 +62,7 @@ Indulge in the invigorating scent of citrus and nourish your beard with the ligh
 
 The secret behind its success lies in the combination of hydrating ingredients like shea butter and sunflower seed oil. This unique blend not only softens even the coarsest hair but also absorbs quickly, ensuring your beard stays looking and feeling great without any unwanted greasiness. 
 
-Embrace the enticing agave citrus scent that not only keeps your beard smelling fresh but also energizes your senses. [And with its versatility, this oil works wonders for different beard styles and lengths, ensuring everyone can enjoy the benefits it offers.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Good-Beard-Oil.md) 
+Embrace the enticing agave citrus scent that not only keeps your beard smelling fresh but also energizes your senses. [And with its versatility, this oil works wonders for different beard styles and lengths, ensuring everyone can enjoy the benefits it offers.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Good-Beard-Oil.md) 
 
 Though some users have reported a slightly oily feel, the overall positive reviews speak volumes about the oil's effectiveness in maintaining beard health and hygiene. So, go ahead and pamper your facial hair with the nourishing power of Paul Mitchell MVRCK Beard Oil. 
 
@@ -126,7 +126,7 @@ This gift set is perfect for beard enthusiasts and makes an excellent present fo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Gillette+Beard+Oil?utm_term=king-c-gillettes-revitalizing-beard-oil-for-soft-moisturized-skin"><img alt="king-c-gillette-beard-oil-30ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/king-c-gillette-beard-oil-30ml-1/h=540,fit=pad,background=black"/></a></div>
 
-Every day, I faithfully apply this beard oil to my facial hair, knowing it delivers the softness I desire. [As I carefully squeeze a small amount onto my palm, the aroma of fresh, natural oils fills the air, reminding me of the expertise behind this product.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Essential-Oil-Smells.md) 
+Every day, I faithfully apply this beard oil to my facial hair, knowing it delivers the softness I desire. [As I carefully squeeze a small amount onto my palm, the aroma of fresh, natural oils fills the air, reminding me of the expertise behind this product.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oil-Smells.md) 
 
 The nourishing essential oils, such as argan, jojoba, and almond, work their magic, soothing my dry skin and leaving my beard feeling incredibly soft. The light, non-greasy consistency absorbs quickly into my skin, keeping my beard looking neat and manageable, without any unwanted shine. 
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Ceramic-Side-Table.md
 
 # Charming Companions -  18 Best Ceramic Side Tables for Elegant Home Decor
 
-[Welcome to our roundup of the hottest ceramic side tables on the market.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Ceramic-Side-Table.md) In this article, we've carefully curated a selection of stylish and functional pieces that are sure to enhance any living space. Whether you're looking for a chic addition to your bedroom or a statement piece for your living room, we've got you covered. 
+[Welcome to our roundup of the hottest ceramic side tables on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Ceramic-Side-Table.md) In this article, we've carefully curated a selection of stylish and functional pieces that are sure to enhance any living space. Whether you're looking for a chic addition to your bedroom or a statement piece for your living room, we've got you covered. 
 
 *As an Amazon Affiliate I may earn from qualified purchases at no cost to you!*
 
@@ -168,7 +168,7 @@ The table's curved shape saves space, and the ceramic top adds a touch of elegan
 
 Introducing the Soleil Outdoor Blue & White Ceramic Tile Iron Frame Side Table - an enchanting addition to any outdoor space! This captivating table boasts a unique blue and white color palette on a sturdy iron frame, all finished with a sleek matte black surface. 
 
-Standing at just the right height, it's perfect for resting your favorite drinks or nibbling on snacks while lounging in the sun. [With its eye-catching design and impressive durability, this table is sure to become a beloved fixture in your backyard retreat.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Tall-Pedestal-Table.md) 
+Standing at just the right height, it's perfect for resting your favorite drinks or nibbling on snacks while lounging in the sun. [With its eye-catching design and impressive durability, this table is sure to become a beloved fixture in your backyard retreat.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tall-Pedestal-Table.md) 
 
 
 ### [Studio McGee Ceramic Side Table with Ribbed Pillar Base](https://serp.ly/@bar/amazon/Ceramic+Side+Table?utm\_term=studio-mcgee-ceramic-side-table-with-ribbed-pillar-base)

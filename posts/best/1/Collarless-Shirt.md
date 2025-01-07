@@ -61,7 +61,7 @@ Despite this minor issue, I still highly recommend this shirt to anyone looking 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Collarless+Shirt?utm_term=collarless-oxford-shirt-breathable-stylish-and-versatile"><img alt="womens-will-collarless-shirt-l-s-blue-white-stripe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/womens-will-collarless-shirt-l-s-blue-white-stripe-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Women's Will Collarless Shirt is a must-have for any professional wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Collared-Shirt-Dress.md) This beautiful shirt combines a modern, collarless style with a straight cut and longer length in the back, perfect for both fitted and relaxed looks. 
+[The Women's Will Collarless Shirt is a must-have for any professional wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Collared-Shirt-Dress.md) This beautiful shirt combines a modern, collarless style with a straight cut and longer length in the back, perfect for both fitted and relaxed looks. 
 
 Made from 100% cotton luxury oxford weave and featuring soft cream contrast buttons, it is both breathable and comfortable. With a back yoke tab detail and Oeko Tex Standard 100 Certification, you can feel good about your purchase. 
 

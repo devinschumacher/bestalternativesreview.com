@@ -43,7 +43,7 @@ Let this stunning accent piece transform your home into your own personal oasis.
 
 Add elegance to your living space with the Tufted Wingback Chair from HOMCOM. Inspired by French design, this chair brings a timeless touch to any decor with its elegantly tufted cushions, polished wood legs, and low-slung seat. 
 
-The linen fabric, combined with thick padded cushions, offers a comfortable and stylish seating experience, while the off-white color makes it a versatile addition to your space. [The quirky and fashionable accent chair is perfect for those looking to make a statement in their bedroom or living room.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cozy-Accent-Chair.md) Customers rave about its quality construction, ease of assembly, and unique appearance, although some mention assembly challenges and question the authenticity of the linen fabric. 
+The linen fabric, combined with thick padded cushions, offers a comfortable and stylish seating experience, while the off-white color makes it a versatile addition to your space. [The quirky and fashionable accent chair is perfect for those looking to make a statement in their bedroom or living room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cozy-Accent-Chair.md) Customers rave about its quality construction, ease of assembly, and unique appearance, although some mention assembly challenges and question the authenticity of the linen fabric. 
 
 Overall, this Tufted Wingback Chair is a stylish and comfy addition to any home. 
 
@@ -176,12 +176,12 @@ One area where it could win a bit more? User manual. Mine got a bit lost in tran
 
 ## Buyer's Guide
 
-Selecting the perfect tufted wingback chair can be an exciting but daunting task. With so many options available in terms of design, comfort, and material, it's essential to know what factors to consider before making your purchase. [This buyer's guide will provide you with the necessary information to make an informed decision and ensure that you find the perfect wingback chair for your home.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wingback-Chair-With-Arms.md) 
+Selecting the perfect tufted wingback chair can be an exciting but daunting task. With so many options available in terms of design, comfort, and material, it's essential to know what factors to consider before making your purchase. [This buyer's guide will provide you with the necessary information to make an informed decision and ensure that you find the perfect wingback chair for your home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wingback-Chair-With-Arms.md) 
 
 
 ### Types of Materials for Tufted Wingback Chairs
 
-When choosing a tufted wingback chair, it's essential to consider the materials used in its construction. Some popular options include leather, upholstery, and hardwood/metal frames. Leather is a durable choice, providing both comfort and a luxurious look. Upholstered chairs are more budget-friendly and offer a wide range of colors and patterns. [Hardwood/metal frame chairs are a great option for those looking for a sturdier piece with a timeless look.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Metal-Chairs.md) 
+When choosing a tufted wingback chair, it's essential to consider the materials used in its construction. Some popular options include leather, upholstery, and hardwood/metal frames. Leather is a durable choice, providing both comfort and a luxurious look. Upholstered chairs are more budget-friendly and offer a wide range of colors and patterns. [Hardwood/metal frame chairs are a great option for those looking for a sturdier piece with a timeless look.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Metal-Chairs.md) 
 
 
 ### Comfort and Support

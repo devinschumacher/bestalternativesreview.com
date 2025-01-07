@@ -134,7 +134,7 @@ Another thing that surprised me was the ease of assembly, as I was able to put t
 
 The main downside I've experienced is a lack of durability; the velvet fabric appears to attract lint, and I've noticed it wear down faster than expected. This is not the best fit for someone who likes to keep their furniture around for a long time. 
 
-Overall, the Geller Modern Dining Chair has its pros and cons, and I believe it's a matter of personal preference and need. [If you're looking for a stylish, comfortable chair, this one might fit the bill, but if you're after something more durable, I would recommend looking elsewhere.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
+Overall, the Geller Modern Dining Chair has its pros and cons, and I believe it's a matter of personal preference and need. [If you're looking for a stylish, comfortable chair, this one might fit the bill, but if you're after something more durable, I would recommend looking elsewhere.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
 
 
 ### [OneVog Black Velvet Wingback Dining Chair Set of 2](https://serp.ly/@bar/amazon/Black+Velvet+Dining+Chairs?utm\_term=onevog-black-velvet-wingback-dining-chair-set-of-2)

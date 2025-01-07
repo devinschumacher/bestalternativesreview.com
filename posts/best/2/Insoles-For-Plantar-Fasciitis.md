@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md
 
 # Relief from Plantar Fasciitis -  Our Top 20 Insole Picks for Comfort and Support
 
-[Plantar fasciitis is a painful condition, but it doesn't have to inhibit your daily life.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) In this roundup, we'll explore the top insoles designed to provide relief and support for those suffering from plantar fasciitis, making your steps as comfortable as ever. 
+[Plantar fasciitis is a painful condition, but it doesn't have to inhibit your daily life.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Insoles-For-Plantar-Fasciitis.md) In this roundup, we'll explore the top insoles designed to provide relief and support for those suffering from plantar fasciitis, making your steps as comfortable as ever. 
 
 *As an Amazon Associate we earn from qualifying purchases.*
 
@@ -32,7 +32,7 @@ I must admit, I was initially skeptical about the effectiveness of these insoles
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Insoles+For+Plantar+Fasciitis?utm_term=customized-insoles-for-plantar-fasciitis-relief"><img alt="plantar-fasciitis-inserts-handcrafted-in-usa-by-corefit-custom-orthotics-dip-i-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/plantar-fasciitis-inserts-handcrafted-in-usa-by-corefit-custom-orthotics-dip-i-1/h=540,fit=pad,background=black"/></a></div>
 
-[A few months ago, I started experiencing excruciating pain on the bottom of my feet, and after consulting with a podiatrist, I was diagnosed with plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Walking-Shoes-For-Plantar-Fasciitis.md) My podiatrist recommended custom orthotics, but the price tag was steep. That's when I stumbled upon these handcrafted inserts by Corefit Custom Orthotics. 
+[A few months ago, I started experiencing excruciating pain on the bottom of my feet, and after consulting with a podiatrist, I was diagnosed with plantar fasciitis.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Walking-Shoes-For-Plantar-Fasciitis.md) My podiatrist recommended custom orthotics, but the price tag was steep. That's when I stumbled upon these handcrafted inserts by Corefit Custom Orthotics. 
 
 The first thing that impressed me was the affordability. These inserts are a fraction of the cost of conventional custom orthotics, which usually sell for over $200 a pair. What's more, they offer the same level of customizable comfort to foot pain sufferers, like me, for just $29.2 a pair. 
 

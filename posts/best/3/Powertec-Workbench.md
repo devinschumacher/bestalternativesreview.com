@@ -169,7 +169,7 @@ The Powertec Streamline Utility Bench is a solid addition to any home gym. I've 
 
 One downside is that it doesn't come with many accessories, but for the price, I can't complain. I've found that it can handle quite the load - up to 600 lbs. which is impressive. And the best part? It's surprisingly lightweight compared to similar models, making it perfect for anyone with space constraints. 
 
-Despite its economical price point, the Streamline Utility Bench remains strong and stable, providing a reliable workout experience. [It might not be the flashiest bench on the market, but if you're looking for a solid, user-friendly addition to your home gym, this is it.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Weight-Benches.md) 
+Despite its economical price point, the Streamline Utility Bench remains strong and stable, providing a reliable workout experience. [It might not be the flashiest bench on the market, but if you're looking for a solid, user-friendly addition to your home gym, this is it.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Weight-Benches.md) 
 
 
 ### [12.5-inch 15 Amp Portable Benchtop Planer for DIY Woodworking](https://serp.ly/@bar/amazon/Powertec+Workbench?utm\_term=12-5-inch-15-amp-portable-benchtop-planer-for-diy-woodworking)

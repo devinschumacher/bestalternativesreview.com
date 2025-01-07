@@ -111,7 +111,7 @@ Designed with comfort in mind, these chairs have a contoured seat and back, enha
 
 I recently tried the Haddie molded plastic dining chair set from Safavieh, and I was pleasantly surprised. The timeless style with a touch of sophistication made me feel like I was sitting in a classy mid-century cafe. 
 
-The white molded plastic seat was comfortable and provided a wonderful contrast to the solid natural wood legs. However, I did find the assembly process to be a bit challenging, so be prepared for that. [Overall, I'd say the stylish and versatile design, combined with the classic yet modern vibes, makes this set worth considering for your dining area.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/8-Piece-Dining-Set.md) 
+The white molded plastic seat was comfortable and provided a wonderful contrast to the solid natural wood legs. However, I did find the assembly process to be a bit challenging, so be prepared for that. [Overall, I'd say the stylish and versatile design, combined with the classic yet modern vibes, makes this set worth considering for your dining area.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/8-Piece-Dining-Set.md) 
 
 
 ### [CozyBlock Molded Plastic Dining Side Chair with Futuristic Eiffel Tower Legs in Dark Gray](https://serp.ly/@bar/amazon/Plastic+Chairs?utm\_term=cozyblock-molded-plastic-dining-side-chair-with-futuristic-eiffel-tower-legs-in-dark-gray)
@@ -370,7 +370,7 @@ The Rae dining chair set is my new go-to for hosting family gatherings and enter
 
 With a stackable design, it's easy to organize and store away when not in use. It's a shame that they're only made for indoor use, but I can see how the color would fade away in the sun. 
 
-[The curved backrest provides the perfect amount of support while still looking stylish, and the airy cut-outs make the chairs even more welcoming.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Curved-Back-Sofa.md) Overall, the Rae set is a flexible, modern addition to my dining space. 
+[The curved backrest provides the perfect amount of support while still looking stylish, and the airy cut-outs make the chairs even more welcoming.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Curved-Back-Sofa.md) Overall, the Rae set is a flexible, modern addition to my dining space. 
 
 
 ### [Mainstays Premium Folding Chairs 4-Pack White](https://serp.ly/@bar/amazon/Plastic+Chairs?utm\_term=mainstays-premium-folding-chairs-4-pack-white)
@@ -423,7 +423,7 @@ But overall, their stylish design and durability have made them a worthwhile add
 
 I recently got my hands on the Jeco F-SF015 Clear Plastic Chair and I must say, it's a game-changer for modern living. The chair isn't just practical; it's a stylish addition to any room. The clear color blends seamlessly with any decor, while its plastic build ensures durability, making it suitable for both indoor and outdoor use. 
 
-[One of the coolest features of this chair is its ergonomic design that provides superior comfort.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Herman-Miller-Embody.md) The armrests give it a touch of elegance and convenience. However, I did notice that it needs to be kept out of direct sunlight when not in use to prevent discoloration. 
+[One of the coolest features of this chair is its ergonomic design that provides superior comfort.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Herman-Miller-Embody.md) The armrests give it a touch of elegance and convenience. However, I did notice that it needs to be kept out of direct sunlight when not in use to prevent discoloration. 
 
 In terms of specs, the Jeco F-SF015 Clear Plastic Chair weighs 25 lbs and can support a weight capacity of up to 250 pounds. It's available in sets of two and comes in an amber frame finish. Overall, this chair is a great investment for anyone looking to add a touch of modern style and practicality to their living space. 
 

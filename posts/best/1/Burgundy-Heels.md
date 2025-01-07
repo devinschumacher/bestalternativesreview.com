@@ -117,7 +117,7 @@ Remember, it's always a good idea to check the size guide or consult customer re
 
 Bring a touch of elegance to every step with the Wallis Burgundy Diamante Embellished Stiletto Sandals. These eye-catching stilettos boast a pointed design, a luxe velvet upper, and a metallic leatherette lining, ensuring both comfort and style. With their crystallized detailing, they're the perfect addition to any party or special occasion outfit. 
 
-[As a bonus, these versatile sandals can be easily transformed into a lace-up high-heeled sandal when you're ready for a different look - a true two-in-one deal!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Leopard-Sandal-Heels.md) 
+[As a bonus, these versatile sandals can be easily transformed into a lace-up high-heeled sandal when you're ready for a different look - a true two-in-one deal!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Leopard-Sandal-Heels.md) 
 
 
 ### [Rag & Co Rag Charm Burgundy Heels Stiletto Size 5](https://serp.ly/@bar/amazon/Burgundy+Heels?utm\_term=rag-co-rag-charm-burgundy-heels-stiletto-size-5)

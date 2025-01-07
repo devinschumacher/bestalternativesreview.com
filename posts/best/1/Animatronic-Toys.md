@@ -58,7 +58,7 @@ Introducing the adorable and interactive Mama Surprise guinea pig from Little Li
 
 With the correct care, Mama's heart will glow, signaling the arrival of her baby guinea pig(s). The hutch features a handle for easy carrying and transport. Plus, with two different speed settings, the babies will either arrive within two days or in just 30 minutes. 
 
-As a bonus, each baby arrives with a cute outfit to dress them up. [This magical experience can be repeated time and time again, making it the perfect addition to your little one's collection of interactive toys.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Imagination-Toys.md) 
+As a bonus, each baby arrives with a cute outfit to dress them up. [This magical experience can be repeated time and time again, making it the perfect addition to your little one's collection of interactive toys.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Imagination-Toys.md) 
 
 
 ### [Power Puppy: Programmable Animatronic Robot Dog with Remote Control and Training Features](https://serp.ly/@bar/amazon/Animatronic+Toys?utm\_term=power-puppy-programmable-animatronic-robot-dog-with-remote-control-and-training-features)
@@ -140,7 +140,7 @@ For little adventurers, the Sven Reindeer from Frozen 2 is a must-have playmate!
 
 While the toy is a bit pricey at original $89, it's built to withstand a lot of playtime – its load capacity is 30 kg, and it's suitable for children as young as 3 years old. Just be sure to grab two LR6/AA batteries before your child starts playing! 
 
-Overall, Sven Reindeer is a great addition to any Frozen-loving child's toy collection. [Although it doesn't have all the bells and whistles some parents may have hoped for, it's still a fun and engaging toy that can inspire hours of imaginative play.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
+Overall, Sven Reindeer is a great addition to any Frozen-loving child's toy collection. [Although it doesn't have all the bells and whistles some parents may have hoped for, it's still a fun and engaging toy that can inspire hours of imaginative play.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
 
 
 ### [FurReal Newborns Bear Interactive Animatronic Plush Toy](https://serp.ly/@bar/amazon/Animatronic+Toys?utm\_term=furreal-newborns-bear-interactive-animatronic-plush-toy)
@@ -244,7 +244,7 @@ The Dog-E came with some fun interactive games that kept my daughter entertained
 
 Experience the thrill of the Jurassic World with the Real FX Baby Blue, a life-sized, hyper-realistic dino animatronic toy that's perfect for any fan of the blockbuster film franchise. With its built-in sound system and realistic movements, this animatronic toy captures the essence of Blue, a Velociraptor known for its high intelligence and incredible speed. 
 
-[Designed with meticulous attention to detail, this animatronic toy is not only a fun addition to any collection, but also a fantastic way to engage kids and adults alike in the world of dinosaurs.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Jurassic-World-Ankylosaurus-Toy.md) The included controller lets you manipulate Baby Blue's movements, making it seem as if it's alive, while its various sounds and lifelike animations create an immersive and engaging experience for users of all ages. 
+[Designed with meticulous attention to detail, this animatronic toy is not only a fun addition to any collection, but also a fantastic way to engage kids and adults alike in the world of dinosaurs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Jurassic-World-Ankylosaurus-Toy.md) The included controller lets you manipulate Baby Blue's movements, making it seem as if it's alive, while its various sounds and lifelike animations create an immersive and engaging experience for users of all ages. 
 
 With its impressive realism and dynamic features, the Real FX Baby Blue is sure to become a favorite among dinosaur enthusiasts and Jurassic World fans alike. 
 

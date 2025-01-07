@@ -180,7 +180,7 @@ Overall, the Los Angeles Dodgers Cody Bellinger City Connect Replica Jersey has 
 
 Show off your love for the Houston Astros with this sleek Nike Men's Jose Altuve Navy Houston Astros City Connect Replica Player Jersey. Crafted with 100% polyester mesh, this lightweight top will keep you cool during your favorite team's games. Fans will appreciate the vibrant printed design that mimics the jersey worn by second baseman Jose Altuve, adding an authentic touch to your Astros pride. 
 
-While some may find the size slightly larger than expected, the overall fit is comfortable and true to size. [Users rave about the jersey's quality and design, making it a top choice for any sports enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Ajax-Jersey.md) 
+While some may find the size slightly larger than expected, the overall fit is comfortable and true to size. [Users rave about the jersey's quality and design, making it a top choice for any sports enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Ajax-Jersey.md) 
 
 
 ### [Nike Seiya Suzuki City Connect Script Jerseys for Young Baseball Fans](https://serp.ly/@bar/amazon/City+Connect+Jerseys?utm\_term=nike-seiya-suzuki-city-connect-script-jerseys-for-young-baseball-fans)
@@ -231,7 +231,7 @@ I recently got my hands on this Men's Nike Tim Anderson Black Chicago White Sox 
 
 One of the highlights of this jersey is the material, a 100% polyester, which ensures a comfortable fit. It also makes cleaning a breeze, so no more hand-washing necessary! The machine wash feature is a game-changer and a true lifesaver. 
 
-However, one minor downside is the weight of the jersey - it's a little heavier than I expected at 0.45 kg. But overall, this jersey hits all the right spots and embodies the spirit of the Southside. [If you're a die-hard fan and want to proudly represent your team, this Nike gear is an excellent choice.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Nike-Soccer-Jerseys.md) 
+However, one minor downside is the weight of the jersey - it's a little heavier than I expected at 0.45 kg. But overall, this jersey hits all the right spots and embodies the spirit of the Southside. [If you're a die-hard fan and want to proudly represent your team, this Nike gear is an excellent choice.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Nike-Soccer-Jerseys.md) 
 
 
 ### [Los Angeles Dodgers City Connect Replica Jersey for Loyal Fans](https://serp.ly/@bar/amazon/City+Connect+Jerseys?utm\_term=los-angeles-dodgers-city-connect-replica-jersey-for-loyal-fans)

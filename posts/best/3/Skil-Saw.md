@@ -43,7 +43,7 @@ As a DIY enthusiast, I've found the Skil PWR Core 20 Brushless to be an invaluab
 
 What really sets this saw apart though, is its ultra-thin carbide-tipped blade. It's incredible how precise and accurate the cuts have been - a game-changer for my home projects. 
 
-Though it's lightweight, some users have noted that it seems to lack the oomph of larger, more powerful models, but for the size and the efficiency it offers, I'm willing to overlook that minor drawback. [All in all, this little saw has made a big difference in my DIY tasks, and I highly recommend it.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mitre-Saw.md) 
+Though it's lightweight, some users have noted that it seems to lack the oomph of larger, more powerful models, but for the size and the efficiency it offers, I'm willing to overlook that minor drawback. [All in all, this little saw has made a big difference in my DIY tasks, and I highly recommend it.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mitre-Saw.md) 
 
 
 ### [Skilsaw SPT99T-01 Portable Worm Drive Table Saw](https://serp.ly/@bar/amazon/Skil+Saw?utm\_term=skilsaw-spt99t-01-portable-worm-drive-table-saw)

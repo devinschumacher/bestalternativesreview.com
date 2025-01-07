@@ -51,7 +51,7 @@ Despite their high-quality design, these wheels are surprisingly affordable, mak
 
 One of the best features of these wheels is their customizability, fitting both front and rear wheel placements and offering a comfortable 18mm offset. The wheel placement is versatile enough for any driving style, which was a pleasant surprise. 
 
-However, the installation process was a bit challenging, especially for someone who doesn't do it regularly. I would recommend seeking professional help for the best results. [Overall, the Hardcore Wheels are an impressive addition to any vehicle, offering both visual appeal and a touch of luxury.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hardcore-Wheels.md) 
+However, the installation process was a bit challenging, especially for someone who doesn't do it regularly. I would recommend seeking professional help for the best results. [Overall, the Hardcore Wheels are an impressive addition to any vehicle, offering both visual appeal and a touch of luxury.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hardcore-Wheels.md) 
 
 
 ### [RTX Claw 20x9 8x170 ET0 CB125.1 Gloss Black Hardcore Wheels](https://serp.ly/@bar/amazon/Hardcore+Wheels?utm\_term=rtx-claw-20x9-8x170-et0-cb125-1-gloss-black-hardcore-wheels)

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Mini-Keurig.md
 
 # Coffee on the Go -  Top 26 Mini Keurig Models for Your Busy Life
 
-[Get ready to experience the convenience of a home coffee maker in a compact size with our roundup of the best](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Keurig.md) [Mini Keurig](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Keurig.md) models. From space-saving designs to top-notch performance, we've got you covered in our comprehensive guide on the perfect brewer for your kitchen. 
+[Get ready to experience the convenience of a home coffee maker in a compact size with our roundup of the best](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mini-Keurig.md) [Mini Keurig](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Keurig.md) models. From space-saving designs to top-notch performance, we've got you covered in our comprehensive guide on the perfect brewer for your kitchen. 
 
 *As an Amazon Associate I earn through qualifying purchases*
 

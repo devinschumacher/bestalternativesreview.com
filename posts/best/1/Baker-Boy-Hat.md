@@ -165,7 +165,7 @@ The VOBOOM Mens Herringbone Flat Ivy Newsboy Hat is a statement piece, perfect f
 
 ## Buyer's Guide
 
-A Baker Boy Hat, also known as a dicky bow or a knicker boiner, is a classic piece of headwear that has been around for centuries. [These hats are designed to be versatile, stylish, and suitable for various occasions.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Wide-Brim-Straw-Hat.md) Whether you're looking to add a touch of sophistication to your outfit or simply want to make a fashion statement, this buyer's guide will help you find the perfect Baker Boy Hat for your needs. 
+A Baker Boy Hat, also known as a dicky bow or a knicker boiner, is a classic piece of headwear that has been around for centuries. [These hats are designed to be versatile, stylish, and suitable for various occasions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wide-Brim-Straw-Hat.md) Whether you're looking to add a touch of sophistication to your outfit or simply want to make a fashion statement, this buyer's guide will help you find the perfect Baker Boy Hat for your needs. 
 
 
 ### Materials

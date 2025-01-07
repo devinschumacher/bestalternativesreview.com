@@ -281,7 +281,7 @@ When searching for a Venom Spider-Man toy, consider the following features to en
 
 [Venom Spider Man toys](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Venom-Spider-Man-Toys.md) are generally suitable for children ages 6 and above. However, it is always recommended to check the specific product's age recommendations before purchasing, as some may have different age restrictions. These toys often come with small parts, so they may not be safe for younger children. 
 
-Additionally, children should be able to handle and play with these toys independently, without the risk of breaking or choking on small pieces. Always supervise young children while they play to ensure their safety and enjoyment of the Venom Spider Man toys. [Make sure to choose a toy that is age-appropriate and suitable for a child's interests and skill level.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Little-People-Toys.md) 
+Additionally, children should be able to handle and play with these toys independently, without the risk of breaking or choking on small pieces. Always supervise young children while they play to ensure their safety and enjoyment of the Venom Spider Man toys. [Make sure to choose a toy that is age-appropriate and suitable for a child's interests and skill level.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Little-People-Toys.md) 
 
 
 ### What types of Venom Spider Man toys are available on the market?

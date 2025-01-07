@@ -138,7 +138,7 @@ As a lover of sketching and doodling, I recently had the pleasure of using the D
 
 The lightweight design with coded cap and pocket clip made it easy to use, and the durable nibs withstood firm pressure without bending tips, ensuring consistent ink flow and crisp ink color. The water-resistant pigment ink was a game-changer, as I could use it on different surfaces without smudging, smearing, or fading. 
 
-It was even photocopy safe, which was a great bonus when sharing my work with others. [These pens were a fantastic addition to my sketching arsenal, and I highly recommend them to all types of artists - they're a must-have for creating beautiful, clean lines and outlines.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Drawing-Pens.md) Plus, their sleek design and wide range of tip sizes make them a perfect gift for any occasion. 
+It was even photocopy safe, which was a great bonus when sharing my work with others. [These pens were a fantastic addition to my sketching arsenal, and I highly recommend them to all types of artists - they're a must-have for creating beautiful, clean lines and outlines.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Drawing-Pens.md) Plus, their sleek design and wide range of tip sizes make them a perfect gift for any occasion. 
 
 
 ### [GCVOPTON Dual Brush Marker Pens for Artists](https://serp.ly/@bar/amazon/Drawing+Pens?utm\_term=gcvopton-dual-brush-marker-pens-for-artists)

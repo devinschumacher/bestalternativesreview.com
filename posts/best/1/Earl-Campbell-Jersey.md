@@ -79,7 +79,7 @@ A must-have for any fan celebrating this NFL Hall of Famer.
 
 Experience the greatness of Earl Campbell with this Nike Oilers Throwback Retired Player Game Jersey. This jersey pays homage to one of the most legendary players in Tennessee Titans history with its "Luv ya Blue! " graphic and intricate detailing. 
 
-Designed for movement, the jersey features heat-sealed name, numbers, and team details, as well as mesh side panels for added breathability. [Showcasing a high-quality, sustainable fabric that's both comfortable and stylish, this light blue jersey is a must-have for any passionate Tennessee Titans fan.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Titans-Jersey.md) Bonus features include an NFL Shield and satin twill woven jock tag for an authentic touch. 
+Designed for movement, the jersey features heat-sealed name, numbers, and team details, as well as mesh side panels for added breathability. [Showcasing a high-quality, sustainable fabric that's both comfortable and stylish, this light blue jersey is a must-have for any passionate Tennessee Titans fan.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Titans-Jersey.md) Bonus features include an NFL Shield and satin twill woven jock tag for an authentic touch. 
 
 
 ### [Retro Houston Oilers Earl Campbell Legacy Women's Jersey](https://serp.ly/@bar/amazon/Earl+Campbell+Jersey?utm\_term=retro-houston-oilers-earl-campbell-legacy-womens-jersey)
@@ -124,7 +124,7 @@ This V-neck jersey offers a decent appearance, perfect for showing off your fand
 
 This Mitchell & Ness Earl Campbell Chainstitch Legacy Jersey is perfect for any sports enthusiast who wants to pay homage to their favorite player from the Houston Oilers era. The jersey is meticulously crafted with intricate attention to detail, evoking the timeless charm of the Oilers' franchise from the past. 
 
-[Fans will appreciate the premium quality of the jersey and the authentic stitching that brings the legendary team's legacy to life in a fashionable way.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Retro-Jerseys.md) 
+[Fans will appreciate the premium quality of the jersey and the authentic stitching that brings the legendary team's legacy to life in a fashionable way.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Retro-Jerseys.md) 
 
 
 ### [Earl Campbell Authentic 1980 Houston Oilers Jersey](https://serp.ly/@bar/amazon/Earl+Campbell+Jersey?utm\_term=earl-campbell-authentic-1980-houston-oilers-jersey)

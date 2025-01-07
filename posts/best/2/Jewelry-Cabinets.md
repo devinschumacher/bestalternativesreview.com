@@ -63,7 +63,7 @@ For the most part though, I've been quite happy with this armoire. It provides p
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Jewelry+Cabinets?utm_term=hives-and-honey-espresso-jewelry-cabinet"><img alt="hives-and-honey-hannah-espresso-jewelry-armoire-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/hives-and-honey-hannah-espresso-jewelry-armoire-brown-1/h=540,fit=pad,background=black"/></a></div>
 
-[As a jewelry enthusiast, I've always been on the lookout for a beautiful and functional piece that can store my precious accessories.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Jewelry-Stand.md) Hives and Honey's Hannah Espresso Jewelry Armoire certainly caught my eye with its elegant French-inspired design and modern espresso finish. 
+[As a jewelry enthusiast, I've always been on the lookout for a beautiful and functional piece that can store my precious accessories.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Jewelry-Stand.md) Hives and Honey's Hannah Espresso Jewelry Armoire certainly caught my eye with its elegant French-inspired design and modern espresso finish. 
 
 The anti-tarnish felt lining was a game-changer for me, as it provided an extra layer of protection to my jewelry. The faceted jewel-like drawer pulls added a luxurious touch to the armoire, making it stand out. 
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Potty-Training-Seat.md
 
 # Potty Training Made Easy -  49 Best Potty Training Seats for Smooth Transitions
 
-[Having a toddler transition from diapers to the potty can be a joyful and challenging journey.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potty-Training-Seat.md) One of the most essential tools in this process is finding the right [potty training seat](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potty-Training-Seat.md). In this roundup, we'll explore the top potty training seats on the market, offering a selection of comfortable, practical, and easy-to-clean options for your little one's potty training success. 
+[Having a toddler transition from diapers to the potty can be a joyful and challenging journey.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Potty-Training-Seat.md) One of the most essential tools in this process is finding the right [potty training seat](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potty-Training-Seat.md). In this roundup, we'll explore the top potty training seats on the market, offering a selection of comfortable, practical, and easy-to-clean options for your little one's potty training success. 
 
 *As an Amazon Affiliate™, I receive compensation through qualifying purchases at no cost to you*
 
@@ -302,7 +302,7 @@ The Sesame Street 3-in-1 potty chair is a fun and functional addition to any pot
 
 It is incredibly versatile, serving as a standalone potty, training seat for an adult-sized toilet, and a step stool for reaching the sink or toilet. The potty chair includes a pretend flush handle with fun sounds and Cookie Monster's encouragement to make potty time enjoyable for children. Parents will appreciate the easy, one-hand removal of the waste cup, as well as the removable potty training toilet seat and step stool for a smooth transition to an adult toilet seat. 
 
-[Overall, this potty chair offers a fun and practical approach to potty training, making it a must-have for any parent.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Potty-Chair.md) 
+[Overall, this potty chair offers a fun and practical approach to potty training, making it a must-have for any parent.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Potty-Chair.md) 
 
 
 ### [GrowthPic Comfortable Toddler Potty Training Seat Ladder for Girls](https://serp.ly/@bar/amazon/Potty+Training+Seat?utm\_term=growthpic-comfortable-toddler-potty-training-seat-ladder-for-girls)

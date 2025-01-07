@@ -21,7 +21,7 @@ Looking for a sleek and stylish addition to your workspace? Look no further than
 
 Transform your workspace into a sophisticated haven with the Chrome & Glass Writing Desk. Its timeless charm emanates from the meticulously crafted plated metal tube structure, which showcases a subtle airiness. The beveled frameless glass top enhances the minimalist vibe, making it an ideal addition to both small and spacious interiors. 
 
-One of the unique features of this desk is the floating glass shelves that provide ample storage options. The pristine all-glass form radiates elegance, further elevating the style of your home office or living room. [This sleek writing desk is not only functional but also aesthetically pleasing, making it a fantastic choice for any workspace.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Corner-Writing-Desk.md) 
+One of the unique features of this desk is the floating glass shelves that provide ample storage options. The pristine all-glass form radiates elegance, further elevating the style of your home office or living room. [This sleek writing desk is not only functional but also aesthetically pleasing, making it a fantastic choice for any workspace.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Corner-Writing-Desk.md) 
 
 The Chrome & Glass Writing Desk boasts a spacious workspace with two fixed shelves, ensuring you have enough room for your daily work. The smooth, tempered glass top doubles as a dry erase board, granting you the flexibility to jot down important notes or creative ideas. 
 
@@ -47,7 +47,7 @@ I recently got my hands on this Clear Glass Desk with Chrome Base - T8107-S, and
 
 One of the things that stood out most about this desk was how sturdy it felt, despite its sleek appearance. The clear glass top made it feel lightweight yet sturdy, and the chrome base provided stability without being overbearing. 
 
-What really caught my attention was the size. [The desk was perfect for my small area, yet it still had plenty of space for my laptop, a notebook, and my cup of coffee.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Desk-With-Storage.md) Its compact yet functional design was a huge plus for me. 
+What really caught my attention was the size. [The desk was perfect for my small area, yet it still had plenty of space for my laptop, a notebook, and my cup of coffee.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Desk-With-Storage.md) Its compact yet functional design was a huge plus for me. 
 
 However, there was one downside I noticed. The desk didn't come with any built-in storage options, which could be a deal-breaker for some users. But, overall, this Clear Glass Desk with Chrome Base is a great addition to any workspace, and it's worth considering for its stylish design and sturdy build. 
 
@@ -80,7 +80,7 @@ As a seasoned home worker, I was excited to try out the Fiona Glass Desk from Ur
 
 The assembly process was a bit challenging, and I did find myself frustrated with the lack of clear instructions. However, once I got through the initial setup, the sturdiness of the desk was evident, and I felt confident in its ability to hold up my laptop and other essentials. 
 
-[Though a bit heavy to maneuver alone, the desk itself is incredibly elegant and stylish, making it a worthwhile addition to any office space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Desks.md) The transparency of the acrylic also allows for a unique workspace experience, as I can easily see my work in progress. 
+[Though a bit heavy to maneuver alone, the desk itself is incredibly elegant and stylish, making it a worthwhile addition to any office space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desks.md) The transparency of the acrylic also allows for a unique workspace experience, as I can easily see my work in progress. 
 
 Despite the small inconvenience of assembly, I'm happy with my investment in the Fiona Glass Desk. It's an eye-catching and functional piece that elevates my workspace and adds a touch of sophistication to my daily routine. 
 
@@ -262,7 +262,7 @@ Petite glass desks are usually crafted from tempered glass, which is stronger an
 
 ### Design and Style
 
-A petite glass desk can elevate the aesthetic of your workspace or living space. You can choose from a range of designs, such as simple and contemporary or ornate and vintage. Do not forget to consider harmonizing the overall style of the room with a desk that will look stunning in any setting. [Additionally, many petite glass desks come equipped with built-in storage solutions, making them a practical addition to your office or workspace.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Glass-Standing-Desk.md)
+A petite glass desk can elevate the aesthetic of your workspace or living space. You can choose from a range of designs, such as simple and contemporary or ornate and vintage. Do not forget to consider harmonizing the overall style of the room with a desk that will look stunning in any setting. [Additionally, many petite glass desks come equipped with built-in storage solutions, making them a practical addition to your office or workspace.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Glass-Standing-Desk.md)
 
 <div><a href="https://serp.ly/@bar/amazon/Small+Glass+Desk"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Small-Glass-Desk-3/h=540,fit=pad,background=black" alt="Small-Glass-Desk-3" height="540"></a></div>
 

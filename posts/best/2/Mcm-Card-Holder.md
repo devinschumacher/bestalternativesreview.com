@@ -25,7 +25,7 @@ Upon first impression, I was pleased with the quality of the leather. It's smoot
 
 However, there were some minor drawbacks. Firstly, I found the synthetic leather to be on the thinner side, which leaves me slightly concerned about its long-term durability. Secondly, I'm not a huge fan of the logo prominently displayed on the front. Although it's a signature feature, I personally prefer a more subtle branding. 
 
-[All in all, the MCM Card Holder in Cognac is an excellent addition to my accessory collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mcm-Card-Holder.md) It's stylish, functional, and compact, making it an ideal choice for those who prefer a minimalist yet luxurious style. Remember, this accessory isn't just about keeping your cards and bills organized, but also making a fashion statement wherever you go. 
+[All in all, the MCM Card Holder in Cognac is an excellent addition to my accessory collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mcm-Card-Holder.md) It's stylish, functional, and compact, making it an ideal choice for those who prefer a minimalist yet luxurious style. Remember, this accessory isn't just about keeping your cards and bills organized, but also making a fashion statement wherever you go. 
 
 
 ### [MCM Black Visetos Bifold Card Wallet with Nappa Leather Interior](https://serp.ly/@bar/amazon/Mcm+Card+Holder?utm\_term=mcm-black-visetos-bifold-card-wallet-with-nappa-leather-interior)
@@ -191,7 +191,7 @@ This Mcm wallet features a classic, rectangular design, crafted from a monogram-
 
 One of the highlights of this wallet is its convenient size, making it easy to carry around the city. However, it's worth mentioning that there may be some exceptions to this rule, so be sure to check the product description for any limitations. The Mcm wallet is available 24/7 through DeinDeal, and customers can enjoy new exclusive offers and items on a daily basis across different channels. 
 
-Users of this Mcm wallet have had nothing but positive experiences, with a 4.9-star rating based on 21 reviews. [With excellent quality and packaging, this wallet makes for a great gift or addition to any fashion-savvy person's collection.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Calvin-Klein-Wallet.md) 
+Users of this Mcm wallet have had nothing but positive experiences, with a 4.9-star rating based on 21 reviews. [With excellent quality and packaging, this wallet makes for a great gift or addition to any fashion-savvy person's collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Calvin-Klein-Wallet.md) 
 
 
 ### [MCM Men's Logo Card Case - Brown Leather](https://serp.ly/@bar/amazon/Mcm+Card+Holder?utm\_term=mcm-mens-logo-card-case-brown-leather)

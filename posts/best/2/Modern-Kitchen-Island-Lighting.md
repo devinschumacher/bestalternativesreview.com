@@ -19,7 +19,7 @@ Transform your kitchen into a sophisticated and inviting space with our selectio
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Modern+Kitchen+Island+Lighting?utm_term=modern-linear-black-kitchen-island-light-add-style-to-your-cooking-space"><img alt="modern-linear-black-kitchen-island-light-6-light-square-pendant-light-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/modern-linear-black-kitchen-island-light-6-light-square-pendant-light-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Modern Linear Black Kitchen Island Light is a stylish and functional addition to any kitchen or dining space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Modern-Kitchen-Island-Lighting.md) Featuring a rectangular base and six black square-shaped shades, this 6-light pendant light is crafted with quality materials including metal and acrylic. Each of the six fixtures can accommodate a 60W bulb (not included), providing bright and beautiful lighting for your space. 
+[The Modern Linear Black Kitchen Island Light is a stylish and functional addition to any kitchen or dining space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Kitchen-Island-Lighting.md) Featuring a rectangular base and six black square-shaped shades, this 6-light pendant light is crafted with quality materials including metal and acrylic. Each of the six fixtures can accommodate a 60W bulb (not included), providing bright and beautiful lighting for your space. 
 
 The adjustable 71" wire allows for a customized height to suit your needs, making it a versatile choice for any setting. While professional installation is recommended, the fixture is designed for hard-wiring, ensuring a secure and robust setup. Overall, this Modern Linear Black Kitchen Island Light is a brilliant choice for those seeking both style and functionality in their home. 
 
@@ -186,7 +186,7 @@ I recently had the chance to try out the Boston 2-Light Gold Kitchen Island chan
 
 It's not just functional, but also a beautiful statement piece. The lamp body made of high-quality gold metal definitely stands out as a high-end, unique design. But the best part? 
 
-It's both energy-efficient and easy on the eyes with its integrated LED. [Overall, this chandelier is not just a practical addition to your home, but also a true piece of art.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Luxury-Chandelier.md) It adds a sense of sophistication and style that is unmatched in other lighting fixtures. 
+It's both energy-efficient and easy on the eyes with its integrated LED. [Overall, this chandelier is not just a practical addition to your home, but also a true piece of art.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Luxury-Chandelier.md) It adds a sense of sophistication and style that is unmatched in other lighting fixtures. 
 
 
 ### [Twig Chandelier: Stylish Farmhouse Light Fixture for Dining Rooms](https://serp.ly/@bar/amazon/Modern+Kitchen+Island+Lighting?utm\_term=twig-chandelier-stylish-farmhouse-light-fixture-for-dining-rooms)
@@ -221,7 +221,7 @@ As a fan of vintage style, I was excited to try out the Wochos Retro Industrial 
 
 However, there were a couple of drawbacks I encountered. Firstly, the chandelier is not compatible with dimmable bulbs, which can be a downside for those who prefer to adjust the lighting as per their mood. Additionally, the installation process took longer than expected, despite the inclusion of clear instructions. 
 
-[Despite these minor issues, overall, I enjoyed using the Wochos Retro Industrial Metal and Wood Chandelier and feel it would be a great fit for anyone looking to add a touch of rustic charm to their living space.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mid-Century-Modern-Chandelier.md) 
+[Despite these minor issues, overall, I enjoyed using the Wochos Retro Industrial Metal and Wood Chandelier and feel it would be a great fit for anyone looking to add a touch of rustic charm to their living space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mid-Century-Modern-Chandelier.md) 
 
 
 ## Buyer's Guide

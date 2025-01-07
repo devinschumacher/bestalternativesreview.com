@@ -84,7 +84,7 @@ But that's not all, the Jugs Machine also offers a variety of pitches to choose 
 
 As for the defensive drills, I was surprised by how the Jugs Machine managed to simulate ground balls, pop-ups, and line drives. It was like having a real player on the field with me! 
 
-Weighing in at 75 lbs. [, the Jugs Machine is a sturdy piece of equipment.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Juggs-Machine.md) I was relieved to find that it could run on 110-volt AC or even a 2000-watt Yamaha EF2000iS generator, giving me the flexibility to use it anywhere. 
+Weighing in at 75 lbs. [, the Jugs Machine is a sturdy piece of equipment.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Juggs-Machine.md) I was relieved to find that it could run on 110-volt AC or even a 2000-watt Yamaha EF2000iS generator, giving me the flexibility to use it anywhere. 
 
 In conclusion, the Jugs ChangeUp Super Softball Pitching Machine M1251 is a fantastic product for baseball enthusiasts, offering a variety of pitch types and drills. It's user-friendly, sturdy, and versatile, making it the perfect addition to any training regimen. 
 

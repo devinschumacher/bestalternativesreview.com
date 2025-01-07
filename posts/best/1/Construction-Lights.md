@@ -223,7 +223,7 @@ The LED life cycles of up to 50,000 hours are impressive, and the color temperat
 
 However, I've found that the light source needs AA batteries, which isn't the most environmentally friendly option. But you can easily replace these with rechargeable batteries for a more sustainable solution. The magnet is strong, but I've noticed it struggles with holding the weight of the light at times. 
 
-Overall, the Koda Portable LED Work Light is a fantastic piece of equipment for any workspace. It's versatile, bright, and offers multiple mounting options, making it perfect for indoor and outdoor use. [I highly recommend considering this product if you're looking for a high-quality, portable lighting solution.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Voltage-Lighting.md) 
+Overall, the Koda Portable LED Work Light is a fantastic piece of equipment for any workspace. It's versatile, bright, and offers multiple mounting options, making it perfect for indoor and outdoor use. [I highly recommend considering this product if you're looking for a high-quality, portable lighting solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Voltage-Lighting.md) 
 
 
 ### [Stanley Sat3s Satellite Rechargeable LED Work Light](https://serp.ly/@bar/amazon/Construction+Lights?utm\_term=stanley-sat3s-satellite-rechargeable-led-work-light)
@@ -236,7 +236,7 @@ This work light truly shines with its remarkable 6-hour run time on a single cha
 
 The strong, magnetic base enables you to securely attach the light to metal surfaces, allowing you to freely focus on your task at hand. The Stanley Satellite even comes with a stowaway hang hook and power cord, making it effortless to transport or store when not in use. 
 
-While a small number of users have expressed concerns about battery life and durability, the majority of reviews praise the light's overall performance and ease of use. [The Stanley Satellite 300-lumen Rechargeable LED Work Light proves to be a dependable and versatile option for anyone seeking a powerful, portable work light.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rechargeable-Work-Light.md) Whether you're working in your garage, camping in the wilderness, or coping with power outages, the Stanley Satellite will have you well-lit and prepared to tackle any project.
+While a small number of users have expressed concerns about battery life and durability, the majority of reviews praise the light's overall performance and ease of use. [The Stanley Satellite 300-lumen Rechargeable LED Work Light proves to be a dependable and versatile option for anyone seeking a powerful, portable work light.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rechargeable-Work-Light.md) Whether you're working in your garage, camping in the wilderness, or coping with power outages, the Stanley Satellite will have you well-lit and prepared to tackle any project.
 
 
 ### [Collapsible LED Construction Work Light by Honeywell](https://serp.ly/@bar/amazon/Construction+Lights?utm\_term=collapsible-led-construction-work-light-by-honeywell)

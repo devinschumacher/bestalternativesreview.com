@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Death-Note-Shirt.md
 
 # Top Death Note Shirts to Showcase Your Style and Love for the Series
 
-Get ready to make a fashion statement with [Death Note Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Death-Note-Shirt.md)! [This article features a curated selection of Death Note-inspired shirts that will make any fan proud to wear their love for the series.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Death-Note-Shirt.md) From classic designs to creative twists, we've got you covered with our collection. Dive in and find the perfect shirt to showcase your passion for this iconic anime. 
+Get ready to make a fashion statement with [Death Note Shirt](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Death-Note-Shirt.md)! [This article features a curated selection of Death Note-inspired shirts that will make any fan proud to wear their love for the series.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Death-Note-Shirt.md) From classic designs to creative twists, we've got you covered with our collection. Dive in and find the perfect shirt to showcase your passion for this iconic anime. 
 
 *As an Amazon Affiliate™ we receive compensation through qualifying purchases!*
 

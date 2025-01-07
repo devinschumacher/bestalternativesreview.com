@@ -111,7 +111,7 @@ A superb mix of function and fun, the Mini Micro scooter is an investment worth 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Micro+Mini+Scooters?utm_term=micro-mini-deluxe-turquoise-scooter-for-kids"><img alt="micro-mini-deluxe-scooter-turquoise-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/micro-mini-deluxe-scooter-turquoise-1/h=540,fit=pad,background=black"/></a></div>
 
-The Micro Mini Deluxe Scooter, in its striking turquoise color, proved to be a delightful addition to our daily routine. [Made for children aged 2-5, this scooter is designed to provide endless fun and exercise.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kids-Scooter.md) With a weight capacity up to 75 lbs, the Deluxe can accommodate a child as they grow with its adjustable T-bar, which ranges from 17" to 25" from the deck. The scooter's lean-to-steer design allowed my little one to intuitively learn to lean into a turn, a skill that's essential for mastering various sports. 
+The Micro Mini Deluxe Scooter, in its striking turquoise color, proved to be a delightful addition to our daily routine. [Made for children aged 2-5, this scooter is designed to provide endless fun and exercise.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kids-Scooter.md) With a weight capacity up to 75 lbs, the Deluxe can accommodate a child as they grow with its adjustable T-bar, which ranges from 17" to 25" from the deck. The scooter's lean-to-steer design allowed my little one to intuitively learn to lean into a turn, a skill that's essential for mastering various sports. 
 
 I thoroughly appreciated the scooter's durability, which was put to the test as my child took it for a daily spin. Even when it was dragged, tossed, and left out in the rain, the Deluxe Mini remained intact. The safety certification by the CPSC and the option to add a helmet and knee pads for extra protection only added to my comfort as a parent. 
 
@@ -198,7 +198,7 @@ The high-quality and versatile Micro Mini Deluxe Scooter from Swiss manufacturer
 
 The Micro Mini Deluxe Scooter offers a T-bar that adjusts to accompany the growth of your child, coupled with a raised silicon deck for boosted stability. The anodized finish not only offers aesthetic appeal but also shields against corrosion. Its three-wheel configuration ensures remarkable balance and usability, making it optimal for fostering early motor skills development.
 
-[Made with durability in mind, the scooter boasts a lightweight structure and excellent maneuverability, making it suitable for regular usage.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mobility-Scooters.md) Furthermore, the extensive non-slip deck and low center of gravity ensure your child's safety during their scooter escapades.
+[Made with durability in mind, the scooter boasts a lightweight structure and excellent maneuverability, making it suitable for regular usage.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mobility-Scooters.md) Furthermore, the extensive non-slip deck and low center of gravity ensure your child's safety during their scooter escapades.
 
 The Micro Mini Deluxe Scooter is designed for children aged 2-5 years with a maximum weight capacity of 77.2 pounds. It arrives with a manufacturer's warranty for an extra layer of assurance. 
 
@@ -228,7 +228,7 @@ I recently got my hands on the Micro Sprite LED Neochrome Scooter, and let me te
 
 One of my favorite features is the smart LED wheels that use induction energy to create cool, bright white light as I ride. It even has a larger 120mm rear wheel for added speed, making it a real speed demon on the pavement. Speaking of speed, the neochrome design doesn't slow me down in the least, whether I'm cruising on smooth surfaces or tackling slightly gravelly ones. 
 
-Now, let's talk about the ease of use. The scooter has a firm yet simple folding system, making it super convenient for on-the-go storage and transport. [The kickstand is also a handy addition for when I need a quick break.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kickstands.md) 
+Now, let's talk about the ease of use. The scooter has a firm yet simple folding system, making it super convenient for on-the-go storage and transport. [The kickstand is also a handy addition for when I need a quick break.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kickstands.md) 
 
 However, one downside I discovered is the susceptibility of the neochrome finish to scratches. In my experience, it doesn't take much to mar the perfect shiny finish, which can be disappointing. But overall, the Micro Sprite LED Neochrome Scooter is a fantastic choice for a classic, stylish, and high-performance scooter that's perfect for both kids and adults alike. 
 

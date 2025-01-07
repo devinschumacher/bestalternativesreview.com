@@ -23,7 +23,7 @@ The Giro Cadet Cycling Shoe is a versatile and high-performance option for women
 
 Equipped with a Boa L6 dial and hook-and-loop strap, the Giro Cadet offers a secure fit and customizable tightness for optimal comfort. The carbon fiber reinforced plate sole ensures maximum power transfer to the pedals, reducing foot fatigue during interval sessions. Its compatibility with 2-bolt and 3-bolt cleats also allows for a variety of pedal options based on user needs. 
 
-[Designed to impress, the Giro Cadet Cycling Shoe offers style and practicality for cycling enthusiasts, catering to their needs for a comfortable and highly-functional road shoe option.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Giro-Cycling-Shoes.md) Although some users mention it runs a bit small, an adjustment in sizing typically resolves this issue. 
+[Designed to impress, the Giro Cadet Cycling Shoe offers style and practicality for cycling enthusiasts, catering to their needs for a comfortable and highly-functional road shoe option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Giro-Cycling-Shoes.md) Although some users mention it runs a bit small, an adjustment in sizing typically resolves this issue. 
 
 
 ### [Giro Women's Savix Cycling Shoes - Black Size 36](https://serp.ly/@bar/amazon/Giro+Cycling+Shoes?utm\_term=giro-womens-savix-cycling-shoes-black-size-36)

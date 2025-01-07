@@ -81,7 +81,7 @@ Its distinctive Giants design is sure to make you stand out from the crowd and s
 
 As a Giants fan, I decided to give this hoodie a try. My first impression was the softness of the midweight fleece and the brushed interior. The layered look really stood out with the twill appliques across the chest showing off official wordmarks and the team logo. I love rocking this hoodie to show off my support for the Giants! 
 
-However, I would recommend going a size down, as the '47 Brand suggests. [Other than that, this hoodie has been a comfortable addition to my casual wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cool-Hoodies.md) The blend of 80% cotton and 20% polyester made it easy to care for - just toss it in the wash and it's good to go. Overall, it's a great choice for any baseball fan looking to show off their love for the team in style. 
+However, I would recommend going a size down, as the '47 Brand suggests. [Other than that, this hoodie has been a comfortable addition to my casual wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cool-Hoodies.md) The blend of 80% cotton and 20% polyester made it easy to care for - just toss it in the wash and it's good to go. Overall, it's a great choice for any baseball fan looking to show off their love for the team in style. 
 
 
 ### [Antigua White Giants Logo Pullover Hoodie](https://serp.ly/@bar/amazon/Sf+Giants+Hoodie?utm\_term=antigua-white-giants-logo-pullover-hoodie)

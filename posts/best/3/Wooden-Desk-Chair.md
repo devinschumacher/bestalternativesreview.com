@@ -169,7 +169,7 @@ This pre-owned IDS Home Modern High Back Walnut Wood Office Chair boasts a sleek
 
 This modern and ergonomic office chair is a perfect addition to any home office setup. Crafted with a contemporary walnut wood design and black PU leather, it exudes a professional yet comfortable atmosphere. 
 
-Features like the adjustable height, 360-degree swivel function, and multidirectional wheel make it easy to customize to your needs. The bentwood backrest and high density cushion ensure support and comfort for long hours of use. However, it may not be the best choice for users who prefer a more traditional or minimalistic design. [Overall, this office chair is a great investment for those seeking both style and functionality in their home office furniture.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
+Features like the adjustable height, 360-degree swivel function, and multidirectional wheel make it easy to customize to your needs. The bentwood backrest and high density cushion ensure support and comfort for long hours of use. However, it may not be the best choice for users who prefer a more traditional or minimalistic design. [Overall, this office chair is a great investment for those seeking both style and functionality in their home office furniture.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Flash-Furniture-Office-Chair.md) 
 
 
 ## Buyer's Guide

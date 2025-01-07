@@ -23,7 +23,7 @@ The Bowery Hill Modern Round Coffee Table, featuring a stylish mirrored table to
 
 Featuring a black tempered glass shelf underneath, this coffee table is both aesthetically pleasing and practical, providing ample space for storage or display of your favorite decor. With a round design, it's an ideal choice for small spaces without compromising on style. 
 
-As an added convenience, the coffee table comes with a convenient assembly guide, making it easy for you to set up in your desired spot. [This gold coffee table promises to elevate your living space with its sleek and stylish modern design.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Gold-Coffee-Table.md) 
+As an added convenience, the coffee table comes with a convenient assembly guide, making it easy for you to set up in your desired spot. [This gold coffee table promises to elevate your living space with its sleek and stylish modern design.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gold-Coffee-Table.md) 
 
 
 ### [Rich Gold Marble Coffee Table by Meridian Furniture](https://serp.ly/@bar/amazon/Gold+Coffee+Table?utm\_term=rich-gold-marble-coffee-table-by-meridian-furniture)
@@ -39,7 +39,7 @@ However, my experience with it wasn't entirely positive. Upon delivery, I found 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Gold+Coffee+Table?utm_term=luxurious-moasis-gold-coffee-table-with-2-drawers"><img alt="moasis-47-wide-coffee-table-with-2-drawers-gold-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moasis-47-wide-coffee-table-with-2-drawers-gold-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently added the Moasis 47" Wide Coffee Table with 2 Drawers to my living room and I must say, it's a stunning addition.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Side-Table-With-Drawer.md) Not only does it look amazing with its mid-century modern design, intricately carved patterns, and unique semi-circular drawer handles, but it's also incredibly sturdy. The spacious top provides the perfect surface for my morning coffee and evening entertainment. 
+[I recently added the Moasis 47" Wide Coffee Table with 2 Drawers to my living room and I must say, it's a stunning addition.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Side-Table-With-Drawer.md) Not only does it look amazing with its mid-century modern design, intricately carved patterns, and unique semi-circular drawer handles, but it's also incredibly sturdy. The spacious top provides the perfect surface for my morning coffee and evening entertainment. 
 
 The coffee table is made of medium-density fiberboard and an iron frame, ensuring durability and stability. And the baked paint finish guarantees consistent colors both inside and out, adding to its aesthetic appeal. While the assembly did take a bit of time, the end result was worth it. 
 
@@ -204,7 +204,7 @@ The two-tier design provides plenty of storage space for magazines, snacks, and 
 
 One of the best features of this coffee table is its adjustable feet. It can be used even on uneven floors and the bottom has enough height distance from the floor to allow for easy cleaning. Plus, it's super easy to assemble, coming with detailed installation instructions and assembly accessories. 
 
-However, there's a slight downside - the instructions could have been more clear and detailed. [But overall, the YITAHOME Round Marble Coffee Table has been a wonderful addition to my living space, and I highly recommend it to anyone looking for a stylish and functional coffee table.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lift-Top-Coffee-Table-With-Storage.md) 
+However, there's a slight downside - the instructions could have been more clear and detailed. [But overall, the YITAHOME Round Marble Coffee Table has been a wonderful addition to my living space, and I highly recommend it to anyone looking for a stylish and functional coffee table.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lift-Top-Coffee-Table-With-Storage.md) 
 
 
 ### [Small Natural Gold Coffee Table for Living Rooms](https://serp.ly/@bar/amazon/Gold+Coffee+Table?utm\_term=small-natural-gold-coffee-table-for-living-rooms)

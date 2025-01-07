@@ -21,7 +21,7 @@ Get ready to lounge in style with our roundup of the best [white sweatpants](htt
 
 Experience ultimate comfort with these heavyweight fleece cargo pants from G-Style USA. Perfect for both indoor and outdoor activities, they feature a drawstring elastic waistband and drawstring adjustable cuffs, ensuring a snug yet breathable fit. The cargo pockets provide ample storage space, with Velcro closures for added convenience. 
 
-[Available in various sizes and colors, these sweatpants offer versatility and practicality wherever you go.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Black-Champion-Sweatpants.md) Just remember to handle them with care, as they must be hand-washed only and returned in their original, unused condition with all tags attached. 
+[Available in various sizes and colors, these sweatpants offer versatility and practicality wherever you go.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Champion-Sweatpants.md) Just remember to handle them with care, as they must be hand-washed only and returned in their original, unused condition with all tags attached. 
 
 
 ### [T by Alexander Wang White Labeled Casual Sweatpants](https://serp.ly/@bar/amazon/White+Sweatpants?utm\_term=t-by-alexander-wang-white-labeled-casual-sweatpants)

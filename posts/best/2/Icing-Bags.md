@@ -47,7 +47,7 @@ If you're into decorating or baking, I highly recommend giving these bags a try.
 
 This Crave pastry bag is the epitome of convenience for those who love indulging in the art of baking and decorating. As a versatile and reusable tool, it not only helps craft a plethora of unique designs on birthday cakes but also adds charm to an array of cookies and desserts. Each set comprises of a single bag and five distinct tips, making it a perfect gift for enthusiastic bakers in your life. 
 
-To ensure the longevity of your pastry bag, simply wash it off after use and save it for more decorating fun. [With its user-friendly design and ability to produce a wide variety of designs, it's a must-have addition to any baking enthusiast's toolkit.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Baking-Apron.md) 
+To ensure the longevity of your pastry bag, simply wash it off after use and save it for more decorating fun. [With its user-friendly design and ability to produce a wide variety of designs, it's a must-have addition to any baking enthusiast's toolkit.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Baking-Apron.md) 
 
 
 ### [Versatile Icing Bags for Effortless Decorating](https://serp.ly/@bar/amazon/Icing+Bags?utm\_term=versatile-icing-bags-for-effortless-decorating)

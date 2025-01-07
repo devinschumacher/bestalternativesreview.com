@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Small-Conference-Table.md
 
 # Top Small Conference Tables for Efficient and Stylish Meetings
 
-Are you in the market for a new conference table? Look no further! [In this roundup article, we've gathered an assortment of the best small conference tables available.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Small-Conference-Table.md) From sleek, modern designs to traditional yet elegant pieces, these tables are sure to fit seamlessly into any conference room setting. Get ready to find your perfect match and take your meetings to the next level. 
+Are you in the market for a new conference table? Look no further! [In this roundup article, we've gathered an assortment of the best small conference tables available.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Conference-Table.md) From sleek, modern designs to traditional yet elegant pieces, these tables are sure to fit seamlessly into any conference room setting. Get ready to find your perfect match and take your meetings to the next level. 
 
 *As an Amazon Affiliate™ we earn through qualifying purchases*
 
@@ -179,7 +179,7 @@ Many manufacturers provide the dimensions of their products in the product descr
 
 ### What materials are suitable for small conference tables?
 
-Small conference tables can be constructed from a range of materials, including wood, plastic, metal, and glass. [Wooden tables are popular due to their durability and warm appearance.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Rustic-Farmhouse-Table.md) Common wood types include oak, cherry, and mahogany. Plastic conference tables are lightweight and effortless to assemble, although they have a shorter lifespan compared to wooden tables. 
+Small conference tables can be constructed from a range of materials, including wood, plastic, metal, and glass. [Wooden tables are popular due to their durability and warm appearance.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rustic-Farmhouse-Table.md) Common wood types include oak, cherry, and mahogany. Plastic conference tables are lightweight and effortless to assemble, although they have a shorter lifespan compared to wooden tables. 
 
 Metal conference tables are sturdy, simple to clean, and require minimal maintenance. They are a great option for spaces that require regular cleaning, like hospitals or laboratories, or for outdoor use. Finally, glass conference tables provide a sleek and modern appearance but may be more expensive and require additional care. 
 

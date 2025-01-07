@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Elf-Kit.md
 
 # Bring the Magic Home -  Top 20 Elf Kits for a Magical Christmas
 
-[Get ready to dive into the magical world of elves with our roundup of the latest](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elf-Kit.md) [Elf Kit](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elf-Kit.md) products! From enchanting costumes to mesmerizing accessories, we've gathered everything you need to bring your inner fairy to life. Discover the perfect addition to your magical wardrobe and join us on this whimsical journey. 
+[Get ready to dive into the magical world of elves with our roundup of the latest](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Elf-Kit.md) [Elf Kit](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Elf-Kit.md) products! From enchanting costumes to mesmerizing accessories, we've gathered everything you need to bring your inner fairy to life. Discover the perfect addition to your magical wardrobe and join us on this whimsical journey. 
 
 *As an Amazon Affiliate™, I may earn from qualified purchases.*
 
@@ -23,7 +23,7 @@ Take a trip to paradise with the e. l. f. Retro Paradise Lifestyle Kit!
 
 Say goodbye to bad days with this vibrant vacation-in-a-box that's perfect for your tropical look. This must-have kit includes a range of essential beauty products - think colorful scrunchies, a delicate shimmer [lip gloss](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lip-Gloss.md), and a hydrating coconut mist. The scrunchies are made of soft fabric, perfect for all your hairstyling needs. 
 
-The coconut mist, with its delightful scent, adds a refreshing touch to your everyday routine. [The versatile lip gloss, with just the right hint of shimmer, is the perfect finishing touch to your sun-kissed look.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lip-Gloss.md) 
+The coconut mist, with its delightful scent, adds a refreshing touch to your everyday routine. [The versatile lip gloss, with just the right hint of shimmer, is the perfect finishing touch to your sun-kissed look.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lip-Gloss.md) 
 
 You'll find these beautiful products inside a cute packaging filled with summery color palettes and fun accessories. This Retro Paradise Lifestyle Kit is not just about beauty, it's about feeling good and embracing the summer vibes. 
 

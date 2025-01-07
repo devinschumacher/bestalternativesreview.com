@@ -164,7 +164,7 @@ What truly sets this Bar Cabinet apart is the meticulous use of solid mahogany a
 
 One of the most useful features I've discovered is the adjustable glass shelf. At a comfortable height of 18 inches, it can be easily raised or lowered by about three inches to accommodate any setting. Whether showcasing spirits or displaying decorative items, this feature makes it incredibly versatile. 
 
-Kudos to Niagara Furniture for designing this cabinet in two sections for easier transportation and setup. The Brown color gives the piece a warm and welcoming appearance, perfectly harmonizing with my home's aesthetic. [This well-thought-out piece of furniture has proven to be an essential addition to any home bar.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Home-Bar-Furniture.md)
+Kudos to Niagara Furniture for designing this cabinet in two sections for easier transportation and setup. The Brown color gives the piece a warm and welcoming appearance, perfectly harmonizing with my home's aesthetic. [This well-thought-out piece of furniture has proven to be an essential addition to any home bar.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Home-Bar-Furniture.md)
 
 
 ### [Home Source Mahogany Mini Bar Cabinet with Glass Shelving](https://serp.ly/@bar/amazon/Small+Home+Bar?utm\_term=home-source-mahogany-mini-bar-cabinet-with-glass-shelving)

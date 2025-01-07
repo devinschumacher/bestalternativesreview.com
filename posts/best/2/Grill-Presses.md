@@ -206,7 +206,7 @@ I recently received the Commercial Chef 7" Round Pre-Seasoned Cast Iron Grill Pr
 
 The first thing I noticed about this grill press is its pre-seasoned state, allowing me to start using it right out of the box – a major plus in my book. The robust wooden handle that comes with it is another feature I appreciate, as it enables me to firmly press down on my food without any discomfort. 
 
-[Cooking with this griddle press has been a breeze, as I'm now able to artfully flatten my food to ensure all sides are cooked evenly while delivering those elegant grill marks that make my dishes look extra appetizing.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lodge-Griddle.md) Given its cast iron build, it can withstand the high heat on my stove or grill perfectly. 
+[Cooking with this griddle press has been a breeze, as I'm now able to artfully flatten my food to ensure all sides are cooked evenly while delivering those elegant grill marks that make my dishes look extra appetizing.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lodge-Griddle.md) Given its cast iron build, it can withstand the high heat on my stove or grill perfectly. 
 
 I've also been impressed with the fact that this meat press comes pre-seasoned, ensuring it won't rust even after extended usage. All I need to do is gently handwash it with detergent and dry it with a towel, making it easy to maintain its durability. 
 

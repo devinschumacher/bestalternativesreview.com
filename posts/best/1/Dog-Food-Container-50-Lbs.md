@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Dog-Food-Container-50-Lbs.md
 
 # Maximize Storage with the Best Dog Food Containers for 50 Lbs (or More)
 
-[If you're looking for a reliable and spacious container to store your dog's food, look no further!](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Large-Dog-Food-Storage-Container.md) [This article provides a roundup of the best dog food containers, with capacities up to 50 lbs.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Food-Container-50-Lbs.md) Get ready to find the perfect container to keep your furry friend well-fed and happy. 
+[If you're looking for a reliable and spacious container to store your dog's food, look no further!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Large-Dog-Food-Storage-Container.md) [This article provides a roundup of the best dog food containers, with capacities up to 50 lbs.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dog-Food-Container-50-Lbs.md) Get ready to find the perfect container to keep your furry friend well-fed and happy. 
 
 *As an Amazon Affiliate, I receive compensation from qualified purchases at no cost to you.*
 

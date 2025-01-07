@@ -23,7 +23,7 @@ As a product reviewer, I've been using the Carhartt Women's Washed Duck Hooded V
 
 Another great feature of this vest is the pockets. The exterior pockets are roomy and perfect for keeping my hands warm or storing smaller items. The interior pockets, with their 80g 3M Thinsulate insulation, are great for storing items that I want to keep protected from the cold. 
 
-While I love this vest for layering, I do have one complaint. The vest itself can be a bit chilly without additional layers underneath, so it might not be the best choice for extremely cold days. [Otherwise, this vest is a perfect addition to my wardrobe for those chilly days.](https://github.com/devinschumacher/bestalternativereviews.com/https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mens-Winter-Vests.md) I've found it to be comfortable, stylish, and functional, making it a great choice for anyone looking for a versatile and warm vest. 
+While I love this vest for layering, I do have one complaint. The vest itself can be a bit chilly without additional layers underneath, so it might not be the best choice for extremely cold days. [Otherwise, this vest is a perfect addition to my wardrobe for those chilly days.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mens-Winter-Vests.md) I've found it to be comfortable, stylish, and functional, making it a great choice for anyone looking for a versatile and warm vest. 
 
 
 ### [Carhartt Lightweight Insulated Vest for Outdoor Activities](https://serp.ly/@bar/amazon/Carhartt+Vest?utm\_term=carhartt-lightweight-insulated-vest-for-outdoor-activities)
