@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Mini-Street-Bike.md
 
 # Adventure Awaits -  12 Best Mini Street Bikes for Urban Exploration and Thrill-Seeking Riders
 
-[Strap in and get ready to rev up your engines as we take a thrilling ride through the world of Mini Street Bikes!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mini-Street-Bike.md) 
+[Strap in and get ready to rev up your engines as we take a thrilling ride through the world of Mini Street Bikes!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mini-Street-Bike.md) 
 
 From the most powerful to the most eco-friendly, this roundup covers it all, giving you an insider's look at the latest and greatest innovations in the [mini street bike](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Mini-Street-Bike.md) industry. Buckle up for a wild journey as we explore these top-notch models, each with its unique style and features. 
 

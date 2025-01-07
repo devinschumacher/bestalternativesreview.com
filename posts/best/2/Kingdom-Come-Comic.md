@@ -23,7 +23,7 @@ I recently dived into the world of Kingdom Come, the classic graphic novel writt
 
 What really sets this edition apart is the plethora of bonus content. From rare art pieces and promotional images to annotations of the entire series and a feature on the evolution of a story page, this book is a treasure trove for any comic lover. However, I must admit that the slipcase design could have been more appealing. 
 
-[Overall, the Absolute Kingdom Come (New Edition) is a must-have for serious comic book collectors, thanks to its exceptional presentation and additional material.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kingdom-Come-Comic.md) Just make sure to keep an eye out for any unforeseen cancelations when ordering! 
+[Overall, the Absolute Kingdom Come (New Edition) is a must-have for serious comic book collectors, thanks to its exceptional presentation and additional material.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kingdom-Come-Comic.md) Just make sure to keep an eye out for any unforeseen cancelations when ordering! 
 
 
 ### [Kingdom Come: Deliverance Prequel Comic Book](https://serp.ly/@bar/amazon/Kingdom+Come+Comic?utm\_term=kingdom-come-deliverance-prequel-comic-book)
@@ -159,7 +159,7 @@ To ensure the optimal value and condition of your Kingdom Come comic books, foll
 
 ### What is Kingdom Come Comic?
 
-Kingdom Come Comic is a captivating series of comic books that transport readers on thrilling adventures through a world filled with supernatural creatures, brave heroes, and unforgettable stories. [It takes the classic comic book genre to new heights, blending elements of fantasy and adventure to create a unique and immersive reading experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Maximum-Comics.md) 
+Kingdom Come Comic is a captivating series of comic books that transport readers on thrilling adventures through a world filled with supernatural creatures, brave heroes, and unforgettable stories. [It takes the classic comic book genre to new heights, blending elements of fantasy and adventure to create a unique and immersive reading experience.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Maximum-Comics.md) 
 
 The series features a diverse cast of characters that come together to face challenges and overcome obstacles, all while learning valuable lessons and forging strong bonds. With stunning artwork and engaging storylines, Kingdom Come Comic has quickly become a favorite among fans and newcomers alike. 
 

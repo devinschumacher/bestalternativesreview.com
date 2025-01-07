@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Led-Wall-Sconce.md
 
 # Illuminate Your Space with the 20 Best LED Wall Sconces
 
-[Illuminate your living space with our top-rated Led Wall Sconces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Led-Wall-Sconce.md) In this roundup, we've gathered the latest innovative designs and energy-efficient options to bring warmth and ambiance to any room. Discover the perfect blend of style and functionality as you explore our carefully curated collection of Led Wall Sconces. 
+[Illuminate your living space with our top-rated Led Wall Sconces.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Led-Wall-Sconce.md) In this roundup, we've gathered the latest innovative designs and energy-efficient options to bring warmth and ambiance to any room. Discover the perfect blend of style and functionality as you explore our carefully curated collection of Led Wall Sconces. 
 
 *As an Amazon Associate I earn through qualified purchases at no cost to you*
 

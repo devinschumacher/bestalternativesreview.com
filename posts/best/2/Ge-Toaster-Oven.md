@@ -19,7 +19,7 @@ When it comes to toaster ovens, the [Ge Toaster Oven](https://github.com/devinsc
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Ge+Toaster+Oven?utm_term=retro-aqua-12-slice-convection-toaster-oven-nostalgia-rtov2aq"><img alt="nostalgia-rtov2aq-retro-12-slice-convection-toaster-oven-aqua-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nostalgia-rtov2aq-retro-12-slice-convection-toaster-oven-aqua-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Nostalgia 12-Slice Convection Toaster Oven is a versatile and stylish addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cuisinart-Convection-Toaster-Oven.md) With its aqua finish, this toaster oven is an eye-catching piece that will take your meals to the next level. The see-through window allows you to monitor your food as it cooks, and the stainless steel handle gives it a classic touch. 
+[The Nostalgia 12-Slice Convection Toaster Oven is a versatile and stylish addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cuisinart-Convection-Toaster-Oven.md) With its aqua finish, this toaster oven is an eye-catching piece that will take your meals to the next level. The see-through window allows you to monitor your food as it cooks, and the stainless steel handle gives it a classic touch. 
 
 Its four-stage heating selections - upper, lower, upper and lower with off - are perfect for baking, broiling, convection baking, and toasting a variety of delicious meals, snacks, and desserts. The baking pan, wire racks, and crumb tray make cleanup a breeze, while the built-in 60-minute timer ensures your food always comes out at the right temperature. The only downside I found is that the unit can get quite hot to the touch, so be cautious when handling it during use. 
 
@@ -141,7 +141,7 @@ This GE 4-slice toaster boasts a sleek stainless steel finish that blends seamle
 
 The toaster offers 7 different shades of toasting, allowing you to satisfy everyone's preferences with ease. With a powerful 1500-watt heating element, you can enjoy quick, even toasting every time. The removable crumb tray makes it simple to keep your toaster clean, and the lighted buttons indicate the setting you've chosen. 
 
-[Overall, this toaster is a stylish, functional addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Restaurant-Toaster.md) 
+[Overall, this toaster is a stylish, functional addition to any kitchen.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Restaurant-Toaster.md) 
 
 
 ### [Breville Smart Toaster Oven with Element IQ Technology](https://serp.ly/@bar/amazon/Ge+Toaster+Oven?utm\_term=breville-smart-toaster-oven-with-element-iq-technology)

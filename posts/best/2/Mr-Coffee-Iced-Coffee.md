@@ -91,7 +91,7 @@ The brewing process takes only a few minutes, providing you with refreshing iced
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Mr+Coffee+Iced+Coffee?utm_term=mr-coffee-single-serve-iced-coffee-maker-and-blender"><img alt="mr-coffee-single-serve-frappe-and-iced-coffee-maker-with-blender-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mr-coffee-single-serve-frappe-and-iced-coffee-maker-with-blender-black-1/h=540,fit=pad,background=black"/></a></div>
 
-[Savor the rich experience of making your favorite coffee drinks right at home with the Mr. Coffee Single Serve Frappe and Iced Coffee Maker with Blender.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Frappe-Machine.md) 
+[Savor the rich experience of making your favorite coffee drinks right at home with the Mr. Coffee Single Serve Frappe and Iced Coffee Maker with Blender.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Frappe-Machine.md) 
 
 Say goodbye to waiting in long coffee shop queues and hello to convenience with this sleek, space-saving appliance. The built-in blender effortlessly creates perfectly frothy frappes each time, giving you the perfect icy treat every day. 
 
@@ -138,7 +138,7 @@ One of the highlights of this coffee maker is its versatility, allowing me to sw
 
 While the coffee maker is compact and easy to clean, I did encounter a minor issue with messiness during the brewing process. At times, some coffee grounds found their way into the brewed cup. Additionally, the plastic tumbler that comes with the coffee maker is not dishwasher-safe, which is a bit inconvenient. 
 
-[In conclusion, the Mr. Coffee Iced + Hot Coffee Maker is perfect for those who enjoy both hot and iced coffee, with its easy-to-use design and flavorful brew.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mr-Coffee-Iced-Coffee.md) Even though there were a few minor issues, I think it's a great choice for coffee lovers looking to save time and energy while enjoying their favorite beverage. 
+[In conclusion, the Mr. Coffee Iced + Hot Coffee Maker is perfect for those who enjoy both hot and iced coffee, with its easy-to-use design and flavorful brew.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mr-Coffee-Iced-Coffee.md) Even though there were a few minor issues, I think it's a great choice for coffee lovers looking to save time and energy while enjoying their favorite beverage. 
 
 
 ### [Mr. Coffee Iced Coffee Maker: Perfect Cold Brew on the Go](https://serp.ly/@bar/amazon/Mr+Coffee+Iced+Coffee?utm\_term=mr-coffee-iced-coffee-maker-perfect-cold-brew-on-the-go)

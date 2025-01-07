@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Eye-Makeup.md
 
 # Elevate Your Looks -  Top 10 Eye Makeup Products for Stunning Results
 
-Welcome to our roundup of the latest and greatest [eye makeup](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Eye-Makeup.md) products that are currently making waves in the beauty industry. [From long-lasting eyeliners to smudge-proof mascaras, we've got you covered with a range of innovative and high-quality products that will help you create stunning eye looks.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Eye-Makeup.md) Get ready to enhance your eyes with our top picks and discover the perfect eye makeup for your needs. 
+Welcome to our roundup of the latest and greatest [eye makeup](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Eye-Makeup.md) products that are currently making waves in the beauty industry. [From long-lasting eyeliners to smudge-proof mascaras, we've got you covered with a range of innovative and high-quality products that will help you create stunning eye looks.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Eye-Makeup.md) Get ready to enhance your eyes with our top picks and discover the perfect eye makeup for your needs. 
 
 *As an Amazon Affiliate, we receive compensation through qualified purchases!*
 
@@ -442,7 +442,7 @@ The shades range from light base tones to rich colors, providing a sparkling fin
 
 This retractable eyeliner by e. l. f. is a budget-friendly option for those who want to add a pop of color to their eyes. The high-pigment formula provides bold color with a creamy texture, making it easy to apply and blend for precise lines and defined looks. 
 
-Despite its smudge-resistant formula, some users have reported smudging under their eyes, particularly after applying and accidentally rubbing their face. [The eyeliner is waterproof and suitable for use on rainy days, although it may not be the most comfortable when applied to the waterline.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Waterproof-Eyeliner.md) The pencil form is convenient and allows for sharp, precise application, while the retractable feature eliminates the need for sharpening. 
+Despite its smudge-resistant formula, some users have reported smudging under their eyes, particularly after applying and accidentally rubbing their face. [The eyeliner is waterproof and suitable for use on rainy days, although it may not be the most comfortable when applied to the waterline.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Waterproof-Eyeliner.md) The pencil form is convenient and allows for sharp, precise application, while the retractable feature eliminates the need for sharpening. 
 
 Overall, this eyeliner is a great option for those looking for high pigmentation at an affordable price, but it may not be the most durable or comfortable option for everyone. 
 

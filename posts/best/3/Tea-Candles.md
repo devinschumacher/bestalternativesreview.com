@@ -248,7 +248,7 @@ Tea candles come in a wide variety of fragrances, so it's essential to choose on
 
 ### Wax Quality
 
-The quality of the wax used in tea candles can impact the overall performance and longevity of the candle. High-quality wax burns cleaner and provides a longer burn time, ensuring your candle lasts longer. [Look for tea candles made from natural waxes, such as soy or beeswax, which are environmentally friendly and provide a cleaner burn.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Clean-Candles.md) 
+The quality of the wax used in tea candles can impact the overall performance and longevity of the candle. High-quality wax burns cleaner and provides a longer burn time, ensuring your candle lasts longer. [Look for tea candles made from natural waxes, such as soy or beeswax, which are environmentally friendly and provide a cleaner burn.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Clean-Candles.md) 
 
 <div><a href="https://serp.ly/@bar/amazon/Tea+Candles"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Tea-Candles-3/h=540,fit=pad,background=black" alt="Tea-Candles-3" height="540"></a></div>
 

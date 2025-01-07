@@ -240,7 +240,7 @@ Overall, the Ironman OFTENTTENT Only Roof Top Tent is a solid choice for those s
 
 ## Buyer's Guide
 
-[When it comes to camping, having a durable and reliable rooftop tent can make all the difference in providing shelter and a comfortable sleeping experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coleman-Dome-Tent.md) A 4-person rooftop tent can accommodate up to four campers and offers plenty of space for gear and storage. In this buyer's guide, we'll discuss important features, considerations, and general advice to help you make an informed decision when purchasing a 4-person rooftop tent. 
+[When it comes to camping, having a durable and reliable rooftop tent can make all the difference in providing shelter and a comfortable sleeping experience.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Coleman-Dome-Tent.md) A 4-person rooftop tent can accommodate up to four campers and offers plenty of space for gear and storage. In this buyer's guide, we'll discuss important features, considerations, and general advice to help you make an informed decision when purchasing a 4-person rooftop tent. 
 
 
 ### Tent Construction: Quality Matters

@@ -584,7 +584,7 @@ As I started to sleep on the topper, I was struck by how cool and supportive it 
 
 One of my main concerns was how my pet would react to the new topper. To my pleasant surprise, my four-legged friend showed no interest in biting or tearing it, which was a relief. It's worth mentioning that the cover provides a great barrier for pet-related incidents, which is always a plus. 
 
-[Overall, I found the Lucid Gel Memory Foam Mattress Topper to be a comfortable and supportive addition to my bed.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Firm-Mattress-Topper.md) With its cooling properties and easy-to-clean cover, it's a worthwhile investment. However, I do wish the foam had a more pleasant smell upon arrival, and I can see how some people may struggle with the added height if they have mobility issues. 
+[Overall, I found the Lucid Gel Memory Foam Mattress Topper to be a comfortable and supportive addition to my bed.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Firm-Mattress-Topper.md) With its cooling properties and easy-to-clean cover, it's a worthwhile investment. However, I do wish the foam had a more pleasant smell upon arrival, and I can see how some people may struggle with the added height if they have mobility issues. 
 
 
 ### [Bamboo Waterproof Mattress Protector - 100% Breathable Luxury Cover for Queen Size Mattresses](https://serp.ly/@bar/amazon/Waterproof+Mattress+Pad?utm\_term=bamboo-waterproof-mattress-protector-100-breathable-luxury-cover-for-queen-size-mattresses)

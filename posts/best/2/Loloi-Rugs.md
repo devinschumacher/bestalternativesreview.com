@@ -32,7 +32,7 @@ Although it was a bit on the thin side, adding a [rug pad](https://github.com/de
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Loloi+Rugs?utm_term=amber-lewis-x-loloi-alie-rug-by-amethyst-home-blue-sample"><img alt="amber-lewis-x-loloi-alie-ale-02-sand-sky-rug-amethyst-home-18-x-18-sample-shipping-1-05-2025" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/amber-lewis-x-loloi-alie-ale-02-sand-sky-rug-amethyst-home-18-x-18-sample-shipping-1-05-2025/h=540,fit=pad,background=black"/></a></div>
 
-[Are you in the market for a stylish and durable area rug?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Custom-Area-Rugs.md) Look no further than the Amber Lewis x Loloi Alie Collection! Designed by renowned interior designer Amber Lewis, this rug features a traditional motif with a slightly higher pile for a softened and distressed look. Made from power-loomed polypropylene and polyester in Turkey, it's built to last and Oeko-Tex certified for environmental friendliness. 
+[Are you in the market for a stylish and durable area rug?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Custom-Area-Rugs.md) Look no further than the Amber Lewis x Loloi Alie Collection! Designed by renowned interior designer Amber Lewis, this rug features a traditional motif with a slightly higher pile for a softened and distressed look. Made from power-loomed polypropylene and polyester in Turkey, it's built to last and Oeko-Tex certified for environmental friendliness. 
 
 As the name suggests, this rug has an underlying traditional vibe that's perfectly complemented by the soft, distressed texture. The colors showcased vary depending on your environment and lighting, so they may look slightly different in your room. Although this can be seen as a drawback, it adds to the rug's unique charm. 
 
@@ -193,7 +193,7 @@ Introducing the Loloi II Margot MAT-04 Antique Sage Rug, an elegant addition to 
 
 Despite its advantages, not all users have had the best experience with the Margot Collection. Some cat owners reported their rugs being less "pet friendly" than claimed in the product description. Additionally, a few users noticed the rug colors fading over time, which could impact the pattern's overall appearance. 
 
-But on the whole, the Loloi II Margot MAT-04 Antique Sage Rug has received great feedback. Many customers appreciate its refined aesthetic and the soft, plush texture that complements their living spaces. [A recommended option for those seeking a stylish and cozy area rug at an affordable price.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kitchen-Rugs.md) 
+But on the whole, the Loloi II Margot MAT-04 Antique Sage Rug has received great feedback. Many customers appreciate its refined aesthetic and the soft, plush texture that complements their living spaces. [A recommended option for those seeking a stylish and cozy area rug at an affordable price.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kitchen-Rugs.md) 
 
 
 ### [Jean Stoffer x Loloi 2'3"-3'10" Beige/Mist Small Katherine Area Rug](https://serp.ly/@bar/amazon/Loloi+Rugs?utm\_term=jean-stoffer-x-loloi-23-310-beige-mist-small-katherine-area-rug)

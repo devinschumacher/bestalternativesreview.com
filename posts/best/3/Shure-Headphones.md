@@ -49,7 +49,7 @@ I recently tried out the Shure SRH240A professional headphones, and I must say, 
 
 Now, let's talk about the sound quality. The wide frequency range was impressive, providing me with full bass, clear mids, and highs. It was like listening to my favorite songs all over again. The only downside I encountered was that the straight plug-in jack made it a bit tricky to use with my tablet, but a simple fix with an angled attachment solved that problem. 
 
-[Overall, the Shure SRH240A headphones are a great choice for music enthusiasts looking for a high-quality, comfortable, and versatile headphone experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shure-Headphones.md) While there were a few minor drawbacks, the pros definitely outweighed the cons. I highly recommend giving these headphones a try! 
+[Overall, the Shure SRH240A headphones are a great choice for music enthusiasts looking for a high-quality, comfortable, and versatile headphone experience.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Shure-Headphones.md) While there were a few minor drawbacks, the pros definitely outweighed the cons. I highly recommend giving these headphones a try! 
 
 
 ### [Ultra-Lightweight Shure SRH145 Portable Headphones with Superior Sound Insulation and Comfort](https://serp.ly/@bar/amazon/Shure+Headphones?utm\_term=ultra-lightweight-shure-srh145-portable-headphones-with-superior-sound-insulation-and-comfort)

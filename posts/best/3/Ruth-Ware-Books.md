@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Ruth-Ware-Books.md
 
 # Mystery Unraveled -  13 Must-Read Ruth Ware Books for Captivating Thrills and Suspense
 
-[Get ready to immerse yourself in the captivating world of Ruth Ware's books.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Ruth-Ware-Books.md) In this roundup, we'll be delving into the thrilling mysteries and suspenseful tales that have captured the hearts of readers worldwide. 
+[Get ready to immerse yourself in the captivating world of Ruth Ware's books.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Ruth-Ware-Books.md) In this roundup, we'll be delving into the thrilling mysteries and suspenseful tales that have captured the hearts of readers worldwide. 
 
 *As an Amazon Affiliate I earn through qualified purchases*
 
@@ -34,7 +34,7 @@ Woman in Cabin 10, on the other hand, had just the right amount of thrill and my
 
 However, they are not without their downsides. The Death of Mrs Westaway could have done with a bit more character development. The relationships between the various characters felt a bit overwrought, and it made the plot somewhat harder to swallow. Woman in Cabin 10, while thrilling and suspenseful, sometimes fell into the clichéd trope of a lone female protagonist. 
 
-[Overall, these books are a must-read for fans of psychological thrillers.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Psychological-Thriller-Books.md) They have all the right elements - suspense, mystery, and a dash of the unexpected - to keep you hooked till the end. Despite minor flaws, they are certainly worth their weight in gold. 
+[Overall, these books are a must-read for fans of psychological thrillers.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Psychological-Thriller-Books.md) They have all the right elements - suspense, mystery, and a dash of the unexpected - to keep you hooked till the end. Despite minor flaws, they are certainly worth their weight in gold. 
 
 
 ### [The Lying Game: Psychological Thriller by Ruth Ware](https://serp.ly/@bar/amazon/Ruth+Ware+Books?utm\_term=the-lying-game-psychological-thriller-by-ruth-ware)

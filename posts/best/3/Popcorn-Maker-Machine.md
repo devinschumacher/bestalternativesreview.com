@@ -43,7 +43,7 @@ One feature that really stood out was the removable cap, which not only made it 
 
 The on/off switch and see-through chute were convenient touches, but the durability of this machine was seriously lacking. I noticed that it seemed to overheat quite easily, causing it to shut itself off after only a few minutes of use. It also had a tendency to spit out uncooked kernels, which was frustrating and made the whole process feel more like a chore than a fun activity. 
 
-Overall, I wouldn't recommend the Salton Cinema Popper Popcorn Maker. The slow cooking time, poor performance, and low-quality design just didn't make up for the potential health benefits of making popcorn without oil. [If you're looking for a hot air popcorn maker, there are definitely better options out there that will save you time and frustration in the long run.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Popcorn-Popper.md) 
+Overall, I wouldn't recommend the Salton Cinema Popper Popcorn Maker. The slow cooking time, poor performance, and low-quality design just didn't make up for the potential health benefits of making popcorn without oil. [If you're looking for a hot air popcorn maker, there are definitely better options out there that will save you time and frustration in the long run.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Popcorn-Popper.md) 
 
 
 ### [Joie Popcorn Popper Maker Machine](https://serp.ly/@bar/amazon/Popcorn+Maker+Machine?utm\_term=joie-popcorn-popper-maker-machine)
@@ -170,7 +170,7 @@ Overall, my experience with the Olde Midway Vintage-Style 6 oz Popcorn Popper Ma
 
 This 3-Cup to 4-Cup [Microwave Popcorn](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Microwave-Popcorn.md) Maker from Gourmet by Starfrit is a game changer when it comes to enjoying everyone's favorite snack. The foldable sides are conveniently transformed into a lid during cooking, and when you're done, simply unfold them for compact storage. 
 
-The best part? You don't need any oil or butter when using this clever device. [Just measure your desired amount of popcorn kernels and place them in the maker, cover it with the foldable lid, and pop it into the microwave for a flavorful, guilt-free snack.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Popcorn-Maker.md) 
+The best part? You don't need any oil or butter when using this clever device. [Just measure your desired amount of popcorn kernels and place them in the maker, cover it with the foldable lid, and pop it into the microwave for a flavorful, guilt-free snack.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Popcorn-Maker.md) 
 
 Made from food-grade silicone and BPA-free materials, this eco-friendly popcorn maker promotes a zero-waste lifestyle by eliminating the need for disposable bags or added preservatives. It's also dishwasher safe, making cleanup a breeze. 
 

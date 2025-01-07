@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Ps4-Controller.md
 
 # Hold the Power -  26 Best Ps4 Controllers for Ultimate Gaming Experience
 
-[Join us as we take a deep dive into the world of gaming controllers and explore the top picks for the PlayStation 4 controller.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Ps4-Controller.md) We'll be rounding up the best options out there, so you can make an informed decision on which one suits your playing style. Get ready to game like a pro, as we bring you the ultimate guide to the best Ps4 controllers on the market! 
+[Join us as we take a deep dive into the world of gaming controllers and explore the top picks for the PlayStation 4 controller.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Ps4-Controller.md) We'll be rounding up the best options out there, so you can make an informed decision on which one suits your playing style. Get ready to game like a pro, as we bring you the ultimate guide to the best Ps4 controllers on the market! 
 
 *As an Amazon Affiliate™ we may earn through qualifying purchases!*
 

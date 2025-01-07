@@ -21,7 +21,7 @@ These green wonders not only add natural beauty to your space, but also actively
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Air+Purifying+House+Plants?utm_term=ficus-decora-tineke-live-potted-air-purifying-house-plant"><img alt="ficus-decora-tineke-live-potted-house-plants-air-purifying-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ficus-decora-tineke-live-potted-house-plants-air-purifying-1/h=540,fit=pad,background=black"/></a></div>
 
-Introducing the Ficus Decora Tineke, a fabulous houseplant that adds a touch of beauty and life to any room. Its stunning pink, yellow, and green variegated leaves are a sight to behold, with new growth often appearing in a vibrant red. [A fantastic addition to your home or office, this plant also doubles as an air-purifying powerhouse, removing toxins from pollution and smoke.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
+Introducing the Ficus Decora Tineke, a fabulous houseplant that adds a touch of beauty and life to any room. Its stunning pink, yellow, and green variegated leaves are a sight to behold, with new growth often appearing in a vibrant red. [A fantastic addition to your home or office, this plant also doubles as an air-purifying powerhouse, removing toxins from pollution and smoke.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
 
 Caring for the Ficus Decora Tineke is a breeze – it thrives in proper conditions and requires moderate watering. Place it in bright filtered light or partial sun, and keep it in a temperature range of 60-90F. The plant prefers humidity levels above 45%, so don't forget to mist it lightly to maintain optimal conditions. Remember to fertilize it in spring and summer to ensure a healthy and happy plant. 
 
@@ -134,7 +134,7 @@ Native to South America, it's quite the interesting addition to any garden or pa
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Air+Purifying+House+Plants?utm_term=tillandsia-air-plant-variety-pack-elegant-and-air-purifying-indoor-house-plants"><img alt="tillandsia-air-plant-variety-w-spray-4-pack-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/tillandsia-air-plant-variety-w-spray-4-pack-1/h=540,fit=pad,background=black"/></a></div>
 
-The Tillandsia Air Plant Variety w/ Spray - 4 Pack is a delightful assortment of air plants that make fantastic air purifying house plants. [With a focus on ease of care and natural growth, these fun and quirky plants are the perfect addition to any indoor space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Living-Room-Plants.md) 
+The Tillandsia Air Plant Variety w/ Spray - 4 Pack is a delightful assortment of air plants that make fantastic air purifying house plants. [With a focus on ease of care and natural growth, these fun and quirky plants are the perfect addition to any indoor space.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Living-Room-Plants.md) 
 
 Each pack comes with a care guide to ensure their thriving and can even produce beautiful blooms with proper care. The 4-pack variety offers a range of sizes, making it ideal for a variety of planters. 
 
@@ -202,7 +202,7 @@ In conclusion, the Fern Leaf Plumosus Asparagus is a low-maintenance and visuall
 
 The Hirt's Gardens Gold Star Madagascar Dragon Tree, a part of the Dracaena genus, is an easy-to-grow house plant that brings a statuesque form and ornamental foliage to your indoor space. It belongs to the subtropical, evergreen, woody plants and is known for its bamboo-like cane stems. Being an easy to maintain plant, it requires bright, indirect light and should be kept evenly moist without getting too wet or dry. 
 
-During my experience with this plant, I've noticed it can be a bit fussy with the light conditions. I've experienced some withered leaves, but with proper care, it starts to thrive and the color of the leaves deepens under bright light. [It's a delight to have this tall indoor plant, as it adds a touch of greenery and a unique aesthetic to any room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tall-Indoor-Plants.md) 
+During my experience with this plant, I've noticed it can be a bit fussy with the light conditions. I've experienced some withered leaves, but with proper care, it starts to thrive and the color of the leaves deepens under bright light. [It's a delight to have this tall indoor plant, as it adds a touch of greenery and a unique aesthetic to any room.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Tall-Indoor-Plants.md) 
 
 
 ### [Costa Farms Pachira Money Tree 3-4 ft Tall Decor Planter](https://serp.ly/@bar/amazon/Air+Purifying+House+Plants?utm\_term=costa-farms-pachira-money-tree-3-4-ft-tall-decor-planter)

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md
 
 # Write on the Wall -  20 Best Magnetic Dry Erase Markers for Effortless Brainstorming and Organization
 
-[Get ready to take your dry erase board game to the next level with our roundup of **](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md)[Magnetic Dry Erase Markers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md)**. 
+[Get ready to take your dry erase board game to the next level with our roundup of **](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md)[Magnetic Dry Erase Markers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Magnetic-Dry-Erase-Markers.md)**. 
 
 In this article, we'll introduce you to the latest and greatest in this category, providing you with a selection of innovative and high-quality markers that'll turn your board into a canvas ready to be brought to life. 
 

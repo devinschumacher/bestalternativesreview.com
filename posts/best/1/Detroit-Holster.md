@@ -88,7 +88,7 @@ The concealed nature of this criss-cross holster was a game-changer for me. It a
 
 While the Desantis Gunhide 155 Criss-Cross Holster has its fair share of pros, there were a couple of cons to consider. First, as a right-handed user, I wish there was a similar option available for left-handed individuals. Second, while the holster is made for the SIG P938, compatibility with other models would have been a useful addition. 
 
-Overall, the Desantis Gunhide 155 Criss-Cross Holster made a great addition to my daily carry routine. [Its combination of style, versatility, and functionality made it a worthwhile investment for any gun enthusiast looking for a high-quality holster.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Point-Tactical-Holster.md) 
+Overall, the Desantis Gunhide 155 Criss-Cross Holster made a great addition to my daily carry routine. [Its combination of style, versatility, and functionality made it a worthwhile investment for any gun enthusiast looking for a high-quality holster.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Point-Tactical-Holster.md) 
 
 
 ### [1911 Springfield 5" OWB Concealed Carry Holster - Lightweight & Reliable](https://serp.ly/@bar/amazon/Detroit+Holster?utm\_term=1911-springfield-5-owb-concealed-carry-holster-lightweight-reliable)
@@ -150,7 +150,7 @@ The Mission First Tactical MFT Minimalist IWB holster offers a sleek and seamles
 
 One of the standout features of this holster is the adjustable cant that allows you to find the perfect angle for optimal comfort and ease of use. Another feature that sets this holster apart is the Trijicon or Vortex sight compatibility. This means that no changes to the sight are required – you simply clip it in and you're good to go. 
 
-However, the holster may be a little stiff initially, which could be a minor inconvenience for some users. Additionally, some customers have mentioned that the claw alignment is off, so it doesn't serve its intended purpose of ensuring a snug fit. [Despite these minor flaws, overall, the Mission First Tactical MFT Minimalist IWB holster is a great choice for those looking for a more discreet way to carry their handgun.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Minimalist-Holster.md) 
+However, the holster may be a little stiff initially, which could be a minor inconvenience for some users. Additionally, some customers have mentioned that the claw alignment is off, so it doesn't serve its intended purpose of ensuring a snug fit. [Despite these minor flaws, overall, the Mission First Tactical MFT Minimalist IWB holster is a great choice for those looking for a more discreet way to carry their handgun.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Minimalist-Holster.md) 
 
 
 ### [Caldwell XL Detroit Holster for a Comfortable Carry Experience](https://serp.ly/@bar/amazon/Detroit+Holster?utm\_term=caldwell-xl-detroit-holster-for-a-comfortable-carry-experience)

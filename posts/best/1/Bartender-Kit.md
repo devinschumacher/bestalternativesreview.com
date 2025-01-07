@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Bartender-Kit.md
 
 # Best Bartender Kits -  Mix Your Way to Perfection with These Top 18 Sets
 
-[Get ready to shake up your cocktail game with our roundup of the top Bartender Kits on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bartender-Kit.md) Whether you're a pro mixologist or a home bartender looking to impress your guests, this guide has got you covered. 
+[Get ready to shake up your cocktail game with our roundup of the top Bartender Kits on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Bartender-Kit.md) Whether you're a pro mixologist or a home bartender looking to impress your guests, this guide has got you covered. 
 
 *As an Amazon Affiliate we earn from qualified purchases!*
 
@@ -65,7 +65,7 @@ My only gripe is the small liquid pourers, I find myself wishing for a slightly 
 
 Elevate your bar game with the Nuvantee Cocktail Shaker, a premium bartender kit that's perfect for the mixologist in you. This 24oz shaker, built with rust-proof stainless steel, is not only durable but also easy to use. 
 
-[The built-in strainer makes it a breeze to create your favorite cocktails without worrying about any unwanted chunks.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cocktail-Strainer.md) Adding to its versatility, it's dishwasher safe, which means less hassle for you when it comes to cleanup. But that's not all! The Nuvantee Cocktail Shaker also comes with a free jigger and a recipe e-Book, ensuring your thirst for creativity is never quenched. 
+[The built-in strainer makes it a breeze to create your favorite cocktails without worrying about any unwanted chunks.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cocktail-Strainer.md) Adding to its versatility, it's dishwasher safe, which means less hassle for you when it comes to cleanup. But that's not all! The Nuvantee Cocktail Shaker also comes with a free jigger and a recipe e-Book, ensuring your thirst for creativity is never quenched. 
 
 Using this shaker daily has been a game-changer in my cocktail-making routine. It's sleek design not only enhances the look of my bar, but also makes it a conversation starter when entertaining guests. However, its weight might be a bit challenging for those with weaker wrists. Overall, I'd highly recommend this cocktail shaker to anyone looking to elevate their bar setup. 
 

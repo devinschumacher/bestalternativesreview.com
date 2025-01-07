@@ -169,7 +169,7 @@ These highly durable, stainless steel scissors have been my go-to for effortless
 
 I recently tried out this hair-cutting scissors set and I must say, it's made a huge difference in my hair cutting experience. The scissors are incredibly sharp and make a clean cut, perfect for trimming my bangs and wigs. The thinning shears with their 22 teeth were easy to use and gave a suitable thinning rate. 
 
-The set is lightweight and durable, thanks to its premium-quality stainless steel construction. Even though it's marketed as a professional hairdresser tool, it's perfect for DIY haircuts at home too. [Overall, I'm very pleased with my purchase and would highly recommend this hair-cutting scissors set to anyone looking for professional results.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hair-Cutting-Scissors.md) 
+The set is lightweight and durable, thanks to its premium-quality stainless steel construction. Even though it's marketed as a professional hairdresser tool, it's perfect for DIY haircuts at home too. [Overall, I'm very pleased with my purchase and would highly recommend this hair-cutting scissors set to anyone looking for professional results.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hair-Cutting-Scissors.md) 
 
 
 ### [Diamond Ice 5.5" Hair Cutting Scissors: Precision and Durability](https://serp.ly/@bar/amazon/Barber+Scissors?utm\_term=diamond-ice-5-5-hair-cutting-scissors-precision-and-durability)

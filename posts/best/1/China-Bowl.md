@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/China-Bowl.md
 
 # Dish Delights -  12 Best China Bowls for Everyday Dining and Impressive Entertaining
 
-Get ready to indulge in the beauty of ancient Chinese artistry with our roundup of top [China Bowl](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/China-Bowl.md) picks. [From intricate patterns and vibrant colors to high-quality materials, these bowls are a must-have for any collector or lover of Eastern culture.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/China-Bowl.md) 
+Get ready to indulge in the beauty of ancient Chinese artistry with our roundup of top [China Bowl](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/China-Bowl.md) picks. [From intricate patterns and vibrant colors to high-quality materials, these bowls are a must-have for any collector or lover of Eastern culture.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/China-Bowl.md) 
 
 *As an Amazon Affiliate we earn from qualified purchases*
 

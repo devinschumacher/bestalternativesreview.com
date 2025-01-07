@@ -47,7 +47,7 @@ Despite its initial mishap with the packaging, I'm glad I chose the Noah 32" Liv
 
 Bring a touch of tropical paradise indoors with the Neanthebella Palm, often referred to as the parlor palm. This compact palm plant boasts long, thin foliage that adds a touch of lush greenery to any space. Grown specifically for indoor environments, this piece of paradise is acclimated to thrive within your home. 
 
-The soil mix prepared for this product ensures optimal growth for the Neanthebella Palm. [Not only does it contribute to creating a beautiful indoor setting, but these plants are also air-purifying, making it a sensible choice for home improvements.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Purifying-House-Plants.md) The plants are direct from the farm, ensuring they are fresh and ready to bring life to your interiors. 
+The soil mix prepared for this product ensures optimal growth for the Neanthebella Palm. [Not only does it contribute to creating a beautiful indoor setting, but these plants are also air-purifying, making it a sensible choice for home improvements.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md) The plants are direct from the farm, ensuring they are fresh and ready to bring life to your interiors. 
 
 Positioned in a stylish white planter, the 6-inch Neanthebella Palm is a low-maintenance addition to your home. Requiring water only twice a week, this plant is perfect for those with busy lifestyles or those who are new to indoor gardening. With a mature size of 48 inches tall and a width of 24 inches, this plant is sure to make a statement in any room. 
 
@@ -139,7 +139,7 @@ One minor issue I encountered was the condition of the plant upon its arrival. A
 
 ## Buyer's Guide
 
-[Welcome to our comprehensive buyer's guide for Needle Palm products.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Needle-Palm.md) In this section, we will delve into the important features, considerations, and general advice that you should keep in mind when purchasing a Needle Palm product. This guide will provide you with all the information you need to make the right decision, without any external product recommendations or links. 
+[Welcome to our comprehensive buyer's guide for Needle Palm products.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Needle-Palm.md) In this section, we will delve into the important features, considerations, and general advice that you should keep in mind when purchasing a Needle Palm product. This guide will provide you with all the information you need to make the right decision, without any external product recommendations or links. 
 
 
 ### What is a Needle Palm?

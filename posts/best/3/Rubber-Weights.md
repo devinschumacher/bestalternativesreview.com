@@ -21,7 +21,7 @@ Welcome to our exciting roundup of [Rubber Weights](https://github.com/devinschu
 
 I recently got my hands on the ProsourceFit Neoprene Dumbbells, and I must say, they've been a game-changer in my workout routine. The first thing that stood out to me was the comfortable neoprene coating, which not only feels great on my hands but also provides a reassuring non-slip grip. 
 
-What I really appreciated was the variety in weights these dumbbells come in, allowing me to gradually progress with my workouts. [Whether I'm doing strength training, toning, or even some cardio, these dumbbells have been versatile and effective.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dumbbell-Sets.md) One downside, however, has been the durability of the product; after a few weeks of heavy use, I've noticed some wear on the weights. 
+What I really appreciated was the variety in weights these dumbbells come in, allowing me to gradually progress with my workouts. [Whether I'm doing strength training, toning, or even some cardio, these dumbbells have been versatile and effective.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dumbbell-Sets.md) One downside, however, has been the durability of the product; after a few weeks of heavy use, I've noticed some wear on the weights. 
 
 Overall, the ProsourceFit Neoprene Dumbbells have been a solid addition to my workout gear, offering comfort, variety, and effectiveness. I look forward to continuing my toning journey with these dumbbells by my side. 
 

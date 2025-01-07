@@ -159,7 +159,7 @@ While some users have reported minor issues with the lock bouncing out of its ho
 
 The Abus 78/50 Combination Padlock boasts an easy-to-use numerical code system, perfect for securing cabinets, lockers, and switchgear. With a cathodic dip-coated housing for corrosion protection and a hardened steel bracket, it's built to withstand wear and tear. However, some users find the design not as intuitive as they'd like, and the black and silver color combo might not be everyone's cup of tea. 
 
-[Overall, the padlock offers a secure and practical solution for those looking to keep their belongings safe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Padlock.md) 
+[Overall, the padlock offers a secure and practical solution for those looking to keep their belongings safe.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Padlock.md) 
 
 
 ### [Pothunder Fingerprint Padlock - App Unlock, USB Rechargeable, Gym Lock Solution](https://serp.ly/@bar/amazon/Combination+Locks?utm\_term=pothunder-fingerprint-padlock-app-unlock-usb-rechargeable-gym-lock-solution)
@@ -208,7 +208,7 @@ With a sleek rectangular shape and modern finish, these locks are both stylish a
 
 Recently, I had the chance to try out the Police Combination Lock with Hardened Steel Shackle. This heavy-duty lock is perfect for those who want a secure and easy-to-use locking system. One of the highlights for me was the 4-digit combination that allows you to set your own code, eliminating the hassle of carrying around keys. And, as someone who's always on the go, the lock's waterproof and rustproof design was a huge plus, ensuring it remains functional no matter where I use it - be it indoors or outdoors. 
 
-[While I was using this lock, I noticed that it was a great choice for securing garages, storage units, and even gates.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Garage-Door-Lock.md) The 2.75-inch lock body and 3/8-inch shackle diameter make it the perfect size for just about any application, from moving trucks to trailers. Plus, the police-themed design added an extra touch of security that I appreciated. 
+[While I was using this lock, I noticed that it was a great choice for securing garages, storage units, and even gates.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Garage-Door-Lock.md) The 2.75-inch lock body and 3/8-inch shackle diameter make it the perfect size for just about any application, from moving trucks to trailers. Plus, the police-themed design added an extra touch of security that I appreciated. 
 
 Of course, no product is perfect, and this combination lock had a few downsides. For one, I found it a little difficult to reset the combination, which could be frustrating if I needed to change the code often. Additionally, the lock's wide body made it a little bulkier than I would have liked, but that was a minor trade-off for the security it provided. 
 

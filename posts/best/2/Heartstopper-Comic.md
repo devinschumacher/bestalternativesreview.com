@@ -48,7 +48,7 @@ Heartstopper Comic took me on a rollercoaster of emotions as I was drawn into th
 
 What stood out to me was the strong focus on friendship and the power of acceptance. The various LGBTQ+ characters, including Charlie, Nick, and others, contribute to the richness of this world and make Heartstopper Comic a must-read for anyone looking to broaden their understanding and appreciation of the LGBTQ+ community. 
 
-However, if you're a fan of manga with a right-to-left reading direction, you might find it a bit jarring to switch to left-to-right format as the author, Alice Oseman, is British. [Despite this small inconvenience, Heartstopper Comic is a captivating and heartwarming story that I couldn't put down.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Heartstopper-Comic.md) 
+However, if you're a fan of manga with a right-to-left reading direction, you might find it a bit jarring to switch to left-to-right format as the author, Alice Oseman, is British. [Despite this small inconvenience, Heartstopper Comic is a captivating and heartwarming story that I couldn't put down.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Heartstopper-Comic.md) 
 
 
 ### [Heartstopper: My Favorite Person's Inspiration for Netflix Series [Book]](https://serp.ly/@bar/amazon/Heartstopper+Comic?utm\_term=heartstopper-my-favorite-persons-inspiration-for-netflix-series-book)

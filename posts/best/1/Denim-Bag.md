@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/1/Denim-Bag.md
 
 Get ready to revamp your style with the latest addition to your wardrobe - the [Denim Bag](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Denim-Bag.md)! 
 
-[In this roundup article, we'll be exploring a selection of denim bags that are making waves in the fashion world.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Denim-Bag.md) Whether you're looking for a statement piece or a practical accessory, we've got you covered with our curated collection. 
+[In this roundup article, we'll be exploring a selection of denim bags that are making waves in the fashion world.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Denim-Bag.md) Whether you're looking for a statement piece or a practical accessory, we've got you covered with our curated collection. 
 
 *As an Amazon Affiliate, I earn from qualified purchases*
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Boho-Floor-Lamp.md
 
 # Illuminate Your Space -  Boho Floor Lamps for Chic and Cozy Bohemian Aesthetics
 
-Get ready to add a touch of charm to your living space with our [Boho Floor Lamp](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boho-Floor-Lamp.md) roundup article! [In this article, we're taking you on a journey to explore the best Boho Floor Lamp designs that are sure to make your room pop with character and elegance.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Boho-Floor-Lamp.md) 
+Get ready to add a touch of charm to your living space with our [Boho Floor Lamp](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Boho-Floor-Lamp.md) roundup article! [In this article, we're taking you on a journey to explore the best Boho Floor Lamp designs that are sure to make your room pop with character and elegance.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Boho-Floor-Lamp.md) 
 
 *As an Amazon Associate we may earn from qualifying purchases.*
 

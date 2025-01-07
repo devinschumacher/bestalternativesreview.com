@@ -63,7 +63,7 @@ Overall, the pros definitely outshine the cons in my experience with these Blair
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Green+Corduroy+Pants?utm_term=round-two-green-corduroy-hiking-pants-at-nordstrom-size-30"><img alt="round-two-corduroy-cargo-hiking-pants-in-green-at-nordstrom-size-30-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/round-two-corduroy-cargo-hiking-pants-in-green-at-nordstrom-size-30-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the perfect blend of adventure and style with Round Two's Corduroy Cargo Hiking Pants in Green.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Green-Corduroy-Pants.md) The pockets in these pants are roomy and thoughtfully designed, allowing easy access to your gear while on the trail. Cut from a soft, durable cotton corduroy, these pants are both practical and comfortable. 
+[Experience the perfect blend of adventure and style with Round Two's Corduroy Cargo Hiking Pants in Green.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Green-Corduroy-Pants.md) The pockets in these pants are roomy and thoughtfully designed, allowing easy access to your gear while on the trail. Cut from a soft, durable cotton corduroy, these pants are both practical and comfortable. 
 
 With details like a drawstring cuff, snap-flap patch pockets, and side-seam pockets, you'll be prepared for any outdoor adventure. Enjoy the versatility of these pants as they transition seamlessly from hike to casual outing. Machine wash and tumble dry for ease of care. 
 
@@ -603,7 +603,7 @@ Furthermore, green corduroy pants are often designed with practical features suc
 
 While Green Corduroy Pants are often associated with a casual, laid-back style, it is possible to dress them up and wear them in a formal setting. To achieve this, choose a tailored fit and opt for a slimmer or more streamlined design. Avoid pants with too many additional features, such as thick belts or large pockets, which may detract from a formal appearance. 
 
-Additionally, pair your green corduroy pants with a dress shirt and a blazer in a coordinating color or a complementary hue to elevate the level of formality. [When choosing shoes, stick to classic options such as black or brown leather dress shoes, and make sure they are polished to perfection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Brown-Dress-Shoes.md) With these styling tips in mind, you can successfully incorporate Green Corduroy Pants into your formal wardrobe. 
+Additionally, pair your green corduroy pants with a dress shirt and a blazer in a coordinating color or a complementary hue to elevate the level of formality. [When choosing shoes, stick to classic options such as black or brown leather dress shoes, and make sure they are polished to perfection.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Brown-Dress-Shoes.md) With these styling tips in mind, you can successfully incorporate Green Corduroy Pants into your formal wardrobe. 
 
 
 ### How should I care for my Green Corduroy Pants?

@@ -19,7 +19,7 @@ Welcome to our latest roundup article on the hottest [collagen tablets](https://
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Collagen+Tablets?utm_term=up-up-collagen-vitamin-c-tablets-for-radiant-skin-hair-and-nails"><img alt="up-up-collagen-vitamin-c-tablets-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/up-up-collagen-vitamin-c-tablets-1/h=540,fit=pad,background=black"/></a></div>
 
-Introducing the Collagen + Vitamin C Tablets from Up & Up, the perfect addition to your daily supplement routine. [Packed with 2500 milligrams of bioactive collagen and 60 milligrams of vitamin C, these easy-to-absorb tablets work wonders for promoting radiant skin, hair, and nails.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Collagen-Tablets.md) 
+Introducing the Collagen + Vitamin C Tablets from Up & Up, the perfect addition to your daily supplement routine. [Packed with 2500 milligrams of bioactive collagen and 60 milligrams of vitamin C, these easy-to-absorb tablets work wonders for promoting radiant skin, hair, and nails.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Collagen-Tablets.md) 
 
 Say goodbye to fine lines, uneven skin tone, and brittle nails, as these tablets help improve your skin's elasticity while reducing the appearance of wrinkles. The best part? 
 

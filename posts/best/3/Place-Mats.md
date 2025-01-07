@@ -171,7 +171,7 @@ Overall, though, these placemats are a great addition to any dining table, not t
 
 I recently tried out these Sparkle and Bash floral paper placemats for a dinner party I was hosting, and they truly added a touch of elegance to my table setting. Made of premium kraft paper, the placemats are sturdy and easy to tear off after use. 
 
-[The floral design is beautiful, and it matches the theme of my party perfectly.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Floral-Fabric.md) Each placemat measures 14 x 10 inches, making them a comfortable size for guests to use. However, I noticed that the placemats do tend to warp under humid conditions, which was a minor downside. 
+[The floral design is beautiful, and it matches the theme of my party perfectly.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Floral-Fabric.md) Each placemat measures 14 x 10 inches, making them a comfortable size for guests to use. However, I noticed that the placemats do tend to warp under humid conditions, which was a minor downside. 
 
 Despite that, they were easy to dispose of, and I appreciated not having to worry about cleaning them up. Overall, these Sparkle and Bash paper placemats are a great addition to any party or gathering, and the floral design adds a touch of charm that my guests loved. 
 
@@ -214,7 +214,7 @@ One of the primary considerations when selecting place mats is the material they
 
 ### Size and Shape
 
-The size and shape of your place mats will depend on the layout of your dining table and the desired aesthetic. Standard place mat sizes range from 12 to 18 inches in diameter, with square and rectangular shapes being the most common. Consider the number of seats at your table, as well as the distance between them, to determine the appropriate size for your place mats. [Additionally, consider the design elements of your dining area and choose a shape and size that complements your overall style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dining-Table-For-Small-Space.md) 
+The size and shape of your place mats will depend on the layout of your dining table and the desired aesthetic. Standard place mat sizes range from 12 to 18 inches in diameter, with square and rectangular shapes being the most common. Consider the number of seats at your table, as well as the distance between them, to determine the appropriate size for your place mats. [Additionally, consider the design elements of your dining area and choose a shape and size that complements your overall style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dining-Table-For-Small-Space.md) 
 
 
 ### Cleaning and Maintenance

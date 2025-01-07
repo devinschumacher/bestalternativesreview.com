@@ -80,7 +80,7 @@ Overall, I would highly recommend Birchwood Casey's Shoot-N-C targets to both se
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Printable+Targets?utm_term=action-tgt-b27e-orange-target-packs"><img alt="action-tgt-b27e-100pk-orange-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/action-tgt-b27e-100pk-orange-1/h=540,fit=pad,background=black"/></a></div>
 
-[Action Target's](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Action-Targets.md) [B27 targets](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/B27-Targets.md), offered in a pack of 100, are a popular choice for commercial range owners, law enforcement, and military organizations. Providing a range of target types, these products are designed for rifle sighting, law enforcement training, or 3-gun competition preparations. 
+[Action Target's](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Action-Targets.md) [B27 targets](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/B27-Targets.md), offered in a pack of 100, are a popular choice for commercial range owners, law enforcement, and military organizations. Providing a range of target types, these products are designed for rifle sighting, law enforcement training, or 3-gun competition preparations. 
 
 The orange silhouette cut off below the ring is a distinctive feature of these targets, offering excellent contrast for accurate sighting and shot placement. The targets are economically priced, making them an affordable option for a variety of scenarios. 
 

@@ -39,7 +39,7 @@ With a hydraulic storage system and a built-in USB charger, this bed combines fu
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Led+Bed?utm_term=modern-led-storage-bed-with-button-tufted-design-gray"><img alt="full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/full-size-upholstered-bed-with-hydraulic-storage-system-and-led-light-modern-platform-bed-with-butto-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the perfect blend of comfort and style with this full-size upholstered bed.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Upholstered-Bed.md) Its hydraulic storage system allows you to utilize the space beneath the mattress for storing your belongings without sacrificing the bed's overall size. The button-tufted headboard adds a modern, chic touch to your bedroom, while the LED lights offer a range of colors and patterns to match your personal preferences. 
+[Experience the perfect blend of comfort and style with this full-size upholstered bed.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Modern-Upholstered-Bed.md) Its hydraulic storage system allows you to utilize the space beneath the mattress for storing your belongings without sacrificing the bed's overall size. The button-tufted headboard adds a modern, chic touch to your bedroom, while the LED lights offer a range of colors and patterns to match your personal preferences. 
 
 The heavy-duty frame is constructed from plywood and linen, providing durability and support. At 660 pounds weight capacity, this bed is ideal for various mattress thicknesses from 6 to 10 inches. Although manual measurements may result in slight errors, this upholstered bed is an excellent addition to any master suite. 
 
@@ -144,7 +144,7 @@ The LED headboard is the cherry on top, offering 3 settings to set the perfect m
 
 Imagine coming home to a cozy, modern haven. The 'Simplie Fun Queen Size Floating Bed Frame' adds an alluring touch to your room like no other. It's like being wrapped in a warm hug every time you lay down. 
 
-[The platform bed's sleek upholstery isn't just a great design choice, it also ensures a comfortable sleep experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Platform-Bed.md) The real gem here is the built-in LED lighting system. It's not just any light, it's a colorful dreamscape that sets the mood for a perfect night's rest. And let's not forget about the USB charging feature. It's handy for those late-night phone charges. 
+[The platform bed's sleek upholstery isn't just a great design choice, it also ensures a comfortable sleep experience.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Low-Platform-Bed.md) The real gem here is the built-in LED lighting system. It's not just any light, it's a colorful dreamscape that sets the mood for a perfect night's rest. And let's not forget about the USB charging feature. It's handy for those late-night phone charges. 
 
 However, it does come with a couple of drawbacks. The price tag might be a bit steep for some, and the setup could be a bit challenging. But hey, if it means your bedroom turns into a personal spa every night, we guess it's worth it! 
 
@@ -164,7 +164,7 @@ Overall, the Afuhokles Queen Bed Frame with LED Lights Headboard and storage opt
 
 ## Buyer's Guide
 
-[A LED bed light is an essential piece of technology for any home, offering a multitude of benefits to its users.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Led-Bed.md) Whether you are looking for a versatile lighting solution for your bedroom or a therapeutic aid to help you unwind, LED bed lights can be your go-to product. In this buyer's guide, we will discuss some of the key features to consider when purchasing an LED bed light and provide general advice to ensure you make the right choice for your needs. 
+[A LED bed light is an essential piece of technology for any home, offering a multitude of benefits to its users.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Led-Bed.md) Whether you are looking for a versatile lighting solution for your bedroom or a therapeutic aid to help you unwind, LED bed lights can be your go-to product. In this buyer's guide, we will discuss some of the key features to consider when purchasing an LED bed light and provide general advice to ensure you make the right choice for your needs. 
 
 
 ### Features to Consider

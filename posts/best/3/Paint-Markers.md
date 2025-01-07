@@ -134,7 +134,7 @@ In summary, AROIC's Acrylic paint pens provide a user-friendly and high-quality 
 
 The Pintar Art Acrylic Premium Pastel Paint Pens are an all-in-one solution for artists who want to bring life to their drawings, with a medium tip of 5.0mm. These pens are filled with highly pigmented Japanese ink, providing high-quality, opaque coverage for detailed and expressive artwork. They can be used on various surfaces, including stone, rock, ceramic, paper, and glass, making them versatile for different styles and mediums. 
 
-The pens come in a vibrant assortment of primary and secondary colors that will add depth and vibrancy to any creation. [Perfect for artists of all ages, these pens make it easy to express your love for the art and to create high-quality, detailed drawings that will stand out.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Drawing-Pens.md) 
+The pens come in a vibrant assortment of primary and secondary colors that will add depth and vibrancy to any creation. [Perfect for artists of all ages, these pens make it easy to express your love for the art and to create high-quality, detailed drawings that will stand out.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Drawing-Pens.md) 
 
 
 ### [Multicolor Acrylic Paint Marker Pen - 36 Colors, Non-Toxic, Waterproof for Various Surfaces](https://serp.ly/@bar/amazon/Paint+Markers?utm\_term=multicolor-acrylic-paint-marker-pen-36-colors-non-toxic-waterproof-for-various-surfaces)

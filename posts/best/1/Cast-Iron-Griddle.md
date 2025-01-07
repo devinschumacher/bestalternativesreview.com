@@ -57,7 +57,7 @@ The convenient, rear grease trap makes cleaning a breeze, while the four feet en
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Cast+Iron+Griddle?utm_term=double-sided-cast-iron-grill-griddle-for-bbq-style-cooking"><img alt="camp-chef-cast-iron-grill-top-griddle-14-in-l-x-16-in-w-1-pk-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/camp-chef-cast-iron-grill-top-griddle-14-in-l-x-16-in-w-1-pk-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the pleasure of trying out the Camp Chef Cast Iron Grill Top Griddle, and I must say, it exceeded my expectations in more ways than one.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lodge-Griddle.md) The double-sided design of the griddle/grill combo allowed me to enjoy a delicious breakfast and later transform it into a scrumptious dinner, all without any hassle. 
+[I recently had the pleasure of trying out the Camp Chef Cast Iron Grill Top Griddle, and I must say, it exceeded my expectations in more ways than one.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lodge-Griddle.md) The double-sided design of the griddle/grill combo allowed me to enjoy a delicious breakfast and later transform it into a scrumptious dinner, all without any hassle. 
 
 One of the standout features of this griddle is its true seasoned finish. Cast iron holds the heat incredibly well, searing the meat to cook it better than any other method I've tried. The grilling ridges were reminiscent of cooking on a BBQ, giving my meal an authentic smoky flavor. Additionally, the molded handles made it easy to move the griddle around while cooking, which was a definite plus. 
 
@@ -72,7 +72,7 @@ Overall, the Cast Iron Griddle from Camp Chef proved to be a versatile and effic
 
 Embrace the versatility and convenience offered by the Traeger ModiFIRE Reversible Cast Iron Griddle. This innovative griddle lets you transform your grill into a full-fledged cooking surface with its reversible design, featuring flat and ribbed sides for varying culinary needs. 
 
-The 18.2-inch by 11-inch griddle is crafted from enamel-coated cast iron, ensuring non-stick performance and easy cleaning. [The cast iron construction also provides even heat distribution and excellent searing capabilities for your favorite dishes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cast-Iron-Casserole-Dish.md) 
+The 18.2-inch by 11-inch griddle is crafted from enamel-coated cast iron, ensuring non-stick performance and easy cleaning. [The cast iron construction also provides even heat distribution and excellent searing capabilities for your favorite dishes.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cast-Iron-Casserole-Dish.md) 
 
 One of the standout features of this griddle is its compatibility with ModiFIRE-grill grates, allowing for a secure and seamless integration. The handle openings make removing and placing the griddle a breeze, increasing precision and ease while cooking. 
 

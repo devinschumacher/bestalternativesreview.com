@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Pedigree-Small-Dog-Food.md
 
 # Unleash Healthy Energy for Your Small Dog -  Top 26 Pedigree Small Dog Food Picks
 
-[Get ready to indulge your small pooch with a delightful array of petite meals made just for them!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pedigree-Small-Dog-Food.md) In this article, we're rounding up the finest [Pedigree Small Dog Food](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pedigree-Small-Dog-Food.md) options available in the market that not only cater to their unique nutritional needs but also tantalize their taste buds. So, gear up to navigate the pet food aisles and make an informed decision that ensures your little buddy gets the best possible mealtime experience! 
+[Get ready to indulge your small pooch with a delightful array of petite meals made just for them!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pedigree-Small-Dog-Food.md) In this article, we're rounding up the finest [Pedigree Small Dog Food](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pedigree-Small-Dog-Food.md) options available in the market that not only cater to their unique nutritional needs but also tantalize their taste buds. So, gear up to navigate the pet food aisles and make an informed decision that ensures your little buddy gets the best possible mealtime experience! 
 
 *As an Amazon Affiliate, I receive compensation through qualifying purchases*
 
@@ -129,7 +129,7 @@ Pedigree Small Dog Tender Bites in Gravy is a great choice for small adult dogs 
 
 The product's size and shape make it easy to scoop and serve, and the pop-top lid is a convenient feature. The smell is appetizing and the ingredients speak for themselves. I appreciate that the brand is reliable and consistently delivers high-quality products that are easy on a dog's stomach. 
 
-Overall, Pedigree Small Dog Tender Bites in Gravy is a fantastic choice for small adult dogs who deserve the best. The flavor and texture of the food are a hit with picky eaters and the product has quickly became a staple in my dog's meal rotation. [I would highly recommend it to other dog owners seeking a nutritious and delightful wet dog food option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Nutro-Wet-Dog-Food.md) 
+Overall, Pedigree Small Dog Tender Bites in Gravy is a fantastic choice for small adult dogs who deserve the best. The flavor and texture of the food are a hit with picky eaters and the product has quickly became a staple in my dog's meal rotation. [I would highly recommend it to other dog owners seeking a nutritious and delightful wet dog food option.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Nutro-Wet-Dog-Food.md) 
 
 
 ### [Pedigree Small Dog Food: Turkey & Bacon Flavor Chopped Ground Dinner](https://serp.ly/@bar/amazon/Pedigree+Small+Dog+Food?utm\_term=pedigree-small-dog-food-turkey-bacon-flavor-chopped-ground-dinner)

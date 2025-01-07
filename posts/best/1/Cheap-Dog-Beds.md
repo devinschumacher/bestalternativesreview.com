@@ -49,7 +49,7 @@ The Pitpet Orthopedic Sofa Dog Bed is designed to provide maximum comfort for me
 
 One of the standout features is its waterproof protection, thanks to a TPU liner that guards the foam against accidents and spillage. And, for easy maintenance, the zippered cover is removable and machine washable, ensuring your dog bed remains in pristine condition even after numerous washes. The non-slip bottom provides additional stability, ensuring your pet has a secure and comfy experience. 
 
-[This rectangular dog bed is perfect for larger dogs who appreciate the extra space, and can even double as a comfortable alternative to the cold floor for puppies or senior pets.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dog-Beds-For-Large-Dogs.md) Made from durable oxford material, it's built to withstand the wear and tear of daily use, providing a long-lasting orthopedic dog bed solution for your furry companion. 
+[This rectangular dog bed is perfect for larger dogs who appreciate the extra space, and can even double as a comfortable alternative to the cold floor for puppies or senior pets.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dog-Beds-For-Large-Dogs.md) Made from durable oxford material, it's built to withstand the wear and tear of daily use, providing a long-lasting orthopedic dog bed solution for your furry companion. 
 
 
 ### [Affordable Kimpets Dog Beds for Calm Dogs](https://serp.ly/@bar/amazon/Cheap+Dog+Beds?utm\_term=affordable-kimpets-dog-beds-for-calm-dogs)

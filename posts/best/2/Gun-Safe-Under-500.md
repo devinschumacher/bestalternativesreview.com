@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Gun-Safe-Under-500.md
 
 # Secure Your Firearms with the Best Gun Safe Under $500 -  Top 20 Options
 
-[Looking for the perfect gun safe at an affordable price?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gun-Safe-Under-500.md) Look no further! In this article, we're rounding up the best gun safes under 500 dollars, providing you with a comprehensive guide to help you make the right choice for your security needs. 
+[Looking for the perfect gun safe at an affordable price?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Gun-Safe-Under-500.md) Look no further! In this article, we're rounding up the best gun safes under 500 dollars, providing you with a comprehensive guide to help you make the right choice for your security needs. 
 
 *As an Amazon Affiliate™ I receive compensation through qualifying purchases at no cost to you.*
 
@@ -185,7 +185,7 @@ However, some users have mentioned a few drawbacks, such as the audible alarm no
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Gun+Safe+Under+500?utm_term=under-500-american-furniture-classics-gun-safe"><img alt="5-gun-safe-american-furniture-classics-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/5-gun-safe-american-furniture-classics-1/h=540,fit=pad,background=black"/></a></div>
 
-[This budget-friendly gun safe from American Furniture Classics is quite the find.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Gun-Safe-Furniture.md) With a sturdy steel exterior and three-directional bolted lock system, you can rest assured knowing your valuables are well protected. The scratch-resistant finish gives it a sleek, attractive design that will fit well in any household. While it may not have all the bells and whistles of a more expensive model, for a low price point, this safe provides good value for money. 
+[This budget-friendly gun safe from American Furniture Classics is quite the find.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Gun-Safe-Furniture.md) With a sturdy steel exterior and three-directional bolted lock system, you can rest assured knowing your valuables are well protected. The scratch-resistant finish gives it a sleek, attractive design that will fit well in any household. While it may not have all the bells and whistles of a more expensive model, for a low price point, this safe provides good value for money. 
 
 However, some users have mentioned a few drawbacks. The interior may not be as spacious as expected, and the quality of the mounting hardware could be improved. Additionally, some buyers reported receiving theirs in less than perfect condition upon arrival. 
 

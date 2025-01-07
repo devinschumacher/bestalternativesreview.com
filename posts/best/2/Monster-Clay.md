@@ -215,7 +215,7 @@ Despite that, Hey Clay Monsters remains an excellent, colorful playset that fami
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Monster+Clay?utm_term=the-monster-makers-professional-monster-clay-for-sculpting"><img alt="the-monster-makers-monster-clay-hard-4-5-lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/the-monster-makers-monster-clay-hard-4-5-lb-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently discovered the world of Monster Clay, a unique sculpting medium that is a blend of oil, wax, and clay.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Monster-Clay.md) This versatile product comes in a 4.5lb tub and offers an impressive range of uses. 
+[I recently discovered the world of Monster Clay, a unique sculpting medium that is a blend of oil, wax, and clay.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Monster-Clay.md) This versatile product comes in a 4.5lb tub and offers an impressive range of uses. 
 
 What sets Monster Clay apart is its exceptional smoothness and low melt temperature, making it effortless to handle and perfect for creating fine details. It's also worth mentioning that it's compatible with platinum silicone molding compounds. One interesting feature is its ability to be reused and remelted without any hassle. 
 
@@ -250,7 +250,7 @@ Perfect for mimicking their natural habitat, the clay holds its shape to create 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Monster+Clay?utm_term=creativity-street-assorted-neon-modeling-clay"><img alt="2pc-creativity-street-modeling-clay-assortment-27-5-g-of-each-color-assorted-neon-220-g-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/2pc-creativity-street-modeling-clay-assortment-27-5-g-of-each-color-assorted-neon-220-g-1/h=540,fit=pad,background=black"/></a></div>
 
-The Creativity Street Modeling Clay Assortment from 2PC offers a versatile option for arts and crafts enthusiasts of all ages. [With its smooth consistency and easy reusability, this clay is perfect for creating unique shapes and forms that don't require the hassle of baking or firing.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Clay-For-Pottery.md) Made from vegetable-based dyes, it comes in a neon spectrum of colors, allowing for bold, vibrant creations. 
+The Creativity Street Modeling Clay Assortment from 2PC offers a versatile option for arts and crafts enthusiasts of all ages. [With its smooth consistency and easy reusability, this clay is perfect for creating unique shapes and forms that don't require the hassle of baking or firing.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Clay-For-Pottery.md) Made from vegetable-based dyes, it comes in a neon spectrum of colors, allowing for bold, vibrant creations. 
 
 The clay weighs a substantial 220g, making it durable enough for long-lasting projects. However, it's essential to note that this clay does not include baking or heating instructions, so be sure to follow your own methods for drying and hardening it. 
 

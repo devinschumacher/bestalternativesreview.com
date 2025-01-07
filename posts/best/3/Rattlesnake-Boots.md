@@ -25,7 +25,7 @@ But that's not all. The 100% waterproof Dry-Core lining ensures your feet stay d
 
 While I loved the Venom II's protection and performance, there were a few minor drawbacks. The slip-on closure, while convenient, can take some time to get used to, especially when you're in a hurry. Additionally, the boots are made in China, which may raise concerns for some buyers. 
 
-Overall, the Venom II Wellington Snake Boots are a solid choice for hunters looking for practical, reliable, and stylish footwear. [They've become my go-to boots for hunting, and I highly recommend them to anyone who values protection and comfort in the great outdoors.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Milwaukee-Boots.md) 
+Overall, the Venom II Wellington Snake Boots are a solid choice for hunters looking for practical, reliable, and stylish footwear. [They've become my go-to boots for hunting, and I highly recommend them to anyone who values protection and comfort in the great outdoors.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Milwaukee-Boots.md) 
 
 
 ### [Laredo Stylish Rattlesnake Print Cowboy Boots](https://serp.ly/@bar/amazon/Rattlesnake+Boots?utm\_term=laredo-stylish-rattlesnake-print-cowboy-boots)
@@ -51,7 +51,7 @@ One of the standout features is the inside side zipper. It made getting these bo
 
 However, there were a couple of downsides. First, the 2.8-pound weight of each boot can feel a bit heavy after a while, especially on longer hunting trips. Secondly, the waterproofing feature didn't seem to be as efficient as advertised, as I noticed my feet got damp after several hours of walking in wet conditions. 
 
-[Overall, these boots are great for any outdoorsperson who wants to stay safe from snake bites and enjoy the protection of a waterproof boot.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Waterproof-Snake-Boots.md) Just be prepared for the added weight and potential for damp feet on soggy terrain. 
+[Overall, these boots are great for any outdoorsperson who wants to stay safe from snake bites and enjoy the protection of a waterproof boot.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Waterproof-Snake-Boots.md) Just be prepared for the added weight and potential for damp feet on soggy terrain. 
 
 
 ### [Rocky Rattlesnake Rubber Boots for Rough Terrains](https://serp.ly/@bar/amazon/Rattlesnake+Boots?utm\_term=rocky-rattlesnake-rubber-boots-for-rough-terrains)
@@ -134,7 +134,7 @@ One of the standout features of these boots was the scent-disguising technology,
 
 Equip your kids with the perfect outdoor companion - the Youth Venom II Snake Boots. Designed for total protection against pesky snakes, these boots feature a flexible 360° Snake Guard to keep your young adventurer safe. The 100% waterproof Dry-Core lining ensures that even the wettest terrain won't dampen their spirits, while the thick EVA midsole delivers both shock absorption and rebound for maximum comfort. 
 
-[And with an easy side zipper for on-and-off convenience, these boots are the perfect choice for your whole family's outdoor escapades.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
+[And with an easy side zipper for on-and-off convenience, these boots are the perfect choice for your whole family's outdoor escapades.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Keen-Boots.md) 
 
 
 ### [Frogg Toggs Men's Ridge Buster Rattlesnake Insulated Boots](https://serp.ly/@bar/amazon/Rattlesnake+Boots?utm\_term=frogg-toggs-mens-ridge-buster-rattlesnake-insulated-boots)

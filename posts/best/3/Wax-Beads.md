@@ -367,7 +367,7 @@ Soy wax is a more eco-friendly option, sourced from soybeans, making it a renewa
 
 ### Can Wax Beads Be Toxic?
 
-The toxicity of wax beads is contingent on the wax type used. Paraffin wax, the most common variety, contains no harmful additives or chemicals. However, some candle-making blends may contain lead or other heavy metals as colorants, which can emit toxic fumes when burnt. [To minimize the toxicity risk, it is advisable to use natural waxes, such as soy or beeswax, in candle making and other applications.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wax-For-Candle-Making.md)
+The toxicity of wax beads is contingent on the wax type used. Paraffin wax, the most common variety, contains no harmful additives or chemicals. However, some candle-making blends may contain lead or other heavy metals as colorants, which can emit toxic fumes when burnt. [To minimize the toxicity risk, it is advisable to use natural waxes, such as soy or beeswax, in candle making and other applications.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Wax-For-Candle-Making.md)
 
 It is also necessary to adhere to safety protocols when handling wax beads. Wax can ignite, so it requires careful handling, particularly during candle production. It is recommended to work in a well-ventilated area to prevent inhaling potentially hazardous fumes that may be released during the process.
 

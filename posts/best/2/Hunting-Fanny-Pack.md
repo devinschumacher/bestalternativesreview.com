@@ -76,7 +76,7 @@ The real standout feature for me was the number of compartments it offers--four 
 
 But it's not all smooth sailing. The Q/R buckle adjusts its size to fit a wide range, but I found it a bit difficult to get just right. And then, there's the issue of patches––they're sold separately. It's a minor inconvenience, but it's something potential buyers should be aware of. 
 
-[Despite these minor issues, I've got to admit, I look pretty cool rocking this fanny pack.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Adidas-Fanny-Pack.md) It adds a touch of tactical style to my outfit that I quite like. So, if you're after a durable, functional fanny pack for your next hunting trip, give this Trooper Tactical fanny pack a go. 
+[Despite these minor issues, I've got to admit, I look pretty cool rocking this fanny pack.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Adidas-Fanny-Pack.md) It adds a touch of tactical style to my outfit that I quite like. So, if you're after a durable, functional fanny pack for your next hunting trip, give this Trooper Tactical fanny pack a go. 
 
 
 ### [Innturt Nylon Hunting Fanny Pack - Rugged & Versatile Storage Solution](https://serp.ly/@bar/amazon/Hunting+Fanny+Pack?utm\_term=innturt-nylon-hunting-fanny-pack-rugged-versatile-storage-solution)

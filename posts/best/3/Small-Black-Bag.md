@@ -72,7 +72,7 @@ My experience with this bag has been nothing but positive. The leather is butter
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Small+Black+Bag?utm_term=small-faux-leather-sling-bag-for-women-black"><img alt="cluci-small-sling-bag-leather-crossbody-fanny-packs-trendy-womens-chest-bag-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/cluci-small-sling-bag-leather-crossbody-fanny-packs-trendy-womens-chest-bag-black-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently got my hands on the CLUCI Small Sling Bag, a chic and versatile faux leather crossbody fanny pack designed for women.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sling-Bags-For-Women.md) The first thing that stood out to me was the high-quality construction and stylish leather finish. It not only looked great, but it also had a pleasant scent, unlike some other bags I've tried. 
+[I recently got my hands on the CLUCI Small Sling Bag, a chic and versatile faux leather crossbody fanny pack designed for women.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Sling-Bags-For-Women.md) The first thing that stood out to me was the high-quality construction and stylish leather finish. It not only looked great, but it also had a pleasant scent, unlike some other bags I've tried. 
 
 I really loved the multiple ways to carry the bag, thanks to the adjustable shoulder strap. I could wear it as a crossbody purse, sling bag, chest bag, or even as a shoulder bag, depending on the occasion and my outfit. The strap length ranged from 25.59 to 48.03 inches, making it perfect for different body types and situations. 
 

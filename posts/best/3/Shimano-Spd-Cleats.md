@@ -111,7 +111,7 @@ In summary, the Shimano SM-SH51 shoe cleat is a well-regarded and reliable choic
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Shimano+Spd+Cleats?utm_term=shimano-sp-easy-off-pedalset-with-spd-single-release-cleats-for-mtb-cycling"><img alt="shimano-spd-easy-off-pedalset-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/shimano-spd-easy-off-pedalset-1/h=540,fit=pad,background=black"/></a></div>
 
-[Last week, I decided to try out the Shimano SPD Easy-Off pedalset.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shimano-Clipless-Pedals.md) I'd been struggling to find a solution to easily release my SPD shoes while off-road, as I often find myself needing to walk through tricky terrains. 
+[Last week, I decided to try out the Shimano SPD Easy-Off pedalset.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Shimano-Clipless-Pedals.md) I'd been struggling to find a solution to easily release my SPD shoes while off-road, as I often find myself needing to walk through tricky terrains. 
 
 As soon as I installed these cleats on my Mountain Bike shoes, I noticed a marked improvement. The SPD single release cleats allowed me to negotiate rocks, roots, and tree roots with ease, all while retaining a solid connection to the pedals. The cleats sit recessed in the sole of the shoe, allowing for a natural walking motion without compromising power and control when pedaling. 
 

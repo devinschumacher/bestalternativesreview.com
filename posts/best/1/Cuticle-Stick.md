@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cuticle-Stick.md
 
 # Get Perfect Nails with Our Top 19 Cuticle Stick Recommendations
 
-Hey there, beauty enthusiasts! [Are you always on the lookout for the latest and greatest cuticle care products?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cuticle-Stick.md) Good news! In this roundup, we'll be exploring some of the best cuticle sticks on the market. Say goodbye to those unsightly cuticles once and for all! 
+Hey there, beauty enthusiasts! [Are you always on the lookout for the latest and greatest cuticle care products?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cuticle-Stick.md) Good news! In this roundup, we'll be exploring some of the best cuticle sticks on the market. Say goodbye to those unsightly cuticles once and for all! 
 
 *As an Amazon Affiliate, I may earn through qualifying purchases*
 

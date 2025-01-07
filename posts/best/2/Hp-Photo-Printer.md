@@ -325,7 +325,7 @@ However, some users have reported issues with photo quality and ink consumption,
 
 The HP Sprocket Select is a handy device for those who enjoy capturing and showcasing moments through tangible, printed photos. Boasting sleek dimensions that make it convenient to take on the go, it effortlessly allows you to print high-quality images straight from your social media feed onto sticky-back photographs nearly 30% larger than the original Sprocket Photo Printer. 
 
-With zero ink technology, you can easily create beautiful keepsakes anywhere and anytime. However, a few users have noticed that print quality may not be up to par with comparable devices. [Overall, this portable printer is a great tool for sharing memories and offers nearly limitless customization options, making it a popular choice for both personal and gift-giving purposes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hp-Portable-Printer.md) 
+With zero ink technology, you can easily create beautiful keepsakes anywhere and anytime. However, a few users have noticed that print quality may not be up to par with comparable devices. [Overall, this portable printer is a great tool for sharing memories and offers nearly limitless customization options, making it a popular choice for both personal and gift-giving purposes.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hp-Portable-Printer.md) 
 
 
 ### [HP Portable Blush Pink Instant Photo Printer with Zink Paper Bundle](https://serp.ly/@bar/amazon/Hp+Photo+Printer?utm\_term=hp-portable-blush-pink-instant-photo-printer-with-zink-paper-bundle)

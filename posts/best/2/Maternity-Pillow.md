@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Maternity-Pillow.md
 
 # Sleep Soundly -  19 Best Maternity Pillows for Comfort and Support During Pregnancy
 
-Welcome, mamas-to-be! [Are you in the hunt for the perfect sleep companion during your pregnancy?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Maternity-Pillow.md) Look no further than our comprehensive roundup on the top maternity pillows! We've gathered a selection of cushiony, supportive products designed to alleviate pregnancy discomfort and help you catch some much-needed Zs. 
+Welcome, mamas-to-be! [Are you in the hunt for the perfect sleep companion during your pregnancy?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Maternity-Pillow.md) Look no further than our comprehensive roundup on the top maternity pillows! We've gathered a selection of cushiony, supportive products designed to alleviate pregnancy discomfort and help you catch some much-needed Zs. 
 
 *As an Amazon Affiliate™, we receive compensation from qualifying purchases.*
 
@@ -21,7 +21,7 @@ Welcome, mamas-to-be! [Are you in the hunt for the perfect sleep companion durin
 
 Using the Allswell Full Wrap-Around Oversized Pregnancy Pillow has been a game-changer in my daily life, especially during the nighttime. The pillow's multi-use design has greatly improved my sleep quality, providing a soft and snuggly pillow every time I lay my head on it. 
 
-One of the highlights of this pillow is its unique design. [As a side sleeper, the wrap-around feature gives me much-needed support, keeping my head, neck, and upper body properly aligned all night long.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Side-Sleeper-Pillow.md) It's been particularly helpful while navigating through my ever-changing body shape during my pregnancy. 
+One of the highlights of this pillow is its unique design. [As a side sleeper, the wrap-around feature gives me much-needed support, keeping my head, neck, and upper body properly aligned all night long.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Side-Sleeper-Pillow.md) It's been particularly helpful while navigating through my ever-changing body shape during my pregnancy. 
 
 One thing I did find slightly disappointing was the cover's odor. After a long day, I appreciate having a pillow that smells fresh, but this one had an unusual egg-like smell that was hard to ignore. However, I did appreciate the activated charcoal and antimicrobial properties meant to keep the pillow fresher for a longer time. 
 

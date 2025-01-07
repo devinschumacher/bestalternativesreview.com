@@ -45,7 +45,7 @@ Ideal for those who want a fragrance-free shave, this balm hydrates and reduces 
 
 I've been using the Hurley Men's Aftershave on a regular basis, and I can tell you it's a great addition to my skincare routine. The menthol in this product creates a refreshing sensation after shaving, which I've found helps to soothe razor burn. What's more, its lightweight and fast-absorbing formula means it leaves my skin feeling soft and moisturized. 
 
-[As someone who is conscious about what's going onto my skin, this after-shave is a perfect fit for me.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/After-Shave.md) It's free from parabens and cruelty-free, providing me the peace of mind that comes with using high-quality, natural products. The directions for use are straightforward, and I simply massage a small amount into my face and neck after shaving. 
+[As someone who is conscious about what's going onto my skin, this after-shave is a perfect fit for me.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/After-Shave.md) It's free from parabens and cruelty-free, providing me the peace of mind that comes with using high-quality, natural products. The directions for use are straightforward, and I simply massage a small amount into my face and neck after shaving. 
 
 While I enjoy the cooling sensation it provides, I have noticed that it can be quite a strong smell for some people. However, it's a small price to pay for the benefits it offers. Overall, I'd definitely recommend the Hurley Men's Aftershave to anyone looking for a soothing, moisturizing post-shave treatment. 
 

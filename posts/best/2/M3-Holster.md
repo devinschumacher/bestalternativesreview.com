@@ -54,7 +54,7 @@ Available for both right-hand and left-hand draw in dozens of Kydex and Holstex 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/M3+Holster?utm_term=iwb-tactical-m3-holster-for-p320-m17-p320c-m18-xcarry-x300u-right-hand"><img alt="sig-p320-m17-p320c-m18-xcarry-x300u-iwb-tactical-alpha-kydex-holster-quickship-cg-holsters-right-han-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/sig-p320-m17-p320c-m18-xcarry-x300u-iwb-tactical-alpha-kydex-holster-quickship-cg-holsters-right-han-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience ultimate concealed carry with C&G's IWB TACTICAL ALPHA-Upgradeable Kydex Holster, designed specifically for light-bearing accessories.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Iwb-Kydex-Holster.md) This sturdy and reliable holster ensures a discreet and secure carry, catering to various carry positions. The holster's high-quality material offers superior durability and easy draw. 
+[Experience ultimate concealed carry with C&G's IWB TACTICAL ALPHA-Upgradeable Kydex Holster, designed specifically for light-bearing accessories.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Iwb-Kydex-Holster.md) This sturdy and reliable holster ensures a discreet and secure carry, catering to various carry positions. The holster's high-quality material offers superior durability and easy draw. 
 
 Although it may not be the best for all scenarios, its versatility and reliability make it a solid choice for everyday use. 
 

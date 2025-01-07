@@ -148,7 +148,7 @@ However, one downside I noticed was the scent. It smelled quite strong and almos
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Permanent+Hair+Dye?utm_term=salon-quality-permanent-hair-dye-for-at-home-use"><img alt="revlon-colorsilk-beautiful-color-permanent-hair-color-colorsilk-mushroom-blonde-72b-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/revlon-colorsilk-beautiful-color-permanent-hair-color-colorsilk-mushroom-blonde-72b-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently gave the Revlon Colorsilk Permanent Hair Color a try, and I must say, I was quite impressed!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Revlon-Hair-Dye.md) The kit was convenient and easy to use, thanks to its no-mess, non-drip formula and precision applicator. 
+[I recently gave the Revlon Colorsilk Permanent Hair Color a try, and I must say, I was quite impressed!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Revlon-Hair-Dye.md) The kit was convenient and easy to use, thanks to its no-mess, non-drip formula and precision applicator. 
 
 One of the standout features for me was the 100% gray coverage. [My hair had a few pesky grays that I wanted to cover, and this product did the job flawlessly.](https://gist.github.com/janeknowsbest77/bfae31d7187d16d8aa6dab0a7c0048eb) It delivered rich, natural-looking color with a beautiful shine that lasted for weeks. I was pleasantly surprised by how well this product covered my grays. 
 
@@ -272,7 +272,7 @@ When choosing permanent hair dye, consider the color selection offered by the br
 
 ### Conditioning Properties
 
-Permanent hair dye can affect the hair's health, so opt for a product that includes conditioning properties. This will help to keep your hair moisturized and reduce damage caused by the dyeing process. [Look for dyes that contain natural ingredients or conditioning agents to improve the overall health of your hair.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Organic-Hair-Color.md) 
+Permanent hair dye can affect the hair's health, so opt for a product that includes conditioning properties. This will help to keep your hair moisturized and reduce damage caused by the dyeing process. [Look for dyes that contain natural ingredients or conditioning agents to improve the overall health of your hair.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Organic-Hair-Color.md) 
 
 <div><a href="https://serp.ly/@bar/amazon/Permanent+Hair+Dye"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Permanent-Hair-Dye-3/h=540,fit=pad,background=black" alt="Permanent-Hair-Dye-3" height="540"></a></div>
 

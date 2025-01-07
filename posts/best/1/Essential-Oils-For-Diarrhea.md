@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Essential-Oils-For-Diarrhea.md
 
 # Alleviate Diarrhea Symptoms -  Top 20 Essential Oils to Naturalize Your Relief
 
-Are you tired of constantly dealing with diarrhea and its uncomfortable symptoms? Look no further. [In this article, we present a roundup of essential oils that can help alleviate the discomfort and restore your digestive balance.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Essential-Oils-For-Diarrhea.md) Join us as we explore natural solutions to your diarrhea troubles. 
+Are you tired of constantly dealing with diarrhea and its uncomfortable symptoms? Look no further. [In this article, we present a roundup of essential oils that can help alleviate the discomfort and restore your digestive balance.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Essential-Oils-For-Diarrhea.md) Join us as we explore natural solutions to your diarrhea troubles. 
 
 *As an Amazon Affiliate™, we may earn from qualifying purchases!*
 
@@ -168,7 +168,7 @@ This product is perfect for someone like me who's getting started on their essen
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Diarrhea?utm_term=mary-tylor-naturals-organic-peppermint-essential-oil-relief-for-diarrhea"><img alt="organic-peppermint-essential-oil-4-oz-usda-certified-mentha-piperita-perfect-for-aromatherapy-diffus-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/organic-peppermint-essential-oil-4-oz-usda-certified-mentha-piperita-perfect-for-aromatherapy-diffus-1/h=540,fit=pad,background=black"/></a></div>
 
-[As someone who enjoys using natural products for aromatherapy, I recently tried Mary Tylor Naturals' Organic Peppermint Essential Oil.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mint-Essential-Oil.md) The first thing that struck me was the large 4 oz size, which made it feel like a substantial purchase. The amber glass bottle with a high-quality glass dropper was a nice touch, giving it a premium look and feel. 
+[As someone who enjoys using natural products for aromatherapy, I recently tried Mary Tylor Naturals' Organic Peppermint Essential Oil.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mint-Essential-Oil.md) The first thing that struck me was the large 4 oz size, which made it feel like a substantial purchase. The amber glass bottle with a high-quality glass dropper was a nice touch, giving it a premium look and feel. 
 
 One feature I appreciated was the mentions of safety precautions, such as not using the oil near my eyes, discontinuing use if irritation occurs, and keeping it away from children and pets. These are important considerations when working with essential oils, as they can be quite potent. 
 

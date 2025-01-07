@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Electric-Air-Conditioner.md
 
 # Cool Off in Style -  Our Top 18 Best Selling Electric Air Conditioners for Home and Office
 
-Are you tired of sweltering in the heat during the summer months? [Look no further than our top picks for electric air conditioners that will keep you cool and comfortable in your own home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Electric-Air-Conditioner.md) [In this roundup, we'll showcase the best models on the market, highlighting their features, pros, and cons to help you make an informed decision on your next purchase.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Model-Cars-To-Build.md) 
+Are you tired of sweltering in the heat during the summer months? [Look no further than our top picks for electric air conditioners that will keep you cool and comfortable in your own home.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Electric-Air-Conditioner.md) [In this roundup, we'll showcase the best models on the market, highlighting their features, pros, and cons to help you make an informed decision on your next purchase.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Model-Cars-To-Build.md) 
 
 *As an Amazon Affiliate we receive compensation from qualifying purchases*
 
@@ -147,7 +147,7 @@ It straddles the wall, which makes it safe and keeps it from falling out like a 
 
 Moreover, when installed, it requires minimal sill space and enables you to open your window for a refreshing breeze or interaction with neighbors. The air conditioner also comes with voice-contated Wi-Fi technology, enabling users to control the unit via Alexa or Google Assistant. 
 
-Other features including energy-saving mode, sleep mode, auto-restart, and loss of power protection. Its size accommodates a 10.5-inch opening, accommodating most windows and sills in the U. S. , while adjustable feet allow users to fit it to skinnier walls. [Despite the potential challenges of portability due to its size and weight, this product provides a new standard for air conditioning, delivering an efficient cooling system suitable for a variety of spaces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Whynter-Air-Conditioner.md) 
+Other features including energy-saving mode, sleep mode, auto-restart, and loss of power protection. Its size accommodates a 10.5-inch opening, accommodating most windows and sills in the U. S. , while adjustable feet allow users to fit it to skinnier walls. [Despite the potential challenges of portability due to its size and weight, this product provides a new standard for air conditioning, delivering an efficient cooling system suitable for a variety of spaces.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Whynter-Air-Conditioner.md) 
 
 
 ### [Midea Duo 12,000-btu Inverter Portable Air Conditioner - Space-Saving and Energy-Efficient Cooling Solution](https://serp.ly/@bar/amazon/Electric+Air+Conditioner?utm\_term=midea-duo-12000-btu-inverter-portable-air-conditioner-space-saving-and-energy-efficient-cooling-solution)

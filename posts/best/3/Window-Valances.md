@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/3/Window-Valances.md
 
 Dress up your windows in style with our collection of [window valances](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Window-Valances.md). These unique and versatile decorative pieces are not only functional, but also add a touch of elegance and personality to any room. 
 
-In this roundup, we've curated a selection of top-rated window valances that are perfect for adding a pop of color, texture, or pattern to your home. [From elegant and simple designs to more intricate and eye-catching options, we've got something to suit every taste and decor style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Decorative-Home-Collection.md) Whether you're looking for a statement piece or a subtle accent, our guide to window valances has got you covered. 
+In this roundup, we've curated a selection of top-rated window valances that are perfect for adding a pop of color, texture, or pattern to your home. [From elegant and simple designs to more intricate and eye-catching options, we've got something to suit every taste and decor style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Decorative-Home-Collection.md) Whether you're looking for a statement piece or a subtle accent, our guide to window valances has got you covered. 
 
 *As an Amazon Affiliate, we may earn from qualified purchases at no cost to you.*
 
@@ -65,9 +65,9 @@ Overall, I enjoyed using this Allegra Window Curtain Panel with Attached Valance
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Window+Valances?utm_term=homedocr-blackout-window-valances-for-kitchen-insulation"><img alt="homedocr-valance-curtains-for-kitchen-blackout-thermal-insulated-solid-window-cu-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/homedocr-valance-curtains-for-kitchen-blackout-thermal-insulated-solid-window-cu-1/h=540,fit=pad,background=black"/></a></div>
 
-[I've been using the Homedocr Valance Curtains for a while now, and they've been an impressive addition to my kitchen window.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kitchen-Window-Curtains.md) Made from high-density polyester, these curtains are super soft and durable, with a light-filtering opacity that helps to block out sunlight and UV rays. 
+[I've been using the Homedocr Valance Curtains for a while now, and they've been an impressive addition to my kitchen window.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kitchen-Window-Curtains.md) Made from high-density polyester, these curtains are super soft and durable, with a light-filtering opacity that helps to block out sunlight and UV rays. 
 
-The 2-inch rod pocket design fits perfectly on any standard rods, making installation a breeze. [I love how these curtains can make my space look more elegant and provide a delightful balance of temperature between indoors and outdoors, especially during summer and winter months.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lush-Decor-Curtains.md) 
+The 2-inch rod pocket design fits perfectly on any standard rods, making installation a breeze. [I love how these curtains can make my space look more elegant and provide a delightful balance of temperature between indoors and outdoors, especially during summer and winter months.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lush-Decor-Curtains.md) 
 
 Not only do these curtains protect my furniture and floor from damage, but they also add to the overall privacy of my home. They're easy to clean too, simply machine washable or tumble dry on low, and can be ironed at low temperatures. 
 

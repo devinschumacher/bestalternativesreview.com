@@ -56,7 +56,7 @@ The Rom&nd Dewyful Water Tint offers a breathable formula that doesn't feel heav
 
 In addition to its impressive performance, the product comes with an easy-to-use applicator that effortlessly glides onto the lips, ensuring an even and seamless application. Its long-lasting formula keeps the color vibrant throughout the day, making touch-ups a breeze. 
 
-Although some users reported minor issues with the applicator, overall, the Rom&nd Dewyful Water Tint has won the hearts of its users for its nourishing and attractive formula. [With its natural finish and long-lasting power, it's a must-have for any lip color enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lip-Gloss.md) 
+Although some users reported minor issues with the applicator, overall, the Rom&nd Dewyful Water Tint has won the hearts of its users for its nourishing and attractive formula. [With its natural finish and long-lasting power, it's a must-have for any lip color enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lip-Gloss.md) 
 
 
 ### [Saint Laurent Vinyl Cream Lip Stain for a Vibrant Pink Pout](https://serp.ly/@bar/amazon/Lip+Stain?utm\_term=saint-laurent-vinyl-cream-lip-stain-for-a-vibrant-pink-pout)
@@ -85,7 +85,7 @@ However, it's essential to note that while the Poutsicle Hydrating Lip Stain del
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Lip+Stain?utm_term=fenty-beauty-zesty-bestie-lip-stain"><img alt="fenty-beauty-poutsicle-hydrating-lip-stain-zesty-bestie-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fenty-beauty-poutsicle-hydrating-lip-stain-zesty-bestie-1/h=540,fit=pad,background=black"/></a></div>
 
-I experienced instant hydration when I first tried Fenty Beauty's Poutsicle Hydrating Lip Stain in the Zesty Bestie shade. [This lip tint offers both comfort and lusciousness, allowing for an everyday glow with just a subtle hint of color.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lip-Tints.md) The long-wearing, lightweight formula was truly impressive; I found that my lips were not left feeling dry or uncomfortable after wearing it for hours. 
+I experienced instant hydration when I first tried Fenty Beauty's Poutsicle Hydrating Lip Stain in the Zesty Bestie shade. [This lip tint offers both comfort and lusciousness, allowing for an everyday glow with just a subtle hint of color.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lip-Tints.md) The long-wearing, lightweight formula was truly impressive; I found that my lips were not left feeling dry or uncomfortable after wearing it for hours. 
 
 However, the applicator took a bit more work than expected to achieve an even application around the corners of my lips. The lip stain does have a tendency to leak through the applicator and onto the sides of the cap, which I found to be a bit wasteful and concerning for hygiene reasons. Nonetheless, the pros of this product far outweigh the cons, and I thoroughly enjoyed using it in my daily routine. 
 

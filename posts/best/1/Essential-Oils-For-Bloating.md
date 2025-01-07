@@ -101,7 +101,7 @@ In conclusion, Doterra DigestZen is an indispensable tool for anyone seeking a n
 
 Recently, I stumbled upon this delightful Peppermint Essential Oil Blend from Nature's Truth. Every day, I find myself reaching for it to refresh my mood and my surroundings. The tiny bottle of pure plant-based Peppermint oil infused with coconut oil has become an essential part of my daily routine. Not only does it smell divine, but it also serves multiple purposes. 
 
-Using this Peppermint oil blend as an aromatic hydrating body spray brings a sense of tranquility and vigor. I've even discovered that it works wonders in revitalizing tired-looking skin. [I love to use it as an air freshener, too - a few light sprays lift the mood of any room and keep it smelling crisp and cool.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Freshener-For-Home.md) 
+Using this Peppermint oil blend as an aromatic hydrating body spray brings a sense of tranquility and vigor. I've even discovered that it works wonders in revitalizing tired-looking skin. [I love to use it as an air freshener, too - a few light sprays lift the mood of any room and keep it smelling crisp and cool.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Freshener-For-Home.md) 
 
 The only thing that slightly bothered me is the difficulty in controlling the amount of liquid that comes out each time you spray. It can be a little too generous, making it a bit hard to create that perfect mist. 
 
@@ -202,7 +202,7 @@ Overall, Tummy-Aid essential oil blend is an effective product that can help wit
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Essential+Oils+For+Bloating?utm_term=relief-peppermint-essential-oil-alleviates-nausea-aches-improves-respiratory-health"><img alt="easycomforts-healthful-naturals-peppermint-essential-oil-30-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/easycomforts-healthful-naturals-peppermint-essential-oil-30-ml-1/h=540,fit=pad,background=black"/></a></div>
 
-Imagine treating yourself to a soothing, menthol aroma that can help relieve nausea and ease muscle pains. [Healthful Naturals Peppermint essential oil, with its sweet undertones, is not just perfect for aromatherapy, but also for your everyday needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mint-Essential-Oil.md) Carefully steam-distilled from a perennial herb, the oil boasts an invigorating minty scent that blends well with other essentials like rosemary, lavender, or tea tree. 
+Imagine treating yourself to a soothing, menthol aroma that can help relieve nausea and ease muscle pains. [Healthful Naturals Peppermint essential oil, with its sweet undertones, is not just perfect for aromatherapy, but also for your everyday needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mint-Essential-Oil.md) Carefully steam-distilled from a perennial herb, the oil boasts an invigorating minty scent that blends well with other essentials like rosemary, lavender, or tea tree. 
 
 The 30 ml bottle, housing 500 drops, might be a bit of a reach, but it's worth the stretch for its effectiveness. It offers relief for more than just physical pain, contributing positively to your respiratory health, too. 
 

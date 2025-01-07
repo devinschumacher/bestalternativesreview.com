@@ -397,7 +397,7 @@ Although most of the Albariño grape production is concentrated in Galicia, it c
 
 Albariño wines are extremely versatile, making them a great choice for pairing with a wide range of dishes. Their crisp acidity and refreshing character complement a variety of flavors, textures, and cuisines. Some recommended food pairings with Albariño wines include seafood and shellfish, such as oysters, mussels, clams, shrimp, and fish served with a light sauce. Lightly seasoned grilled or roasted poultry, game, and vegetable dishes are also excellent accompaniments to Albariño wines. 
 
-[These wines are also well-suited for summertime barbecues or picnics, as they can help balance the richness of grilled meats and the tangy flavors of salads.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Canned-Wine.md) Another great food pairing option for Albariño wines is sushi or other raw fish dishes, which allow the wine's crisp acidity to help cut through the fats and oils in the dishes. Overall, Albariño wines are incredibly versatile and can be easily enjoyed with a wide array of food pairings. 
+[These wines are also well-suited for summertime barbecues or picnics, as they can help balance the richness of grilled meats and the tangy flavors of salads.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Canned-Wine.md) Another great food pairing option for Albariño wines is sushi or other raw fish dishes, which allow the wine's crisp acidity to help cut through the fats and oils in the dishes. Overall, Albariño wines are incredibly versatile and can be easily enjoyed with a wide array of food pairings. 
 
 
 ### How does Albariño wine compare to Sauvignon Blanc?

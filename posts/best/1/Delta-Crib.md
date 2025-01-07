@@ -179,7 +179,7 @@ The Delta Children Folding Portable Crib with Mattress in Grey is a versatile an
 
 Made from wood, plastic, and metal, the crib is built to last and features a 1-inch mattress pad for added comfort. The crib meets ASTM and CPSC safety standards and is JPMA certified, ensuring your baby's safety and well-being. 
 
-With 4 rolling casters and two height options, the crib can effortlessly move around your home or be easily stored away, making it a space-saving and practical choice. [Available in various colors, the Delta Crib is designed to blend seamlessly into your living space while providing the functionality you need for your growing child.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Delta-Crib.md) 
+With 4 rolling casters and two height options, the crib can effortlessly move around your home or be easily stored away, making it a space-saving and practical choice. [Available in various colors, the Delta Crib is designed to blend seamlessly into your living space while providing the functionality you need for your growing child.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Delta-Crib.md) 
 
 
 ### [Jade by Delta Children: Convertible Crib for Growing Babies](https://serp.ly/@bar/amazon/Delta+Crib?utm\_term=jade-by-delta-children-convertible-crib-for-growing-babies)
@@ -292,7 +292,7 @@ Ensure that the Delta crib you choose is made of non-toxic materials, such as so
 
 ### Safety Features
 
-[A crib with sturdy construction and safety features is crucial for your baby's well-being.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Crib-Rail.md) Some important safety features to consider include: 
+[A crib with sturdy construction and safety features is crucial for your baby's well-being.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Crib-Rail.md) Some important safety features to consider include: 
 1. Slat width: Ensure the crib has slats that are no more than 2 3/8 inches apart, as required by the U. S. Consumer Product Safety Commission (CPSC). 2. Mattress support: Check that the crib has adjustable mattress support to maintain the appropriate height for your growing baby. 3. Corner posts: Look for cribs with smooth, rounded corner posts to prevent injury. 4. Mattress size: Choose a crib with a standard-sized mattress to ensure proper support and compatibility with bedding. 
 
 

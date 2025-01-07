@@ -273,7 +273,7 @@ In summary, the DeWalt FlexTorq 100-Piece Impact Driver Bit Set provided an exce
 
 ## Buyer's Guide
 
-[Before purchasing an impact drill set, consider the following features, considerations, and advice to ensure you select the best tool for your needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Impact-Drill-Set.md) These tips should be helpful in guiding you towards the ideal impact drill set for any task you have in mind. 
+[Before purchasing an impact drill set, consider the following features, considerations, and advice to ensure you select the best tool for your needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Impact-Drill-Set.md) These tips should be helpful in guiding you towards the ideal impact drill set for any task you have in mind. 
 
 
 ### Important Features

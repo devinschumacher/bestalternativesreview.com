@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Filtered-Water-Bottles.md
 
 # Stay Hydrated and Refreshed -  Top 13 Filtered Water Bottles for On-the-Go
 
-Staying hydrated on-the-go has never been easier with the rise of [filtered water bottles](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Filtered-Water-Bottles.md)! Say goodbye to single-use plastic and hello to an eco-friendly solution that keeps you quenched and well-informed on the go. [In this roundup, we've curated a list of top-rated filtered water bottles to help you discover the best fit for your lifestyle.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Filtered-Water-Bottles.md) 
+Staying hydrated on-the-go has never been easier with the rise of [filtered water bottles](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Filtered-Water-Bottles.md)! Say goodbye to single-use plastic and hello to an eco-friendly solution that keeps you quenched and well-informed on the go. [In this roundup, we've curated a list of top-rated filtered water bottles to help you discover the best fit for your lifestyle.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Filtered-Water-Bottles.md) 
 
 *As an Amazon Associate we may earn through qualified purchases*
 

@@ -95,7 +95,7 @@ Have you ever written a letter and wished it had a little something extra? Well,
 
 Not only does it look fabulous, but it's also practical. The paper is printer-friendly and great for handwritten notes as well, giving your messages a distinctive, vintage touch. Pair it with old-fashioned style weddings, anniversaries, or graduation letters, and you'll have the perfect complement to your gifts. 
 
-However, there's one slight downside: the paper is a bit darker than expected, which can make the ink harder to read. [But overall, the vintage stationery paper provides a delightful writing experience, reminding us of the elegance of handwritten correspondence.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Linen-Paper.md) 
+However, there's one slight downside: the paper is a bit darker than expected, which can make the ink harder to read. [But overall, the vintage stationery paper provides a delightful writing experience, reminding us of the elegance of handwritten correspondence.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Linen-Paper.md) 
 
 
 ### [White Dove 6" x 6" Cardstock Paper (100 Sheets)](https://serp.ly/@bar/amazon/Paper+Sheets?utm\_term=white-dove-6-x-6-cardstock-paper-100-sheets)
@@ -284,7 +284,7 @@ Lastly, consider the environmental impact of the paper sheets. Look for eco-frie
 
 ### What are paper sheets commonly used for?
 
-[Paper sheets are versatile products that can be used for a wide range of purposes, including printing, writing, drawing, packaging, and more.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Paper-Products.md) Their smooth texture and standard size make them ideal for everyday use in offices, schools, and homes, while their durability and strength make them suitable for industrial applications. 
+[Paper sheets are versatile products that can be used for a wide range of purposes, including printing, writing, drawing, packaging, and more.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Paper-Products.md) Their smooth texture and standard size make them ideal for everyday use in offices, schools, and homes, while their durability and strength make them suitable for industrial applications. 
 
 Some common uses of paper sheets include printing documents and materials, writing notes and letters, drawing and sketching, creating greeting cards and invitations, and packaging and wrapping gifts. Additionally, paper sheets are used in various manufacturing processes, such as food packaging, packaging for electronic devices, and in the production of hygiene products. 
 

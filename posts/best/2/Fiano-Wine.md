@@ -41,7 +41,7 @@ Sipping on Lapilli Fiano di Avellino feels like a little slice of Italy right at
 
 Once you take your first sip, you're greeted with a burst of fruity flavor, balanced out by a crisp, refreshing finish. It's a perfect match for seafood or chicken dishes, elevating your dining experience to new heights. 
 
-[This wine is not just a drink, it's a journey into the rich tapestry of Italian winemaking, a testament to tradition, and a celebration of flavors that you won't forget.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Montepulciano-Wine.md) It's indeed a must-have for any wine enthusiast yearning to explore the world of white wines. 
+[This wine is not just a drink, it's a journey into the rich tapestry of Italian winemaking, a testament to tradition, and a celebration of flavors that you won't forget.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Montepulciano-Wine.md) It's indeed a must-have for any wine enthusiast yearning to explore the world of white wines. 
 
 
 ### [Exultet: Fiano di Avellino Quintodecimo Winery's Premium White Wine](https://serp.ly/@bar/amazon/Fiano+Wine?utm\_term=exultet-fiano-di-avellino-quintodecimo-winerys-premium-white-wine)

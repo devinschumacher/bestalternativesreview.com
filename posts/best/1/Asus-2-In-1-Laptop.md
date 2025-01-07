@@ -94,7 +94,7 @@ With its compact design, you can take this laptop wherever you go. The inclusion
 
 Though it has a reliable fingerprint reader, this laptop's security could be improved. The provided limited warranty and accidental damage coverage are additional benefits of this product. 
 
-[Overall, the ASUS 2-in-1 laptop offers a versatile, easy-to-set-up experience with impressive features.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Asus-2-In-1-Laptop.md) Users can look forward to great performance and enjoy the convenience of a 2-in-1 device. 
+[Overall, the ASUS 2-in-1 laptop offers a versatile, easy-to-set-up experience with impressive features.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Asus-2-In-1-Laptop.md) Users can look forward to great performance and enjoy the convenience of a 2-in-1 device. 
 
 
 ### [Asus 2 in 1 Laptop: Intel Core m3, 8GB RAM, 64GB Storage](https://serp.ly/@bar/amazon/Asus+2+In+1+Laptop?utm\_term=asus-2-in-1-laptop-intel-core-m3-8gb-ram-64gb-storage)

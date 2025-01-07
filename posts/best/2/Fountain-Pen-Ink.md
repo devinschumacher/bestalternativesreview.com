@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Fountain-Pen-Ink.md
 
 # Write Like a Pro -  35 Best Fountain Pen Inks for Smooth Writing and Stunning Style
 
-If you're a fan of traditional writing instruments, you'll appreciate the versatility and charm of [fountain pen](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fountain-Pen.md)[fountain pen ink](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fountain-Pen-Ink.md). [In this roundup article, we'll explore a variety of ink options, each with its own unique qualities and characteristics.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Printmaking-Inks.md) From vibrant colors to elegant calligraphy, we've got you covered. [So, whether you're a seasoned fountain pen user or just starting out, keep reading to discover your new favorite ink.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fountain-Pen-Ink.md) 
+If you're a fan of traditional writing instruments, you'll appreciate the versatility and charm of [fountain pen](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fountain-Pen.md)[fountain pen ink](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Fountain-Pen-Ink.md). [In this roundup article, we'll explore a variety of ink options, each with its own unique qualities and characteristics.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Printmaking-Inks.md) From vibrant colors to elegant calligraphy, we've got you covered. [So, whether you're a seasoned fountain pen user or just starting out, keep reading to discover your new favorite ink.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Fountain-Pen-Ink.md) 
 
 *As an Amazon Affiliate™, we earn through qualifying purchases*
 
@@ -146,7 +146,7 @@ The bulletproof and water-resistant nature of the ink was another great feature,
 
 However, while I enjoyed the vibrant blue, I couldn't shake the feeling that it was a bit too capricious for my liking. The ink seemed to have a mind of its own at times, with the color feathering and bleeding on certain papers. This made it a bit challenging to use for everyday writing, as I found myself constantly readjusting my pen settings to prevent smudges. 
 
-[Despite these minor drawbacks, I would not hesitate to recommend the Noodler's Ink Fountain Pen to anyone looking for a sturdy, high-quality ink.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Drawing-Pens.md) Just make sure to test it out on your preferred paper to find the right balance between vibrancy and practicality. 
+[Despite these minor drawbacks, I would not hesitate to recommend the Noodler's Ink Fountain Pen to anyone looking for a sturdy, high-quality ink.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Drawing-Pens.md) Just make sure to test it out on your preferred paper to find the right balance between vibrancy and practicality. 
 
 
 ### [Noodler's Ink Bulletproof Fountain Pen Ink 54th Massachusetts 3oz](https://serp.ly/@bar/amazon/Fountain+Pen+Ink?utm\_term=noodlers-ink-bulletproof-fountain-pen-ink-54th-massachusetts-3oz)

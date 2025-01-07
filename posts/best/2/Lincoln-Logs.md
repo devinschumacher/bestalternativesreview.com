@@ -101,7 +101,7 @@ Trusted for over 100 years, Lincoln Logs continue to deliver high-quality toys t
 
 Lincoln Logs are a timeless and nostalgic toy that has spanned generations. This particular anniversary edition comes complete with 111 wooden pieces, all made in the USA. The classic construction set is designed for children aged 3 and up, making it a perfect gift for little ones who enjoy building things. 
 
-The logs are made from high-quality real wood that connects together, allowing for endless creativity and hours of entertainment. The set also comes with three construction ideas to inspire budding architects and builders. [Not only is this toy a fun way to pass the time, but it also aids in developing children's cognitive skills and enhancing their creativity.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
+The logs are made from high-quality real wood that connects together, allowing for endless creativity and hours of entertainment. The set also comes with three construction ideas to inspire budding architects and builders. [Not only is this toy a fun way to pass the time, but it also aids in developing children's cognitive skills and enhancing their creativity.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Smart-Toys-For-Kids.md) 
 
 Each beautifully crafted piece is traditionally colored and stained with care, evoking feelings of nostalgia and childhood memories. As America's national toy, Lincoln Logs have been providing quality playtime for a century. 
 
@@ -232,7 +232,7 @@ Recently, I stumbled upon the Lincoln Logs Collector's Edition Village, and I mu
 
 The 327 pieces are made of real, maple wood, which is not only eco-friendly but also adds to the toy's durability. The variety of roofs, chimneys, logs, and roof facades allowed my children to create unique structures with ease. The indentations on each piece made it simple for their small hands to connect the logs, fostering their creativity and building skills. 
 
-[As the toy pieces are carefully crafted and stained, they offer a visually appealing aesthetic that encouraged my children to engage in imaginative play.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Imagination-Toys.md) Each set comes with a step-by-step instruction sheet, allowing my kids to assemble the models independently or with the help of an adult. I was impressed with the assortment of models that could be built one at a time, providing endless hours of engaging entertainment. 
+[As the toy pieces are carefully crafted and stained, they offer a visually appealing aesthetic that encouraged my children to engage in imaginative play.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Imagination-Toys.md) Each set comes with a step-by-step instruction sheet, allowing my kids to assemble the models independently or with the help of an adult. I was impressed with the assortment of models that could be built one at a time, providing endless hours of engaging entertainment. 
 
 However, there were a few drawbacks to the Lincoln Logs Collector's Edition Village. I noticed that the product contained a smaller quantity of long logs compared to previous editions, which made it challenging for my children to create certain structures. Additionally, a couple of the roof pieces had paint chipping off, which I believe could be improved with better quality control. 
 

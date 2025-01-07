@@ -146,7 +146,7 @@ The FUFU&GAGA Black Wood Glass Doors Armoire is not just a wardrobe, it's a work
 
 I had the pleasure of trying out the Skyler Designs Classic 99 White Armoire, and it completely upped my wardrobe game. With its sleek design and spacious dimensions, it fits perfectly into my bedroom, and the classic white finish matches my existing decor. 
 
-What really stood out to me was the functionality of this piece. [The 6 adjustable shelves and the hanging rod make organizing my clothes a breeze, and the top and floor level storage space is super handy for storing odds and ends.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Garment-Rack-With-Shelves.md) The 2 sliding drawers on the side are a great addition for stashing away small items that I use frequently. 
+What really stood out to me was the functionality of this piece. [The 6 adjustable shelves and the hanging rod make organizing my clothes a breeze, and the top and floor level storage space is super handy for storing odds and ends.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Garment-Rack-With-Shelves.md) The 2 sliding drawers on the side are a great addition for stashing away small items that I use frequently. 
 
 However, I did find it a bit of a challenge to assemble on my own, hence the adult assembly required statement. I also wish it came with a tipover restraint device, just for added safety, especially given its size. 
 

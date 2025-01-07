@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Fruit-Hammock.md
 
 # Keep Your Fruits Fresh and Stylish with the Best 12 Fruit Hampocks
 
-[Indulge your sweet tooth and healthy cravings with our handpicked collection of the best Fruit Hammocks out there!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fruit-Hammock.md) We've rounded up some of the most scrumptious and unique selections that are sure to tantalize your taste buds. From tropical flavors to fruity concoctions, dive into this roundup and discover what makes these Fruit Hammocks stand out from the rest. 
+[Indulge your sweet tooth and healthy cravings with our handpicked collection of the best Fruit Hammocks out there!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Fruit-Hammock.md) We've rounded up some of the most scrumptious and unique selections that are sure to tantalize your taste buds. From tropical flavors to fruity concoctions, dive into this roundup and discover what makes these Fruit Hammocks stand out from the rest. 
 
 *As an Amazon Affiliate we may earn through qualifying purchases at no cost to you*
 

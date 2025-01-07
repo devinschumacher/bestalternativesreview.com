@@ -107,7 +107,7 @@ Medium-bodied, the wine is a mix of sweet and sour flavors, showcasing hints of 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Underwood+Wine?utm_term=underwood-pinot-noir-oregons-juicy-red-wine"><img alt="underwood-pinot-noir-250ml-can-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/underwood-pinot-noir-250ml-can-1/h=540,fit=pad,background=black"/></a></div>
 
-Underwood Pinot Noir, with its playful nature, has carved out a niche for itself by telling a true Oregon story. [Created with grapes from various vineyards across the state, this wine showcases an array of rich, juicy flavors characteristic of Oregon Pinot Noirs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mirassou-Pinot-Noir.md) 
+Underwood Pinot Noir, with its playful nature, has carved out a niche for itself by telling a true Oregon story. [Created with grapes from various vineyards across the state, this wine showcases an array of rich, juicy flavors characteristic of Oregon Pinot Noirs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mirassou-Pinot-Noir.md) 
 
 Its palate is filled with delightful notes of black cherry, currant, and baking spices, resulting in a beautifully balanced wine with fine tannins that culminate in a fruit-laden finish. This versatile wine is perfect for any occasion and fits seamlessly into a variety of settings. 
 
@@ -127,7 +127,7 @@ At 750ml, this champagne-style wine offers a memorable experience, but keep in m
 
 As I sipped on a can of Underwood Wine's Rose, I couldn't help but appreciate the convenience this beverage offers. Fresh and clean, this wine is the perfect companion for both laid-back and action-packed adventures. The delightful blend of strawberry, ruby grapefruit, and apricot flavors and aromas made it a pleasant surprise for my taste buds. 
 
-With its crisp finish, this delightful wine is a delightful choice for both wine enthusiasts and casual drinkers. Underwood's ability to draw from diverse vineyards and wine regions in Oregon allows them to deliver such a well-balanced, affordable product. [While some reviews were mixed, the overall positive experience left me excited to try more canned wines in the future.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Canned-Wine.md) 
+With its crisp finish, this delightful wine is a delightful choice for both wine enthusiasts and casual drinkers. Underwood's ability to draw from diverse vineyards and wine regions in Oregon allows them to deliver such a well-balanced, affordable product. [While some reviews were mixed, the overall positive experience left me excited to try more canned wines in the future.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Canned-Wine.md) 
 
 
 ### [Underwood Rose Bubbles Sparkling Wine - Oregon Champagne](https://serp.ly/@bar/amazon/Underwood+Wine?utm\_term=underwood-rose-bubbles-sparkling-wine-oregon-champagne)

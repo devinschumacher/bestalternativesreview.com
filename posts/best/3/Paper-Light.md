@@ -52,7 +52,7 @@ This eco-friendly LED desk lamp, titled as the "Paper Star Lamp, " offers a uniq
 
 The lamp's shades are made from high-quality paper, offering a soft ambient light suitable for both living rooms and bedrooms. Despite its small size, its exquisite cream white body and espresso wood base make it a perfect gift for friends and family. 
 
-The bulb is energy-saving and includes a push-button switch, making it easy and cost-effective to operate. To top it off, this lamp comes complete with an anti-dust cloth cover included as a gift. [Overall, if you're looking for a distinctive, modern LED lamp that also cares for the environment, this "Paper Star Lamp" would definitely satisfy your needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dome-Table-Lamp.md) 
+The bulb is energy-saving and includes a push-button switch, making it easy and cost-effective to operate. To top it off, this lamp comes complete with an anti-dust cloth cover included as a gift. [Overall, if you're looking for a distinctive, modern LED lamp that also cares for the environment, this "Paper Star Lamp" would definitely satisfy your needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dome-Table-Lamp.md) 
 
 
 ### [Urban Outfitters Beige Rice Paper Orb Pendant Light](https://serp.ly/@bar/amazon/Paper+Light?utm\_term=urban-outfitters-beige-rice-paper-orb-pendant-light)

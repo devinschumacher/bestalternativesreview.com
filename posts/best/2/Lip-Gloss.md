@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Lip-Gloss.md
 
 # The Best 19 Lip Glosses to Flaunt Your Pout -  Find Your Perfect Shade
 
-[Get ready to glide on some smooth, luscious lips!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lip-Gloss.md) In this roundup article, we'll be diving into the world of [lip gloss](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lip-Gloss.md) where you'll discover all the best features, from their shiny, hydrating powers to the myriad of finishes available. So, whether you're a fan of sheer, natural shades or a lover of bold, bold hues, prepare to find your favorite new essential. 
+[Get ready to glide on some smooth, luscious lips!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lip-Gloss.md) In this roundup article, we'll be diving into the world of [lip gloss](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Lip-Gloss.md) where you'll discover all the best features, from their shiny, hydrating powers to the myriad of finishes available. So, whether you're a fan of sheer, natural shades or a lover of bold, bold hues, prepare to find your favorite new essential. 
 
 *As an Amazon Affiliate I may earn through qualified purchases at no cost to you.*
 

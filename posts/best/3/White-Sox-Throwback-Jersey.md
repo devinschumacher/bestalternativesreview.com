@@ -111,7 +111,7 @@ Despite the size issue, the jersey's historical design and quality materials mad
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Sox+Throwback+Jersey?utm_term=authentic-chicago-white-sox-batting-practice-throwback-jersey"><img alt="mens-mitchell-ness-carlton-fisk-white-chicago-sox-cooperstown-mesh-batting-practice-jersey-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mens-mitchell-ness-carlton-fisk-white-chicago-sox-cooperstown-mesh-batting-practice-jersey-1/h=540,fit=pad,background=black"/></a></div>
 
-Take a step back in time with this Men's Carlton Fisk Jersey, a nod to the iconic 1981 White Chicago Sox team. [Featuring a sleek design that combines vintage style with modern comfort, this jersey is perfect for any avid sports fan.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Retro-Jerseys.md) Made of 100% polyester for ultimate breathability, this batting practice jersey features a v-neckline, mesh body, and twill team and player graphics. 
+Take a step back in time with this Men's Carlton Fisk Jersey, a nod to the iconic 1981 White Chicago Sox team. [Featuring a sleek design that combines vintage style with modern comfort, this jersey is perfect for any avid sports fan.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Retro-Jerseys.md) Made of 100% polyester for ultimate breathability, this batting practice jersey features a v-neckline, mesh body, and twill team and player graphics. 
 
 And with its officially licensed status, you'll feel like the real deal in this authentic Cooperstown Jersey, as comfortable on the field as it is at your next game day party. 
 
@@ -226,7 +226,7 @@ Overall, I highly recommend the Nike White Sox Throwback Jersey for sports enthu
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Sox+Throwback+Jersey?utm_term=vintage-white-sox-youth-baseball-jersey"><img alt="mitchell-ness-authentic-frank-thomas-chicago-white-sox-mlb-1993-pullover-jersey-youth-black-youth-xl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/mitchell-ness-authentic-frank-thomas-chicago-white-sox-mlb-1993-pullover-jersey-youth-black-youth-xl-1/h=540,fit=pad,background=black"/></a></div>
 
-Get your little baseball enthusiast ready for the game in this stylish Mitchell & Ness Authentic Frank Thomas Chicago White Sox MLB 1993 Pullover Jersey. [Featuring a rich black color and the iconic 'White Sox' emblem, this Jersey is a perfect blend of comfort and style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Baseball-Jersey.md) Designed with a breathable polyester mesh fabric, it ensures a comfy fit for the young slugger. 
+Get your little baseball enthusiast ready for the game in this stylish Mitchell & Ness Authentic Frank Thomas Chicago White Sox MLB 1993 Pullover Jersey. [Featuring a rich black color and the iconic 'White Sox' emblem, this Jersey is a perfect blend of comfort and style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Baseball-Jersey.md) Designed with a breathable polyester mesh fabric, it ensures a comfy fit for the young slugger. 
 
 With a V-neck and twill team logo on sleeves, this Jersey looks as good as it feels. The highlight of this Jersey is the twill player name and number on the back, adding a personalized touch to its design. 
 

@@ -19,7 +19,7 @@ Looking for the perfect blend of comfort and durability in your next camping adv
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Coleman+Dome+Tent?utm_term=coleman-skydome-dome-tent-with-led-lighting"><img alt="coleman-4-person-skydome-camping-tent-with-led-lighting-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coleman-4-person-skydome-camping-tent-with-led-lighting-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the perfect blend of comfort and convenience with the Coleman Skydome 4-Person Camping Tent.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coleman-Dome-Tent.md) This innovative tent features LED lighting, providing a warm and diffused glow inside that's perfect for relaxing evenings under the stars. 
+[Experience the perfect blend of comfort and convenience with the Coleman Skydome 4-Person Camping Tent.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Coleman-Dome-Tent.md) This innovative tent features LED lighting, providing a warm and diffused glow inside that's perfect for relaxing evenings under the stars. 
 
 Its nearly vertical walls offer 20% more headroom than traditional Coleman tents, while the wider door makes it a breeze to move gear in and out. Rain isn't a problem thanks to the WeatherTec system's robust protection, and the tent's sturdy frame has been tested to withstand up to 35 mph winds. 
 
@@ -134,7 +134,7 @@ Despite these minor drawbacks, the Coleman Skydome Watercolor Series 6-Person Ca
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Coleman+Dome+Tent?utm_term=coleman-peak1-6-person-dome-tent"><img alt="coleman-peak1-6-person-dome-tent-yellow-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coleman-peak1-6-person-dome-tent-yellow-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the pleasure of using the Coleman Peak1 Dome Tent on a group camping trip, and I must say, it was a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Instant-Tent.md) This tent is designed with the outdoorsman in mind, featuring a sturdy aluminum frame and the WeatherTec Plus system to keep you and your gear dry. 
+[I recently had the pleasure of using the Coleman Peak1 Dome Tent on a group camping trip, and I must say, it was a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Instant-Tent.md) This tent is designed with the outdoorsman in mind, featuring a sturdy aluminum frame and the WeatherTec Plus system to keep you and your gear dry. 
 
 One of my favorite features is the star view window, which allows you to unzip from the inside and catch a mesmerizing view of the night sky. It's even great to enhance the airflow, making it a breathable and charming addition to the tent. The wide door and vestibule also make it incredibly convenient to move and store all the necessary camping gear, such as backpacks, sleeping bags, and more. 
 

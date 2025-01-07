@@ -23,7 +23,7 @@ This roundup article, titled "[Alien Puppets](https://github.com/devinschumacher
 
 The Puppet Company presents a delightful green alien finger puppet, an ideal companion for amusing children. Crafted with soft and cuddly materials, this puppet encourages imaginative play, helping children develop creativity, communication, and social skills. 
 
-The elasticated opening ensures a snug fit on the finger, perfect for storytelling and engaging in creative play. [With an adored by both adults and children, The Puppet Company offers puppets that cater to all ages and foster a love for learning and fun.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Animal-Puppets.md) 
+The elasticated opening ensures a snug fit on the finger, perfect for storytelling and engaging in creative play. [With an adored by both adults and children, The Puppet Company offers puppets that cater to all ages and foster a love for learning and fun.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Animal-Puppets.md) 
 
 
 ### [Alien Remix Sofubi Puppet Mascot Box](https://serp.ly/@bar/amazon/Alien+Puppets?utm\_term=alien-remix-sofubi-puppet-mascot-box)

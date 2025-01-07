@@ -41,7 +41,7 @@ A must-have for outdoor enthusiasts, this cooler divider enhances the functional
 
 The Yeti Rambler 35oz Straw Mug Cosmic Lilac is a versatile and stylish addition to any outdoor enthusiast's collection. This oversized [insulated mug](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Insulated-Mug.md) is perfect for your favorite cold beverages, keeping them icy and refreshing for hours on end. The Yeti Rambler is also designed to be compatible with most cup holders, making it a convenient choice for a variety of adventures. 
 
-One of the standout features of this mug is its reusable straw, which is an eco-friendly alternative to disposable straws. The Straw Lid is shatter-resistant and BPA-free, ensuring durability and safety. [With the mug's double-wall vacuum insulation, your drinks will stay cold (or hot) longer, maintaining the perfect temperature.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Insulated-Mug.md) 
+One of the standout features of this mug is its reusable straw, which is an eco-friendly alternative to disposable straws. The Straw Lid is shatter-resistant and BPA-free, ensuring durability and safety. [With the mug's double-wall vacuum insulation, your drinks will stay cold (or hot) longer, maintaining the perfect temperature.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Insulated-Mug.md) 
 
 The Rambler is made from high-quality materials, ensuring it withstands daily use without showing signs of wear and tear. It's also dishwasher safe, making cleanup a breeze. However, one potential downside to consider is that it's not designed for use with hot beverages, so be sure to stick to cold drinks. 
 

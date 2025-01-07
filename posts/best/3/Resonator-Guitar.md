@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Resonator-Guitar.md
 
 # Master the Delta Blues Sound -  Our Top 10 Resonator Guitar Picks for Beginners
 
-[Welcome to our roundup of top-rated Resonator Guitars!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Resonator-Guitar.md) Experience the unique sound and feel of these exceptional instruments, as we showcase the best offerings from renowned manufacturers and up-and-coming brands. Get ready to discover your new favorite companion on the musical journey. 
+[Welcome to our roundup of top-rated Resonator Guitars!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Resonator-Guitar.md) Experience the unique sound and feel of these exceptional instruments, as we showcase the best offerings from renowned manufacturers and up-and-coming brands. Get ready to discover your new favorite companion on the musical journey. 
 
 *As an Amazon Associate I earn through qualifying purchases!*
 

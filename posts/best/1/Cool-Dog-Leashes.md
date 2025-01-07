@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cool-Dog-Leashes.md
 
 # The Top 20 Cool Dog Leashes for Stylish and Comfortable Walks
 
-[Who doesn't love a good accessory that highlights our pet's personality while adding a touch of style?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cool-Dog-Leashes.md) 
+[Who doesn't love a good accessory that highlights our pet's personality while adding a touch of style?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cool-Dog-Leashes.md) 
 
 Welcome to our roundup of the coolest dog leashes that are not only practical, but also stand out in a crowd for the fashion-conscious pet owner. You'll find innovative designs, eco-friendly materials, and leashes that showcase your furry friend's unique traits. Let's dive in and explore these stylish additions to your dog's wardrobe! 
 
@@ -71,7 +71,7 @@ As a dog owner, I've tried numerous leashes in the past, but the ThunderLeash ha
 
 However, the leash took some time to get used to for both my dog and me. There were instances when the leash would shift position when my dog was pulling, leading to some confusion. Additionally, the durability seemed to be a concern; one small part of the leash, the cap, went missing within a few days, which made me question the overall quality of the product. 
 
-Despite these drawbacks, the ThunderLeash has made a significant impact on our daily walks. The "no-pull" solution was genuinely effective, and the sturdy construction, along with the comfortable handle, made it a reliable choice. [I would recommend this product for dog owners looking for a simple and effective way to control their dog's pulling behavior.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Collar-For-Dogs-That-Pull.md) 
+Despite these drawbacks, the ThunderLeash has made a significant impact on our daily walks. The "no-pull" solution was genuinely effective, and the sturdy construction, along with the comfortable handle, made it a reliable choice. [I would recommend this product for dog owners looking for a simple and effective way to control their dog's pulling behavior.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Collar-For-Dogs-That-Pull.md) 
 
 
 ### [High-Durability Birddog Dog Leash with UV Resistance](https://serp.ly/@bar/amazon/Cool+Dog+Leashes?utm\_term=high-durability-birddog-dog-leash-with-uv-resistance)

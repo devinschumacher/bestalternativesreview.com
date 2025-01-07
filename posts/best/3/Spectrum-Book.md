@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Spectrum-Book.md
 
 # Literary Treasure -  18 Best Spectrum Books for Exploring Classic Literature
 
-[Gear up for an exhilarating journey as we unveil the latest and greatest in the world of literature.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Spectrum-Book.md) Welcome to our [Spectrum Book](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Spectrum-Book.md) roundup, where we've gathered an array of mesmerizing novels and inspiring non-fiction books for you to indulge in and expand your horizons. Get ready to embark on unparalleled literary adventures, and let's dive in together! 
+[Gear up for an exhilarating journey as we unveil the latest and greatest in the world of literature.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Spectrum-Book.md) Welcome to our [Spectrum Book](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Spectrum-Book.md) roundup, where we've gathered an array of mesmerizing novels and inspiring non-fiction books for you to indulge in and expand your horizons. Get ready to embark on unparalleled literary adventures, and let's dive in together! 
 
 *As an Amazon Affiliate we earn from qualified purchases at no cost to you.*
 

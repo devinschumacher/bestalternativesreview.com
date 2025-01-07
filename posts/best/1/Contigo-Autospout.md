@@ -41,7 +41,7 @@ With a solid 4.6-star rating and numerous laudable reviews, the Contigo Fit Auto
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Contigo+Autospout?utm_term=contigo-stainless-steel-travel-mug-with-autospout-lid-16-oz"><img alt="contigo-west-loop-stainless-steel-travel-mug-with-autoseal-lid-earl-grey-16-fl-oz-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/contigo-west-loop-stainless-steel-travel-mug-with-autoseal-lid-earl-grey-16-fl-oz-1/h=540,fit=pad,background=black"/></a></div>
 
-The Contigo West Loop travel mug has been a game-changer for my busy lifestyle. [As an avid coffee drinker and frequent traveler, I'm always on the lookout for a reliable mug to keep my beverages at the perfect temperature.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Insulated-Mug.md) This mug checks all the boxes for me! 
+The Contigo West Loop travel mug has been a game-changer for my busy lifestyle. [As an avid coffee drinker and frequent traveler, I'm always on the lookout for a reliable mug to keep my beverages at the perfect temperature.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Insulated-Mug.md) This mug checks all the boxes for me! 
 
 One feature that I absolutely love is the AutoSeal technology. It's not just a gimmick; it really works. Even when I'm running around with my to-go cup, the lid has never leaked or spilled a drop on me. It is truly leak-proof and spill-proof, which is an essential feature for someone who often finds herself in a rush. 
 

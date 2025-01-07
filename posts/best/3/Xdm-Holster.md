@@ -127,7 +127,7 @@ Introducing the Springfield XD-M Elite 4.5'' IWB Belt Wing Tuckable Holster, a r
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Xdm+Holster?utm_term=springfield-xd-m-paddle-holster-for-3-8in-9mm-right-hand"><img alt="rounded-owb-kydex-paddle-holster-springfield-xd-m-3-8in-9mm-right-hand-black-sfa-xdm38-bk-rh-owbpdl-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/rounded-owb-kydex-paddle-holster-springfield-xd-m-3-8in-9mm-right-hand-black-sfa-xdm38-bk-rh-owbpdl-1/h=540,fit=pad,background=black"/></a></div>
 
-[This minimalist OWB Kydex holster offers a secure grip on your firearm while remaining lightweight and durable.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Iwb-Kydex-Holster.md) Handcrafted, it's perfect for everyday open-carry situations. 
+[This minimalist OWB Kydex holster offers a secure grip on your firearm while remaining lightweight and durable.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Iwb-Kydex-Holster.md) Handcrafted, it's perfect for everyday open-carry situations. 
 
 Its adjustable cant provides versatility, and the 'Posi-Click' retention feature creates a satisfying click when holstered. The undercut trigger guard ensures easy drawing, and the over-cut open-face accommodates threaded barrels. It also supports suppressor height sights and comes with a full-length sweat guard and rear sight shield. 
 

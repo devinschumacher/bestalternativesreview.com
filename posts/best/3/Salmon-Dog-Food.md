@@ -447,7 +447,7 @@ However, there are a few drawbacks I've noticed. Sometimes, the food leaves a bi
 
 Additionally, since I've started using this food, I've had to split my dog's meals into smaller portions throughout the day to prevent stomach issues. While this isn't a big concern, it does add a bit of extra work for me. 
 
-[Overall, I think Blue Buffalo's Skin & Stomach Care, Salmon & Potato Recipe, Adult dog food has been a great choice for my dog's well-being.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Blue-Dog-Food.md) While it has some minor drawbacks, the benefits it offers to my dog's digestive health and skin make it worth the effort. 
+[Overall, I think Blue Buffalo's Skin & Stomach Care, Salmon & Potato Recipe, Adult dog food has been a great choice for my dog's well-being.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Blue-Dog-Food.md) While it has some minor drawbacks, the benefits it offers to my dog's digestive health and skin make it worth the effort. 
 
 
 ### [Nature's Recipe Grain-Free Salmon, Sweet Potato & Pumpkin Dog Food (24 lb)](https://serp.ly/@bar/amazon/Salmon+Dog+Food?utm\_term=natures-recipe-grain-free-salmon-sweet-potato-pumpkin-dog-food-24-lb)

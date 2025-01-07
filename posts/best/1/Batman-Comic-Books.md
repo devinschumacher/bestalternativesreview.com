@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Batman-Comic-Books.md
 
 # Gotham Chronicles -  21 Best Batman Comic Books for Classic and Modern Tales
 
-Hey there, comic book fans! If you're a lover of Batman, you're in luck. We've put together a roundup of some awesome [Batman comic books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Batman-Comic-Books.md) that you simply can't miss. Dive into these thrilling tales and experience the Caped Crusader's adventures like never before. [So, grab your favorite comic book reading gear and get ready to embark on a journey through Gotham City.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Batman-Comic-Books.md) 
+Hey there, comic book fans! If you're a lover of Batman, you're in luck. We've put together a roundup of some awesome [Batman comic books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Batman-Comic-Books.md) that you simply can't miss. Dive into these thrilling tales and experience the Caped Crusader's adventures like never before. [So, grab your favorite comic book reading gear and get ready to embark on a journey through Gotham City.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Batman-Comic-Books.md) 
 
 *As an Amazon Associate, I receive compensation through qualified purchases!*
 
@@ -21,7 +21,7 @@ Hey there, comic book fans! If you're a lover of Batman, you're in luck. We've p
 
 In this gripping comic book series, readers are introduced to a dark mystery that Batman must solve. Warren Ellis and Bryan Hitch, a renowned duo, take us on an emotional rollercoaster. 
 
-[This thrilling adventure, set in the DC Universe, is a must-read for comic book fans.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Maximum-Comics.md) The creative team tackles heavy themes, leaving readers questioning their own beliefs. While there may be instances where the story can be overwhelming, the captivating illustrations and engaging storyline make the ride worthwhile. 
+[This thrilling adventure, set in the DC Universe, is a must-read for comic book fans.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Maximum-Comics.md) The creative team tackles heavy themes, leaving readers questioning their own beliefs. While there may be instances where the story can be overwhelming, the captivating illustrations and engaging storyline make the ride worthwhile. 
 
 The World's Greatest Detective faces his deepest fears and uncovers the truth behind the murder, leaving a memorable impact on the reader. 
 

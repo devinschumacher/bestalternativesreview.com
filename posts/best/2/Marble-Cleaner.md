@@ -208,7 +208,7 @@ It's compatible not just with marble, but also with stone and tile surfaces - a 
 
 Say hello to the Geode Natural Stone [Grout Cleaner](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Grout-Cleaner.md), your new BFF for sparkling marble, limestone, travertine, and a whole lot more. This heavy-duty cleaner is like having your own industrial strength grout cleaner, but without the harsh chemicals. And the best part? It's safe for marble! 
 
-[The Geode grout cleaner works wonders on tile grout, deep-cleaning those pores and prying loose dirt and grime like nobody's business.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Grout-Cleaner.md) It's easy to use, too—just spray it on and watch the magic happen. Plus, it leaves your home looking and feeling fresh as a daisy. 
+[The Geode grout cleaner works wonders on tile grout, deep-cleaning those pores and prying loose dirt and grime like nobody's business.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Grout-Cleaner.md) It's easy to use, too—just spray it on and watch the magic happen. Plus, it leaves your home looking and feeling fresh as a daisy. 
 
 Now, let's talk about the cons. Well, there's one little catch: it comes in a 32-ounce bottle. Sounds small, right? But trust us, it's plenty enough to get your home looking its best. So, if you're looking for an all-in-one, safe, and effective grout cleaner, the Geode Natural Stone Grout Cleaner is just what the doctor ordered. 
 

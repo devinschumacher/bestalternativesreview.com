@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Kate-Spade-Weekender-Bag.md
 
 # The Perfect Weekend Getaway -  Top 15 Kate Spade Weekender Bags to Carry
 
-[Get ready to discover the latest must-have travel accessory with our roundup of the top-rated Kate Spade Weekender Bags.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kate-Spade-Weekender-Bag.md) From sleek designs to spacious interiors, these stylish bags will have you traveling in style and comfort. Explore our selection and find the perfect addition to your luggage collection! 
+[Get ready to discover the latest must-have travel accessory with our roundup of the top-rated Kate Spade Weekender Bags.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kate-Spade-Weekender-Bag.md) From sleek designs to spacious interiors, these stylish bags will have you traveling in style and comfort. Explore our selection and find the perfect addition to your luggage collection! 
 
 *As an Amazon Affiliate we receive compensation through qualified purchases at no cost to you*
 
@@ -127,7 +127,7 @@ While some users may wish for a little more space, the durability and style of t
 
 The Kate Spade Jae Weekender in Pink Multi is a stunning designer bag that's currently on sale at an incredible 70% off retail price. [With its luxurious feel and timeless design, this weekender bag is a must-have for any fashion-savvy individual.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Canvas-Weekender-Bag.md) The bag features multiple spacious compartments for all your essentials, a sturdy handle, and a comfortable shoulder strap, making it perfect for your next weekend getaway. 
 
-[The highlight of this bag is its eye-catching shade of pink, which adds a pop of color to any outfit.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pink-Coats.md) The Pink Multi version offers a versatile and sophisticated touch that's perfect for both casual and formal occasions. However, some users may find the bag a bit small for their needs or might want more color options. 
+[The highlight of this bag is its eye-catching shade of pink, which adds a pop of color to any outfit.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pink-Coats.md) The Pink Multi version offers a versatile and sophisticated touch that's perfect for both casual and formal occasions. However, some users may find the bag a bit small for their needs or might want more color options. 
 
 Overall, the Kate Spade Jae Weekender in Pink Multi is a fantastic addition to any wardrobe, and with the incredible savings available, it's a steal not to be missed! 
 

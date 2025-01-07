@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Custom-Area-Rugs.md
 
 # Rugged Charm -  11 Best Custom Area Rugs for Unique Flooring Statements
 
-Welcome to our [custom area rugs](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Custom-Area-Rugs.md) review, where we showcase an array of unique and exquisite designs that will elevate the look and feel of your living spaces. [From hand-knotted masterpieces to innovative, cutting-edge styles, we've curated a collection of the finest custom area rugs on the market, providing you with a wealth of options to suit your taste and budget.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Custom-Area-Rugs.md) 
+Welcome to our [custom area rugs](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Custom-Area-Rugs.md) review, where we showcase an array of unique and exquisite designs that will elevate the look and feel of your living spaces. [From hand-knotted masterpieces to innovative, cutting-edge styles, we've curated a collection of the finest custom area rugs on the market, providing you with a wealth of options to suit your taste and budget.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Custom-Area-Rugs.md) 
 
 *As an Amazon Affiliate we receive compensation from qualifying purchases!*
 

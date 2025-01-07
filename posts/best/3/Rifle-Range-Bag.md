@@ -66,7 +66,7 @@ Get ready to effortlessly carry your pistols and shooting essentials with the GP
 
 One of the standout features of this backpack is its Visual I. D. Storage System, making organization incredibly easy. You can even customize your backpack by adding removable icon patches, allowing you to personalize it while making it easy to locate your gear.
 
-[The Handgunner Backpack provides ample storage options for all your shooting necessities.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hunting-Backpacks-With-Gun-Holder.md) It includes dedicated pockets for frequently utilized items, dual side pockets for your magazines, and a spacious main compartment. 
+[The Handgunner Backpack provides ample storage options for all your shooting necessities.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hunting-Backpacks-With-Gun-Holder.md) It includes dedicated pockets for frequently utilized items, dual side pockets for your magazines, and a spacious main compartment. 
 
 When exposed to inclement weather, you'll appreciate the backpack's waterproof pull-out cover, keeping your valuable belongings safe and dry. The backpack also features heavy-duty lockable zippers on the main compartment, ensuring optimal security for your trip to and from the range.
 
@@ -226,7 +226,7 @@ For shooting enthusiasts and athletes competing in shooting sports, the rifle ra
 
 When shopping for a rifle range bag, there are several important features to consider. First, look for a sturdy and durable construction that can withstand wear and tear. This includes solid zippers, reinforced stitching, and heavy-duty materials. Additionally, the bag should be large enough to hold everything you need and have multiple compartments and pockets for organization. 
 
-Other important features include adjustable shoulder straps, a padded interior, and lockable zippers for added security. [Look for a bag that offers a balance between functionality and style, so you can enjoy using it while still keeping your firearms and accessories safe and well-organized.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Handgun-Range-Bag.md) High-end rifle range bags may also come with extra features, such as laser cut designs or embroidery, to customize the look of your bag. 
+Other important features include adjustable shoulder straps, a padded interior, and lockable zippers for added security. [Look for a bag that offers a balance between functionality and style, so you can enjoy using it while still keeping your firearms and accessories safe and well-organized.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Handgun-Range-Bag.md) High-end rifle range bags may also come with extra features, such as laser cut designs or embroidery, to customize the look of your bag. 
 
 <div><a href="https://serp.ly/@bar/amazon/Rifle+Range+Bag"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Rifle-Range-Bag-5/h=540,fit=pad,background=black" alt="Rifle-Range-Bag-5" height="540"></a></div>
 

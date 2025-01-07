@@ -56,7 +56,7 @@ The first thing I noticed about this backpack is how comfortable it is. The airf
 
 One of the standout features is the side and front pockets. They're perfect for storing your phone, wallet, and other small items, freeing up more space in the main compartment for your skateboard. The rain cover is also a great feature that helps protect your skates from the elements. 
 
-Of course, no backpack is perfect, and the Seba Skates - Large Back Pack Black is no exception. [While the design is slim and comfortable, the backpack might not be large enough for users who need to carry more items.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Big-Backpacks-For-Travel.md) Also, the backpack is very much intended for skaters - it might not be the most practical choice for a casual user. 
+Of course, no backpack is perfect, and the Seba Skates - Large Back Pack Black is no exception. [While the design is slim and comfortable, the backpack might not be large enough for users who need to carry more items.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Big-Backpacks-For-Travel.md) Also, the backpack is very much intended for skaters - it might not be the most practical choice for a casual user. 
 
 In conclusion, the Seba Skates - Large Back Pack Black is a fantastic backpack for any skater. Its design is perfect for carrying a skateboard, and its comfortable airflow system ensures that you stay cool, even during the hottest days. While it might not be the most versatile option for a casual user, it's an invaluable accessory for any skater looking for a stylish and functional way to carry their gear. 
 

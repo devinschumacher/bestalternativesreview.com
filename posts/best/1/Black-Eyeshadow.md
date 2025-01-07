@@ -97,7 +97,7 @@ In conclusion, Just Pearl's Black Eyeshadow is a unique and eye-catching product
 
 The L'Oreal Colour Riche Eyeshadow in Noir C'est Noir 209 offers a highly pigmented, velvety finish that adds a touch of allure to any makeup look. With its innovative gel-to-powder technology, application is effortless, allowing for a precise, stunning result every time. 
 
-[This Black Eyeshadow is a versatile addition to any](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Eyeshadow.md) [eye makeup](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Eye-Makeup.md) collection, offering endless possibilities for self-expression and vibrant color. 
+[This Black Eyeshadow is a versatile addition to any](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Eyeshadow.md) [eye makeup](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Eye-Makeup.md) collection, offering endless possibilities for self-expression and vibrant color. 
 
 
 ### [Jolie Matte Eye Shadow: Black Hypoallergenic Option](https://serp.ly/@bar/amazon/Black+Eyeshadow?utm\_term=jolie-matte-eye-shadow-black-hypoallergenic-option)
@@ -210,7 +210,7 @@ If you want to enhance your eyes, use black eyeliner to create a winged or subtl
 
 ### Are there any waterproof black eyeliners recommended?
 
-[Yes, there are waterproof black eyeliners that can withstand sweating, tears, and even swimming.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Waterproof-Eyeliner.md) Some popular options include Stila Stay All Day Waterproof Liquid Eyeliner, Kat Von D Tattoo Liner, and Urban Decay Perversion Waterproof Pencil. These products offer long-lasting wear and water-resistant qualities, ensuring your eyeliner stays put throughout your day. 
+[Yes, there are waterproof black eyeliners that can withstand sweating, tears, and even swimming.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Waterproof-Eyeliner.md) Some popular options include Stila Stay All Day Waterproof Liquid Eyeliner, Kat Von D Tattoo Liner, and Urban Decay Perversion Waterproof Pencil. These products offer long-lasting wear and water-resistant qualities, ensuring your eyeliner stays put throughout your day. 
 
 When choosing a waterproof black eyeliner, consider the brand's reputation for durability and how comfortable the applicator is for you to use. It is also essential to try out a few options to find the one that works best for your skin type and desired look. Invest in a quality waterproof black eyeliner, and you'll enjoy a bold and dramatic appearance that lasts all day long. 
 
@@ -235,6 +235,6 @@ Liquid eyeliners provide a precise and defined line, offering more control and a
 
 When it comes to removing black eyeliner, start by using a makeup remover specifically designed for eyes. You can also use oil-based removers such as coconut oil or olive oil to dissolve the eyeliner and make it easier to remove. Gently massage the remover onto your eyelids, focusing on the liner area. Next, use a cotton pad or Q-tip to wipe away the eyeliner and remover. 
 
-If you still find it difficult to remove the black eyeliner, try using a gentle eye makeup remover wipe or micellar water. [These products can tackle even the most stubborn eyeliner and provide a quick and easy way to remove makeup.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Eye-Makeup.md) Be sure to apply the remover to the lash line, and always clean your entire eye area to ensure no remnants or residue remain. 
+If you still find it difficult to remove the black eyeliner, try using a gentle eye makeup remover wipe or micellar water. [These products can tackle even the most stubborn eyeliner and provide a quick and easy way to remove makeup.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Eye-Makeup.md) Be sure to apply the remover to the lash line, and always clean your entire eye area to ensure no remnants or residue remain. 
 
 *As an Amazon Affiliate, I receive compensation through qualifying purchases at no cost to you*

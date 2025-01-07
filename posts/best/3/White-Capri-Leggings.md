@@ -21,7 +21,7 @@ These versatile leggings are perfect for a casual day out or a workout session. 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Capri+Leggings?utm_term=moa-collection-womens-comfy-pocket-jeggings-capri-leggings-white"><img alt="moa-collection-womens-casual-comfy-slim-pocket-jeggings-jeans-capri-leggings-pants-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/moa-collection-womens-casual-comfy-slim-pocket-jeggings-jeans-capri-leggings-pants-white-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the ultimate comfort with the Moa Collection's White Capri Leggings.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/White-Capri-Leggings.md) Crafted from a premium cotton, polyester, and spandex blend, these pants offer incredible stretch without revealing any transparency. 
+[Experience the ultimate comfort with the Moa Collection's White Capri Leggings.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/White-Capri-Leggings.md) Crafted from a premium cotton, polyester, and spandex blend, these pants offer incredible stretch without revealing any transparency. 
 
 The fit on this slim pocket jeggings is designed to flatter and feels ultra-soft on your skin all day. With a wide range of sizes, including 1XL, 2XL, and 3XL, there's a perfect fit for everyone. While some users have mentioned issues with delivery and fit, these leggings are a great option for a stylish and comfortable option for your casual outings. 
 

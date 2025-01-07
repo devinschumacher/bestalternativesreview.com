@@ -94,7 +94,7 @@ Overall, though, my experience with the Reptilia ROF-90 has been positive. It's 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/30mm+Scope+Mount?utm_term=reptilia-35mm-scope-mount-in-black-1-54-in"><img alt="reptilia-aus-35mm-mount-1-54-black-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/reptilia-aus-35mm-mount-1-54-black-1/h=540,fit=pad,background=black"/></a></div>
 
-I have had the chance to test out the Reptilia aus 35mm Mount in a beautiful black finish. [This scope mount has really caught my attention with its practical design and rugged build.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dnz-Scope-Mounts.md) The anodized finish not only looks great but also adds durability, making it perfect for outdoor use. 
+I have had the chance to test out the Reptilia aus 35mm Mount in a beautiful black finish. [This scope mount has really caught my attention with its practical design and rugged build.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dnz-Scope-Mounts.md) The anodized finish not only looks great but also adds durability, making it perfect for outdoor use. 
 
 One of the things that stood out to me was the length of this mount, measuring in at 7.2500 inches. This makes it ideal for use with various sizes of scopes and ensures a secure grip, keeping your equipment safely in place. 
 

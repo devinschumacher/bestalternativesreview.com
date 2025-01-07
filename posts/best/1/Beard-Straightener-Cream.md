@@ -65,7 +65,7 @@ I've recently given Supply Styling [Beard Balm](https://github.com/devinschumach
 
 One of the first things I noticed was how easy it was to apply - no excess grease or stickiness! And the smell? Simply delightful. It's a wonderful mix of natural scents, which felt refreshing instead of overpowering. 
 
-[But the most impressive aspect of Beard Balm is how it strengthens and moisturizes my facial hair.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beard-Balm.md) The combination of shea butter, hydrolyzed wheat protein, and mango seed butter has made all the difference - my beard feels healthier and looks more defined than ever before. 
+[But the most impressive aspect of Beard Balm is how it strengthens and moisturizes my facial hair.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Beard-Balm.md) The combination of shea butter, hydrolyzed wheat protein, and mango seed butter has made all the difference - my beard feels healthier and looks more defined than ever before. 
 
 As for the other ingredients, sage and white birch really added an extra touch of goodness. Sage helped reduce any irritation I'd sometimes experience, while white birch gave me a sense of being in the great outdoors. 
 
@@ -179,7 +179,7 @@ Crafted by Wahl, the Beard Softener is a hydrating beard tonic that works great 
 
 This product comes in a 3.0 fl oz packaging and offers a light, pleasant fragrance that is not overbearing, making it suitable for all beard types. The W-Blend of essential oils, such as manuka, meadowfoam seed, moringa, and clove, gives this beard softener a masculine, refreshing scent. 
 
-The Beard Softener is part of Wahl's complete line of men's grooming products, ensuring that each facial hair need is met with top-quality care. [This versatile product is a must-have for every man seeking a well-maintained, soft, and hydrated beard.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beard-Supplements.md) 
+The Beard Softener is part of Wahl's complete line of men's grooming products, ensuring that each facial hair need is met with top-quality care. [This versatile product is a must-have for every man seeking a well-maintained, soft, and hydrated beard.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Beard-Supplements.md) 
 
 
 ### [Acqua di Parma Barbiere Moisturizing Beard Styling Cream (50 ml)](https://serp.ly/@bar/amazon/Beard+Straightener+Cream?utm\_term=acqua-di-parma-barbiere-moisturizing-beard-styling-cream-50-ml)
@@ -192,7 +192,7 @@ One of the things I appreciate the most about this product is its moisturizing p
 
 However, there are a couple of drawbacks to using this product. Firstly, I've noticed that the cream can be a bit difficult to distribute evenly, especially when applying it in the morning before work. Additionally, the 50 ml capacity might seem a bit on the smaller side for some users. 
 
-Overall, I highly recommend the Acqua di Parma Barbiere Beard Styling Cream for anyone looking for a reliable and effective beard grooming product. [Its soft texture and moisturizing properties make it a great choice for those seeking a natural, healthy look for their beard.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mens-Beard-Style.md) 
+Overall, I highly recommend the Acqua di Parma Barbiere Beard Styling Cream for anyone looking for a reliable and effective beard grooming product. [Its soft texture and moisturizing properties make it a great choice for those seeking a natural, healthy look for their beard.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mens-Beard-Style.md) 
 
 
 ### [The Man Company Anti-Graying Hair & Beard Cream - Nourish and Restore Your Beard's Natural Color](https://serp.ly/@bar/amazon/Beard+Straightener+Cream?utm\_term=the-man-company-anti-graying-hair-beard-cream-nourish-and-restore-your-beards-natural-color)
@@ -214,9 +214,9 @@ Overall, The Man Company's Anti-Graying Hair & Beard Cream for Men is a reliable
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Beard+Straightener+Cream?utm_term=smooth-frizzy-free-beard-straightener-kit-by-bombay-shaving-company"><img alt="bombay-shaving-company-3-in-1-beard-straightener-kit-with-cedarwood-be-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bombay-shaving-company-3-in-1-beard-straightener-kit-with-cedarwood-be-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently tried the Bombay Shaving Company 3-in-1 Beard Straightener Kit, and I must say, it's been a game-changer for my beard.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beard-Straighteners.md) The 3-step regimen, which includes the Beard Shampoo & Conditioner and the Cedarwood Beard Nourishing Oil, has helped tame my unruly beard and keep it smooth and frizz-free. [The shampoo and conditioner work together to cleanse my beard while ensuring it remains moisturized.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Scotch-Porter-Beard-Conditioner.md) 
+[I recently tried the Bombay Shaving Company 3-in-1 Beard Straightener Kit, and I must say, it's been a game-changer for my beard.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Beard-Straighteners.md) The 3-step regimen, which includes the Beard Shampoo & Conditioner and the Cedarwood Beard Nourishing Oil, has helped tame my unruly beard and keep it smooth and frizz-free. [The shampoo and conditioner work together to cleanse my beard while ensuring it remains moisturized.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Scotch-Porter-Beard-Conditioner.md) 
 
-[The Cedarwood Beard Nourishing Oil has been my go-to product to keep my beard looking and feeling its best.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Good-Beard-Oil.md) Its gentle formula, sans SLS and Parabens, nourishes my facial hair without weighing it down. What's even better, it leaves my beard with a pleasant, woodsy scent that I've grown to love. 
+[The Cedarwood Beard Nourishing Oil has been my go-to product to keep my beard looking and feeling its best.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Good-Beard-Oil.md) Its gentle formula, sans SLS and Parabens, nourishes my facial hair without weighing it down. What's even better, it leaves my beard with a pleasant, woodsy scent that I've grown to love. 
 
 The Beard Straightener has been a lifesaver on those mornings when my beard tends to be a bit of a wild beast. Its lightweight design makes it easy to handle, and it's effective in detangling without causing any damage, which is always a plus. 
 

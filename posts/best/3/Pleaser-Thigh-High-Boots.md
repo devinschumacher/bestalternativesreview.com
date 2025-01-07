@@ -115,7 +115,7 @@ Overall, these Pleaser thigh high boots are a fantastic addition to any fashion-
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pleaser+Thigh+High+Boots?utm_term=pleaser-heelless-stretch-thigh-high-boot-comfortable-stylish-design"><img alt="pleaser-craze-3023-heelless-stretch-thigh-high-boot-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pleaser-craze-3023-heelless-stretch-thigh-high-boot-1/h=540,fit=pad,background=black"/></a></div>
 
-These Pleaser heelsless stretch thigh high boots are a must-have for anyone looking to make a bold statement. [With their 6¾" stiletto heel and platform, you'll be sure to turn heads wherever you go.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Platform-Stiletto-Heels.md) 
+These Pleaser heelsless stretch thigh high boots are a must-have for anyone looking to make a bold statement. [With their 6¾" stiletto heel and platform, you'll be sure to turn heads wherever you go.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Platform-Stiletto-Heels.md) 
 
 The vegan black patent material gives these boots a sleek and sophisticated look, making them perfect for adding a touch of excitement to any outfit. The lacing system provides a comfortable fit, ensuring you feel confident and stylish all night long. Although some users have mentioned sizing issues, overall, these boots are considered an awesome addition to any wardrobe. 
 

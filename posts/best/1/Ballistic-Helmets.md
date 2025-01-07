@@ -116,7 +116,7 @@ This helmet has been lab-tested extensively for quality and is compatible with m
 
 The Ballistic Riot Helmet and Visor is a top-tier protective gear that conforms to multiple stringent standards such as UK Standard, NATO Standard, STANAG 2920, and NIJ 0106.01. The helmet is made of a strong, transparent Polycarbonate material renowned for its impact resistance, and it features an adjustable visor with three different positions for user convenience and safety optimization. The visor provides NIJ Level IIIA protection, meaning it can withstand high-velocity handgun rounds. 
 
-[The helmet offers comprehensive protection for both the head and face, ensuring safety in high-risk situations.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Triple-8-Helmet.md) The design prioritizes comfort, with adjustable interior padding and a lightweight construction that doesn't cause discomfort after prolonged wear, and the helmet comes with pre-attached brackets and an ARC mounting system. 
+[The helmet offers comprehensive protection for both the head and face, ensuring safety in high-risk situations.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Triple-8-Helmet.md) The design prioritizes comfort, with adjustable interior padding and a lightweight construction that doesn't cause discomfort after prolonged wear, and the helmet comes with pre-attached brackets and an ARC mounting system. 
 
 The visor is fog-free and doesn't restrict breathing, providing clear vision at all times. 
 

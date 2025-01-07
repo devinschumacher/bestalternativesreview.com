@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Jose-Cuervo-Margarita.md
 
 # Taste the Fiesta -  17 Best Jose Cuervo Margarita Recipes for a Summer Party to Remember
 
-[Get ready to dive into a refreshing world of flavors, as we present our top picks for the best Jose Cuervo Margaritas.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Jose-Cuervo-Margarita.md) Whether you're looking for a classic recipe or seeking out innovative twists, our roundup covers it all. Let's cheers to great cocktails and unforgettable experiences! 
+[Get ready to dive into a refreshing world of flavors, as we present our top picks for the best Jose Cuervo Margaritas.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Jose-Cuervo-Margarita.md) Whether you're looking for a classic recipe or seeking out innovative twists, our roundup covers it all. Let's cheers to great cocktails and unforgettable experiences! 
 
 *As an Amazon Affiliate™ I receive compensation from qualified purchases at no cost to you!*
 

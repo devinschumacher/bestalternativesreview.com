@@ -25,7 +25,7 @@ The hot air styler also comes with a three-position switch, making it easy to ad
 
 However, there were a couple of points that I wish were different. For example, the weight and power of the styler were great, but sometimes I wished it was a bit lighter for those days when my arm needed a break. On the other hand, the heat settings were helpful, but I sometimes found that the highest setting was a bit too hot for my hair. 
 
-[Overall, the John Frieda Hot Air Styler 1" is a great choice for anyone looking to add shine and volume to their hair while also eliminating frizz.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/John-Frieda-Hot-Air-Brush.md) It would be great if you could consider these factors before deciding to purchase this product. 
+[Overall, the John Frieda Hot Air Styler 1" is a great choice for anyone looking to add shine and volume to their hair while also eliminating frizz.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/John-Frieda-Hot-Air-Brush.md) It would be great if you could consider these factors before deciding to purchase this product. 
 
 
 ### [Revolution Haircare Smooth Boost 3-Setting Hot Air Brush - Lightweight and Easy to Handle](https://serp.ly/@bar/amazon/John+Frieda+Hot+Air+Brush?utm\_term=revolution-haircare-smooth-boost-3-setting-hot-air-brush-lightweight-and-easy-to-handle)

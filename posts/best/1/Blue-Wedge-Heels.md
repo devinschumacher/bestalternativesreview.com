@@ -122,7 +122,7 @@ While on a walk by the beach, I discovered the perfect pair of summer shoes for 
 
 The soft foam lining and memory foam arch support made each step feel like I was walking on a cloud. The shoe's lightweight and flexible outsole also made it perfect for all-day walks. One drawback I found was that the size went up a bit bigger than I expected, so I had to size down a bit. But overall, the fit was still comfortable. 
 
-[These sandals would be an excellent choice for a casual, laid-back summer look.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Red-Sandals.md) They looked great with dresses, shorts, and jeans, so they can easily transition from day to night. I also appreciated the back zip closure, which made it easy to slip on and off. 
+[These sandals would be an excellent choice for a casual, laid-back summer look.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Red-Sandals.md) They looked great with dresses, shorts, and jeans, so they can easily transition from day to night. I also appreciated the back zip closure, which made it easy to slip on and off. 
 
 The white lug bottom gave a nice contrast to the blue faux leather, and it made the sandals even more versatile. The only thing I would change was the color description; it said they were silver, but I found them to be more of a subtle gold hue. Either way, it was still a beautiful color. 
 

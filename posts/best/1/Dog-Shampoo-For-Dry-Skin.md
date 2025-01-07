@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/1/Dog-Shampoo-For-Dry-Skin.md
 
 Are you concerned about your furry friend's dry skin? Look no further! In this article, we'll be rounding up some of the best dog shampoos on the market that are specifically designed to tackle dry skin and keep your dog feeling comfortable and healthy. 
 
-[From natural ingredients to gentle formulas, we've curated a list of top-rated dog shampoos that will leave your pup's coat looking and feeling its best.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Medicated-Dog-Shampoo.md) 
+[From natural ingredients to gentle formulas, we've curated a list of top-rated dog shampoos that will leave your pup's coat looking and feeling its best.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Medicated-Dog-Shampoo.md) 
 
 So, sit back, relax, and get ready to discover the perfect solution for your dog's dry skin woes. Let's dive in! 
 

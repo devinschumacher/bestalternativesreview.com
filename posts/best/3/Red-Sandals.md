@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Red-Sandals.md
 
 # Walk in Style -  Our Top 19 Red Sandals for Every Occasion
 
-[Get ready to step into summer with style as we round up the hottest](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Red-Sandals.md) [red sandals](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Red-Sandals.md) of the season. From bold statement heels to chic and comfortable flats, we've got you covered with this curated list. Dive in and discover the perfect pair for your next adventure or beach day. 
+[Get ready to step into summer with style as we round up the hottest](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Red-Sandals.md) [red sandals](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Red-Sandals.md) of the season. From bold statement heels to chic and comfortable flats, we've got you covered with this curated list. Dive in and discover the perfect pair for your next adventure or beach day. 
 
 *As an Amazon Affiliate, I receive compensation from qualified purchases*
 

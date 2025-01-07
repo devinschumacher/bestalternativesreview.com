@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Canned-Wine.md
 
 # Sip in Style -  The 19 Best Canned Wines for Every Occasion
 
-[Savor the best of both worlds with our curated selection of canned wines.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Canned-Wine.md) Whether you're looking for a refreshingly delicious drink on a hot summer day or a convenient and eco-friendly option for your outdoor activities, we've got you covered. 
+[Savor the best of both worlds with our curated selection of canned wines.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Canned-Wine.md) Whether you're looking for a refreshingly delicious drink on a hot summer day or a convenient and eco-friendly option for your outdoor activities, we've got you covered. 
 
 Join us as we explore the top-rated canned wines that offer not only exceptional taste but also innovative packaging. Get ready to elevate your wine experience with our roundup of the finest canned wines available in the market. 
 

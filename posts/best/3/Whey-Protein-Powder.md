@@ -31,7 +31,7 @@ The packaging is compact and sturdy, ensuring the product remains fresh througho
 
 Optimum Nutrition Gold Standard Whey isn't just about providing you with the nutrients your muscles need; it's about offering convenience as well. It's gluten-free, tested for banned substances, and is conveniently easy to mix. 
 
-[In a nutshell, this protein supplement is a powerhouse for muscle-building, with a delicious taste and easy mixability.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mass-Gainer-Protein.md) It's certainly the gold standard in the world of whey protein supplements. If you're serious about fitness, this is a solid addition to your routine. 
+[In a nutshell, this protein supplement is a powerhouse for muscle-building, with a delicious taste and easy mixability.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mass-Gainer-Protein.md) It's certainly the gold standard in the world of whey protein supplements. If you're serious about fitness, this is a solid addition to your routine. 
 
 
 ### [Optimum Nutrition Chocolate Gainer Protein Powder](https://serp.ly/@bar/amazon/Whey+Protein+Powder?utm\_term=optimum-nutrition-chocolate-gainer-protein-powder)
@@ -58,7 +58,7 @@ Offering a delicious vanilla flavor in a multipack quantity of 1, SERIOUS MASS i
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Whey+Protein+Powder?utm_term=naked-chocolate-whey-protein-powder"><img alt="chocolate-whey-protein-powder-naked-chocolate-whey-5lb-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/chocolate-whey-protein-powder-naked-chocolate-whey-5lb-1/h=540,fit=pad,background=black"/></a></div>
 
-The Naked Chocolate Whey is something I wouldn't have expected to taste as good as it does. [I've tried quite a few protein powders before and they always seemed to lack flavor or had that artificial taste that you can't quite put your finger on.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Flavorless-Protein-Powder.md) But the Naked Chocolate Whey is different; it tastes like a rich, decadent chocolate shake. 
+The Naked Chocolate Whey is something I wouldn't have expected to taste as good as it does. [I've tried quite a few protein powders before and they always seemed to lack flavor or had that artificial taste that you can't quite put your finger on.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Flavorless-Protein-Powder.md) But the Naked Chocolate Whey is different; it tastes like a rich, decadent chocolate shake. 
 
 The mixability is also a pro. You can easily mix in a blender or even just a shaker with some water or milk. It dissolves well, and I've never had any issues with clumping. 
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Shakespeare-Books.md
 
 # The Bard's Best -  20 Timeless Shakespeare Books for Literary Lovers and Performers Alike
 
-Dive into the world of timeless literature with our roundup of the best [Shakespeare Books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shakespeare-Books.md). [From classic plays to captivating sonnets, these literary gems will transport you to Elizabethan England and showcase the genius of the Bard.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Shakespeare-Books.md) Get ready to immerse yourself in the rich language and wisdom of Shakespeare's masterpieces. 
+Dive into the world of timeless literature with our roundup of the best [Shakespeare Books](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Shakespeare-Books.md). [From classic plays to captivating sonnets, these literary gems will transport you to Elizabethan England and showcase the genius of the Bard.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Shakespeare-Books.md) Get ready to immerse yourself in the rich language and wisdom of Shakespeare's masterpieces. 
 
 *As an Amazon Affiliate™, we may earn through qualifying purchases.*
 

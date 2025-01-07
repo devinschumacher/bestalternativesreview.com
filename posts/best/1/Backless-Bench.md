@@ -43,7 +43,7 @@ The bench can blend seamlessly with various home decors and settings - whether a
 
 However, some users have expressed concerns about the bench's stability. Despite being easy to assemble, the overall sturdiness is a point of contention for a few customers. 
 
-[Overall, the bench is a stylish, comfortable addition to any home, making it worth considering.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Garden-Bench.md) 
+[Overall, the bench is a stylish, comfortable addition to any home, making it worth considering.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Garden-Bench.md) 
 
 
 ### [Westin Parkside Dark Green Outdoor Bench: Durable, Comfortable & Weather-Resistant](https://serp.ly/@bar/amazon/Backless+Bench?utm\_term=westin-parkside-dark-green-outdoor-bench-durable-comfortable-weather-resistant)

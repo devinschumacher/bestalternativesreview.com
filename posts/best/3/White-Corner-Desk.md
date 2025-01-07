@@ -34,7 +34,7 @@ Assembling the desk is a breeze, thanks to detailed instructions and included ac
 
 The VIVO Curved Corner Stand Up Desk (DESK-KIT-E3CB2 Series) offers a spacious work area, perfect for an active work life. Its 71" x 71" tabletop provides ample space, while its sturdy l-shaped design with a multi-motor lift system ensures smooth height transitions. 
 
-The desk also features a control panel with 4 memory settings and solid legs capable of supporting up to 264 lbs. [This white corner desk is ideal for those looking to reduce stress and promote better posture by standing throughout the day.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/White-Corner-Desk.md) 
+The desk also features a control panel with 4 memory settings and solid legs capable of supporting up to 264 lbs. [This white corner desk is ideal for those looking to reduce stress and promote better posture by standing throughout the day.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/White-Corner-Desk.md) 
 
 
 ### [Versatile L-Shaped White Gaming Desk with Monitor Stand](https://serp.ly/@bar/amazon/White+Corner+Desk?utm\_term=versatile-l-shaped-white-gaming-desk-with-monitor-stand)
@@ -52,7 +52,7 @@ This premium white corner desk can serve as a computer desk, study desk, or gami
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Corner+Desk?utm_term=white-homcom-corner-workstation-desk-for-small-spaces"><img alt="homcom-corner-computer-desk-with-steel-frame-for-small-spaces-writing-desk-for-workstation-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/homcom-corner-computer-desk-with-steel-frame-for-small-spaces-writing-desk-for-workstation-white-1/h=540,fit=pad,background=black"/></a></div>
 
-This corner workstation from HOMCOM is designed perfectly for those who are tight on space. [Available in a sleek, white finish, this desk fits seamlessly into any contemporary home or office.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Colorful-Desk.md) 
+This corner workstation from HOMCOM is designed perfectly for those who are tight on space. [Available in a sleek, white finish, this desk fits seamlessly into any contemporary home or office.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Colorful-Desk.md) 
 
 Its compact yet functional design makes it an ideal choice for small-space living or work areas. The desk's steel frame ensures durability and stability, making it ideal for supporting various workloads. Users can utilize the desk as a writing desk, corner TV stand, or even a vanity table. 
 
@@ -91,7 +91,7 @@ Transform your home office or craft corner with this stunning, fully functional 
 
 Designed for sturdiness, it can comfortably hold multiple computers and supports up to 350 lbs, making it a reliable addition to any room. The adjustable feet-pads ensure stability on uneven surfaces, giving you peace of mind as you work or create in your cozy space. 
 
-[This desk is perfect for small spaces, boasting a compact design that allows for easy installation.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Desk-With-Storage.md) The white corner desk comes with all necessary tools and instructions, ensuring a hassle-free setup process. It's no wonder this desk has a perfect 5.0 rating from satisfied customers – upgrade your workspace and enjoy an organized, functional home office today! 
+[This desk is perfect for small spaces, boasting a compact design that allows for easy installation.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Small-Desk-With-Storage.md) The white corner desk comes with all necessary tools and instructions, ensuring a hassle-free setup process. It's no wonder this desk has a perfect 5.0 rating from satisfied customers – upgrade your workspace and enjoy an organized, functional home office today! 
 
 
 ### [L-Shaped Desk with LED Light, Reversible, and White Corner Design](https://serp.ly/@bar/amazon/White+Corner+Desk?utm\_term=l-shaped-desk-with-led-light-reversible-and-white-corner-design)
@@ -122,7 +122,7 @@ One of the features that has really stood out to me is the sturdiness of the des
 
 However, one thing that could have been better is the size of the desktop. Although it provides enough space, it could have been a bit larger to accommodate a larger monitor or multiple screens. 
 
-[Overall, this desk has been a great addition to my home office, and I would highly recommend it to anyone who needs a functional, stylish, and sturdy desk for their workspace.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desks.md) 
+[Overall, this desk has been a great addition to my home office, and I would highly recommend it to anyone who needs a functional, stylish, and sturdy desk for their workspace.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desks.md) 
 
 
 ### [Rotating L-Shaped White Corner Desk for Home Office](https://serp.ly/@bar/amazon/White+Corner+Desk?utm\_term=rotating-l-shaped-white-corner-desk-for-home-office)
@@ -142,7 +142,7 @@ This Belleze Corner Desk truly stands out, boasting a sleek design that blends M
 
 One of the most impressive features of this desk is its compact size, allowing it to fit seamlessly into any space. With dimensions of 27.5 inches in depth, 38.8 inches in width, and 68 inches in height, this desk offers ample storage and organization without taking up too much room in your home. The three-tier height provides even more space for displaying your favorite items, books, and collectibles. 
 
-[This desk is not only practical, but it also adds a touch of style to your room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sit-Stand-Desk-With-Drawers.md) The 2-tier shelf is fully customizable, allowing you to organize your belongings according to your preferences. The top table surface can even accommodate a laptop, with a weight capacity of up to 60 pounds. 
+[This desk is not only practical, but it also adds a touch of style to your room.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Sit-Stand-Desk-With-Drawers.md) The 2-tier shelf is fully customizable, allowing you to organize your belongings according to your preferences. The top table surface can even accommodate a laptop, with a weight capacity of up to 60 pounds. 
 
 A unique feature of this Belleze Corner Desk is its integrated LED lighting system. With an impressive selection of 16 colors, 32 dynamic modes, 10 brightness levels, and 10 speed settings, you can effortlessly create the perfect ambiance for your space. The RF remote makes it easy to control the LEDs even from a distance. 
 
@@ -207,7 +207,7 @@ I would definitely recommend it to anyone looking for a sturdy and attractive ad
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Corner+Desk?utm_term=large-l-shaped-corner-desk-with-storage-shelves-and-monitor-stand"><img alt="lee-industrial-l-shaped-desk-with-storage-shelves-corner-computer-desk-pc-laptop-study-table-worksta-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/lee-industrial-l-shaped-desk-with-storage-shelves-corner-computer-desk-pc-laptop-study-table-worksta-1/h=540,fit=pad,background=black"/></a></div>
 
-Experience the ultimate comfort with the Lee Industrial L-Shaped Desk, designed with an ergonomic structure. [The desk features an elevated monitor shelf that promotes a comfortable seating position, while also reducing stress on your back, neck, and overall posture.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Monitor-Stand-For-Desk.md) The robust construction is built using high-quality E1 board and stainless steel legs, providing unparalleled stability and the capacity to hold heavy loads. 
+Experience the ultimate comfort with the Lee Industrial L-Shaped Desk, designed with an ergonomic structure. [The desk features an elevated monitor shelf that promotes a comfortable seating position, while also reducing stress on your back, neck, and overall posture.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Monitor-Stand-For-Desk.md) The robust construction is built using high-quality E1 board and stainless steel legs, providing unparalleled stability and the capacity to hold heavy loads. 
 
 The spacious desk provides ample surface area to accommodate multiple monitors, along with a detachable full monitor stand and mesh storage shelves. These thoughtful design elements keep your office accessories within easy reach, ultimately streamlining your work process. This versatile desk can be utilized in a variety of settings, such as study rooms or offices, ensuring its adaptability for different workspaces. 
 
@@ -314,7 +314,7 @@ Upgrade your workspace with the Mia Corner Desk, now available at Urban Outfitte
 
 Plus, it comes equipped with a sleek desktop grommet to keep your cords organized. The white finish adds a touch of modernity to any room, while the hardware and instructions are neatly provided. 
 
-[With its practical features and stylish design, this desk is sure to elevate your work or study space impressively.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Student-Desk.md) 
+[With its practical features and stylish design, this desk is sure to elevate your work or study space impressively.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Student-Desk.md) 
 
 
 ### [Small Space Corner Computer Desk with Keyboard Tray](https://serp.ly/@bar/amazon/White+Corner+Desk?utm\_term=small-space-corner-computer-desk-with-keyboard-tray)
@@ -390,7 +390,7 @@ One of the standout features that caught my eye was the integrated LED light str
 
 I also appreciate the convenience of having a charging station with multiple ports built into the desk. It has simplified the process of charging my laptop, tablet, and other devices, ensuring that my workstation remains clutter-free. 
 
-The L-shaped design of the desk is incredibly ergonomic and allows me to make the best use of the limited space in my home office. [The ample storage space provided by the file cabinet and open shelves helps me stay organized and ensures that I always have easy access to the essential supplies I need.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/File-Cabinets-With-Shelves.md) 
+The L-shaped design of the desk is incredibly ergonomic and allows me to make the best use of the limited space in my home office. [The ample storage space provided by the file cabinet and open shelves helps me stay organized and ensures that I always have easy access to the essential supplies I need.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/File-Cabinets-With-Shelves.md) 
 
 However, the desk's sturdiness and durability could have been better, as I had to make minor adjustments a few days after setting it up. Overall, I'm quite satisfied with this desk, and I believe it has been a valuable investment for my home office setup. 
 
@@ -438,7 +438,7 @@ However, there were a couple of drawbacks I encountered. Firstly, the desk seeme
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/White+Corner+Desk?utm_term=l-shaped-white-corner-standing-desk-for-home-office-and-gaming"><img alt="fezibo-l-shaped-corner-ergonomic-standing-desk-for-home-office-study-gaming-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/fezibo-l-shaped-corner-ergonomic-standing-desk-for-home-office-study-gaming-white-1/h=540,fit=pad,background=black"/></a></div>
 
-The FEZiBO L-Shaped Corner Desk is a compact, ergonomic solution for your home office or gaming setup. With its sleek, rounded corners and a cupholder, it's perfect for any space-conscious user. [In addition, the desk offers cable management solutions to help keep your workspace neat and organized.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desk-Cable-Management.md) 
+The FEZiBO L-Shaped Corner Desk is a compact, ergonomic solution for your home office or gaming setup. With its sleek, rounded corners and a cupholder, it's perfect for any space-conscious user. [In addition, the desk offers cable management solutions to help keep your workspace neat and organized.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desk-Cable-Management.md) 
 
 I recently assembled this desk and was pleasantly surprised by its sturdiness and smooth operation. The white corner desk fits perfectly in my study corner, and its L-shape provides ample space for my multiple monitors and laptops. However, I did encounter a minor issue with the screws in the L-shaped portion – they could use a little extra support to prevent it from slipping out. 
 

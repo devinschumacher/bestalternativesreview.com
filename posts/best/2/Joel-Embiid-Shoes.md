@@ -151,7 +151,7 @@ Overall, the New Balance Two WXY V3 Men's Basketball Shoes have been a great add
 
 ## Buyer's Guide
 
-Welcome to the Joel Embiid Shoes Buyer's Guide. [In this section, we will discuss the key features, considerations, and advice on purchasing basketball shoes that emulate Joel Embiid's signature style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Joel-Embiid-Shoes.md) While our article will not include specific product picks or external resources, it will provide valuable insights to help you make an informed purchase. 
+Welcome to the Joel Embiid Shoes Buyer's Guide. [In this section, we will discuss the key features, considerations, and advice on purchasing basketball shoes that emulate Joel Embiid's signature style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Joel-Embiid-Shoes.md) While our article will not include specific product picks or external resources, it will provide valuable insights to help you make an informed purchase. 
 
 
 ### Design and Style

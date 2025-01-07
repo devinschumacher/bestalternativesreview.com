@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Night-Light-Plug-In.md
 
 # Light Up Your Space -  Top 20 Night Light Plug In Options for Safety and Ambiance
 
-[Welcome to our roundup of the **top Night Light Plug Ins** available in the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Night-Light-Plug-In.md) As you search for the perfect product to add warmth to your space while keeping energy consumption to a minimum, our curated selection of standout options will help guide you in making the best possible choice. Read on for an engaging journey through the diverse range of options showcased in this article. 
+[Welcome to our roundup of the **top Night Light Plug Ins** available in the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Night-Light-Plug-In.md) As you search for the perfect product to add warmth to your space while keeping energy consumption to a minimum, our curated selection of standout options will help guide you in making the best possible choice. Read on for an engaging journey through the diverse range of options showcased in this article. 
 
 *As an Amazon Affiliate™ we earn through qualified purchases at no cost to you*
 

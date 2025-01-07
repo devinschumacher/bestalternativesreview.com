@@ -23,14 +23,14 @@ The Williams PL-149C-TH Short Nose Duckbill Pliers offer a handy solution for sm
 
 The flat wide nose not only provides an improved grip over other shallow needle nose models but also allows for a more secure attachment point. The pliers' jaws are polished with a rust-protective coating, ensuring they remain sleek and functional over time. 
 
-One drawback to these pliers is their slightly limited reach, but given their sturdy build and comfortable grip, their overall performance makes up for this minor setback. [If you're in search of a reliable and versatile set of pliers for your toolbox, the Williams Short Nose Duckbill Pliers should be a top contender.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bent-Nose-Pliers.md) 
+One drawback to these pliers is their slightly limited reach, but given their sturdy build and comfortable grip, their overall performance makes up for this minor setback. [If you're in search of a reliable and versatile set of pliers for your toolbox, the Williams Short Nose Duckbill Pliers should be a top contender.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Bent-Nose-Pliers.md) 
 
 
 ### [Facom Insulated Duck Bill Pliers for Efficient Work](https://serp.ly/@bar/amazon/Duck+Bill+Pliers?utm\_term=facom-insulated-duck-bill-pliers-for-efficient-work)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Duck+Bill+Pliers?utm_term=facom-insulated-duck-bill-pliers-for-efficient-work"><img alt="facom-fa-188-16avse-insulated-duck-bill-pliers-1" height="540" src="https://imagedelivery.net/XRNHhJkVKCwA1q8dBxfEtw/facom-fa-188-16avse-insulated-duck-bill-pliers-1/h=540,fit=pad,background=black"/></a></div>
 
-[I've used the Facom FA-188.16AVSE Insulated Duck Bill Pliers in my daily life, and let me tell you, it's been a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Duck-Bill-Pliers.md) [These pliers are the perfect tool for when you need to work with electrical components or in tight spaces.](https://gist.github.com/janeknowsbest77/51ea870764cc66629c7e89b195b88506) Their insulated grips ensure my safety around live components, and the serrated jaws provide a firm grip that never fails to impress. 
+[I've used the Facom FA-188.16AVSE Insulated Duck Bill Pliers in my daily life, and let me tell you, it's been a game-changer.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Duck-Bill-Pliers.md) [These pliers are the perfect tool for when you need to work with electrical components or in tight spaces.](https://gist.github.com/janeknowsbest77/51ea870764cc66629c7e89b195b88506) Their insulated grips ensure my safety around live components, and the serrated jaws provide a firm grip that never fails to impress. 
 
 The insulation on these pliers is top-notch, with a clever 2-color handle that changes from orange to yellow if the insulation integrity is compromised. It allows me to quickly notice any potential hazards and address them right away. 
 

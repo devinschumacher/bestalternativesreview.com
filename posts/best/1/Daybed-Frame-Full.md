@@ -19,7 +19,7 @@ Get ready to transform your living space with our top picks of [Daybed Frame Ful
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Daybed+Frame+Full?utm_term=comfortable-full-size-wood-daybed-frame-with-linen-fabric-and-support-slats"><img alt="full-size-upholstered-daybed-wood-daybed-frame-with-a-backrest-and-armrests-linen-fabric-sofa-bed-wi-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/full-size-upholstered-daybed-wood-daybed-frame-with-a-backrest-and-armrests-linen-fabric-sofa-bed-wi-1/h=540,fit=pad,background=black"/></a></div>
 
-[This upholstered daybed brings a touch of mid-century modern elegance to your home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Upholstered-Bed.md) Its clean silhouette, coupled with a range of color options, makes it the perfect addition to any living or bedroom space. 
+[This upholstered daybed brings a touch of mid-century modern elegance to your home.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Modern-Upholstered-Bed.md) Its clean silhouette, coupled with a range of color options, makes it the perfect addition to any living or bedroom space. 
 
 Crafted with a sturdy wood frame, complete with armrests and a backrest, this daybed provides both functionality and comfort. You can easily customize it to complete the look of your space as it fits effortlessly into various home decor styles. The linen fabric sofa bed comes with wood slats support, providing additional peace of mind while you sleep. 
 

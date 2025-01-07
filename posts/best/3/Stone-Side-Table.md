@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Stone-Side-Table.md
 
 # Discover the Top 18 Stylish Stone Side Tables for Your Home Decor
 
-[Welcome to our roundup of the best Stone Side Tables in the market!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rustic-Farmhouse-Table.md) [We understand that finding the perfect accent piece for your home can be a daunting task, which is why we've curated this selection to help you make an informed decision.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Stone-Side-Table.md) In this article, we'll introduce you to our top picks, highlighting their key features and what makes them stand out amongst their competition. 
+[Welcome to our roundup of the best Stone Side Tables in the market!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Rustic-Farmhouse-Table.md) [We understand that finding the perfect accent piece for your home can be a daunting task, which is why we've curated this selection to help you make an informed decision.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Stone-Side-Table.md) In this article, we'll introduce you to our top picks, highlighting their key features and what makes them stand out amongst their competition. 
 
 *As an Amazon Affiliate™ we earn through qualifying purchases!*
 
@@ -118,7 +118,7 @@ Although some users reported minor issues with the finish, the overall look and 
 
 The Jolie End Table is a sleek, modern addition to your living space. Comprised of a combination of grey and blush marble, this piece boasts a unique blend of colors that will easily complement any decor. Measuring in at 20 inches high by 13.3 inches wide, its pedestal tabletop design ensures ample storage space and a stylish visual appeal. 
 
-The table's top surface is made of concrete, giving it an elegant, industrial look. Its glossy finish adds a touch of sophistication, while the overall solid construction lends sturdiness to the piece. [The table's pedestal design also makes it easy to move around and place in various areas of your home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tall-Pedestal-Table.md) 
+The table's top surface is made of concrete, giving it an elegant, industrial look. Its glossy finish adds a touch of sophistication, while the overall solid construction lends sturdiness to the piece. [The table's pedestal design also makes it easy to move around and place in various areas of your home.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Tall-Pedestal-Table.md) 
 
 Though the table is made of a synthetic material, it's designed to resemble authentic marble effectively. However, some users have expressed disappointment in the quality of the "marble" and have reported issues with stability. It's essential to keep this in mind when considering the table's overall value for money. 
 

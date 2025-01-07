@@ -100,7 +100,7 @@ Overall, I highly recommend this Infini Furnishings Sleeper Ottoman Sectional fo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Couch+With+Pull+Out+Ottoman?utm_term=multifunctional-gray-velvet-pull-out-reversible-sofa-bed-with-ottoman"><img alt="je-home-87-4-in-w-gray-velvet-pull-out-reversible-sofa-bed-l-shape-couch-with-storage-ottoman-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/je-home-87-4-in-w-gray-velvet-pull-out-reversible-sofa-bed-l-shape-couch-with-storage-ottoman-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently had the pleasure of adding the J&E Home Gray Velvet Pull Out Reversible Sofa Bed to my living room. With its sleek, l-shape design, it serves as the perfect spot for me to unwind after a long day at work. [The velvet fabric gives the couch a luxurious feel, making it the perfect cozy spot to sink into.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Luxury-Couches.md) 
+I recently had the pleasure of adding the J&E Home Gray Velvet Pull Out Reversible Sofa Bed to my living room. With its sleek, l-shape design, it serves as the perfect spot for me to unwind after a long day at work. [The velvet fabric gives the couch a luxurious feel, making it the perfect cozy spot to sink into.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Luxury-Couches.md) 
 
 One of my favorite features is that it's a two-in-one piece. During the day, it functions as a comfortable couch, and at night, it transforms into a sleeper bed for guests. The elastic backrest is a great bonus, providing good support while I rest. 
 
@@ -122,7 +122,7 @@ This dynamic sofa meets various needs, making it an ideal addition to any home.
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Couch+With+Pull+Out+Ottoman?utm_term=multipurpose-faux-leather-ottoman-sofa-with-pull-out-bed-brown"><img alt="simplie-fun-multipurpose-faux-leather-ottoman-lazy-sofa-pulling-out-sofa-bed-brown-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/simplie-fun-multipurpose-faux-leather-ottoman-lazy-sofa-pulling-out-sofa-bed-brown-1/h=540,fit=pad,background=black"/></a></div>
 
-[This brown multipurpose faux leather ottoman sofa is a perfect addition to any living space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Leather-Sofa.md) The couch has a beautiful brown color that complements most interior designs, making it a versatile piece. It offers a comfortable solution to both relaxation and sleep needs, as it transforms into a pull-out sofa bed. 
+[This brown multipurpose faux leather ottoman sofa is a perfect addition to any living space.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Modern-Leather-Sofa.md) The couch has a beautiful brown color that complements most interior designs, making it a versatile piece. It offers a comfortable solution to both relaxation and sleep needs, as it transforms into a pull-out sofa bed. 
 
 The main material used is PU leather, which is durable and easy to maintain. It also comes with a filler foam for added comfort and support. The dimensions are not specified, so it's essential to measure the space where you plan to place it before purchasing. 
 

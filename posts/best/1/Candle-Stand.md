@@ -23,7 +23,7 @@ I recently got my hands on these charming Metal Taper Candle Stands. The first t
 
 I used these candleholders on my coffee table, dresser, and even during my Thanksgiving dinner. They surely looked fantastic and added a touch of class to my decor. However, there was a slight caveat: since they are handmade, there might be minor differences in each product. But honestly, I found it intriguing and unique. 
 
-As for their dimensions, the largest one stood at 4 inches in diameter and 19 inches in height, giving them a decent size to hold standard tapers. [Overall, these Black Candlestick Holders managed to win me over with their visual appeal and versatility.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Candlestick-Holder.md) 
+As for their dimensions, the largest one stood at 4 inches in diameter and 19 inches in height, giving them a decent size to hold standard tapers. [Overall, these Black Candlestick Holders managed to win me over with their visual appeal and versatility.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Candlestick-Holder.md) 
 
 
 ### [Outdoor Black Metal Lantern Candle Stand](https://serp.ly/@bar/amazon/Candle+Stand?utm\_term=outdoor-black-metal-lantern-candle-stand)

@@ -36,7 +36,7 @@ I recently had the chance to test out the Hirsh Industries 24086 SOHO navy two-d
 
 One feature I particularly appreciated was the integrated hanging rails for letter-size hanging file folders, which is perfect for my line of work. The interlock mechanism that only allows one drawer to be open at a time is a nice touch, as it prevents unwanted spills and keeps my files in order. 
 
-However, there were a couple of drawbacks I encountered. [While the file cabinet is designed to be space-saving, it's not the most compact option out there, so I had to make some adjustments to fit it into my small office.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/File-Cabinets-With-Shelves.md) Additionally, the lock securing both drawers is a bit on the simple side, which means it might not be the best choice for high-security situations. 
+However, there were a couple of drawbacks I encountered. [While the file cabinet is designed to be space-saving, it's not the most compact option out there, so I had to make some adjustments to fit it into my small office.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/File-Cabinets-With-Shelves.md) Additionally, the lock securing both drawers is a bit on the simple side, which means it might not be the best choice for high-security situations. 
 
 Overall, this Hirsh Industries file cabinet has become an essential part of my office setup, providing both organization and style. While it's not perfect, its durability and versatility make it a worthwhile investment for any professional environment. 
 

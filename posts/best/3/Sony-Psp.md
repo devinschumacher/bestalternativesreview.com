@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Sony-Psp.md
 
 # Greatest Sony Psp Games -  Our Top 12 Must-Play Titles
 
-Dive into the world of handheld gaming with the [Sony PSP](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sony-Psp.md), a device that revolutionized mobile entertainment when it first hit the market. [In this roundup article, we'll explore the best PSP gaming experiences, from classic favorites to hidden gems.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sony-Psp.md) Get ready to relive nostalgic memories and discover new adventures, all within the palm of your hand. 
+Dive into the world of handheld gaming with the [Sony PSP](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Sony-Psp.md), a device that revolutionized mobile entertainment when it first hit the market. [In this roundup article, we'll explore the best PSP gaming experiences, from classic favorites to hidden gems.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Sony-Psp.md) Get ready to relive nostalgic memories and discover new adventures, all within the palm of your hand. 
 
 *As an Amazon Affiliate™ I receive compensation from qualifying purchases at no cost to you!*
 

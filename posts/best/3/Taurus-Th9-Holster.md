@@ -191,7 +191,7 @@ Introducing the Cabela's Ambidextrous Hip Holster, designed specifically for the
 
 Made of high-quality materials, this holster boasts a lightweight and tough construction, with four layers of protection - 600-denier nylon, brushed nylon tricot lining, breathable open-cell foam, and closed cell foam. The holster is designed to securely cradle your firearm, offering it a snug and cozy spot that prevents accidental discharges. 
 
-The holster's unique ambidextrous feature makes it ideal for shooters who prefer not to be tied to a specific side, as the belt clip allows for adjustable cross-draw positions. [This versatility adds to the holster's appeal, as it can be adjusted to suit various shooting styles and preferences.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Point-Tactical-Holster.md) 
+The holster's unique ambidextrous feature makes it ideal for shooters who prefer not to be tied to a specific side, as the belt clip allows for adjustable cross-draw positions. [This versatility adds to the holster's appeal, as it can be adjusted to suit various shooting styles and preferences.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Point-Tactical-Holster.md) 
 
 Despite its lightweight design, the Cabela's Ambidextrous Hip Holster offers incredible security, with a belt loop attachment that firmly attaches it to your waist. This ensures that your firearm remains in place even during strenuous activities, providing you with the peace of mind that comes with a securely fastened partner. 
 

@@ -123,7 +123,7 @@ Still, the Blue Harvest Gourd Pillow from C&F Home has become my autumn staple, 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Blue+Fall+Decor?utm_term=festive-blue-glass-gourd-pumpkin"><img alt="glitzhome-glass-gourd-pumpkin-blue-5-12-x-5-12-x-8-47" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/glitzhome-glass-gourd-pumpkin-blue-5-12-x-5-12-x-8-47/h=540,fit=pad,background=black"/></a></div>
 
-Imagine walking into a room and being greeted by a beautiful blue, glowing pumpkin. That's exactly what it feels like when you purchase the Glitzhome Glass Gourd Pumpkin. [This stunning piece of art adds a touch of elegance to any room, making it the perfect decoration for any season.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Decorative-Home-Collection.md) 
+Imagine walking into a room and being greeted by a beautiful blue, glowing pumpkin. That's exactly what it feels like when you purchase the Glitzhome Glass Gourd Pumpkin. [This stunning piece of art adds a touch of elegance to any room, making it the perfect decoration for any season.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Decorative-Home-Collection.md) 
 
 The Glass Gourd Pumpkin is handcrafted with precision and care. Its unique shape and vibrant blue color make it stand out from the rest. If you're looking for a decor piece that's not only visually appealing but also functional, this Glass Gourd Pumpkin is an excellent choice. 
 

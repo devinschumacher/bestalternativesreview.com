@@ -97,7 +97,7 @@ One major highlight was the helmet's patented Conehead EPS liner technology, pro
 
 However, there were a few areas that could use improvement. The package I received had a bit of dust on it and the colors were slightly off. I wish I could have seen a photo of the product before purchasing to make sure it was the right fit for me. 
 
-In the end, I have to say that I'm quite satisfied with my choice. [The Triple Eight Gotham helmet offers a perfect blend of style and safety, and I've found it to be both comfortable and reliable during my rides.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Triple-8-Helmet.md) 
+In the end, I have to say that I'm quite satisfied with my choice. [The Triple Eight Gotham helmet offers a perfect blend of style and safety, and I've found it to be both comfortable and reliable during my rides.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Triple-8-Helmet.md) 
 
 
 ### [Premium Youth Skateboard & BMX Bike Helmet with Interchangeable Size Adjustment](https://serp.ly/@bar/amazon/Skateboard+Helmet?utm\_term=premium-youth-skateboard-bmx-bike-helmet-with-interchangeable-size-adjustment)

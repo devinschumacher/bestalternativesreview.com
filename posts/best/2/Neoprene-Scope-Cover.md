@@ -218,7 +218,7 @@ Now, there are a couple of things to note. First, it's only made for scopes with
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Neoprene+Scope+Cover?utm_term=high-quality-neoprene-scope-cover-for-leupold-scopes"><img alt="leupold-scope-cover-medium-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/leupold-scope-cover-medium-1/h=540,fit=pad,background=black"/></a></div>
 
-[Leupold offers a line of medium-sized scope covers, providing protection for your valuable scope.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Leupold-Scopes.md) Constructed from nylon-laminated neoprene, these covers resist water and offer a secure fit. With a variety of sizes available, you can rest assured that your Leupold scope will be well-protected from dirt, damage, and dust. 
+[Leupold offers a line of medium-sized scope covers, providing protection for your valuable scope.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Leupold-Scopes.md) Constructed from nylon-laminated neoprene, these covers resist water and offer a secure fit. With a variety of sizes available, you can rest assured that your Leupold scope will be well-protected from dirt, damage, and dust. 
 
 Although some users may find the fit slightly tight, these covers offer an affordable and easy way to safeguard your investment. If you're looking for a budget-friendly way to keep your Leupold scope looking as good as new, these medium-sized scope covers are worth considering. 
 

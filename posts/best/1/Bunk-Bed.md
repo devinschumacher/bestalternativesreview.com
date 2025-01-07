@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Bunk-Bed.md
 
 # Upgrade Your Sleepspace with the Best Bunk Beds for Families -  Our Top 20 Picks
 
-[Get your kids excited about sleep time with the most popular bunk beds on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bunk-Bed.md) We've rounded up a collection of top-rated bunk beds that are not only functional but also aesthetically pleasing. Discover the best bunk beds to fit your child's room and budget. 
+[Get your kids excited about sleep time with the most popular bunk beds on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Bunk-Bed.md) We've rounded up a collection of top-rated bunk beds that are not only functional but also aesthetically pleasing. Discover the best bunk beds to fit your child's room and budget. 
 
 *As an Amazon Affiliate™, I may earn from qualifying purchases!*
 

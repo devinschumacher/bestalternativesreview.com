@@ -94,7 +94,7 @@ The stay-up top keeps them in place, giving you peace of mind. Ideal for outdoor
 
 Explore the comfort of Alpine Design's Performance Hiker Crew Socks, perfect for both hiking and everyday wear. These socks boast a snug fit, designed to support your arches, and are crafted with a medium-weight construction featuring full cushioning for optimal comfort. 
 
-The moisture-wicking technology ensures long-lasting comfort, while the 25% recycled polyester adds a sustainable touch. [Available in a variety of colors, these socks are a great addition to any wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hue-Socks.md) 
+The moisture-wicking technology ensures long-lasting comfort, while the 25% recycled polyester adds a sustainable touch. [Available in a variety of colors, these socks are a great addition to any wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hue-Socks.md) 
 
 
 ### [Mid-Calf Realtree Socks for Tall Boots](https://serp.ly/@bar/amazon/Socks+For+Hiking+Boots?utm\_term=mid-calf-realtree-socks-for-tall-boots)

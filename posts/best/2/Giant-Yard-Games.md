@@ -163,7 +163,7 @@ The B3 Sport Games Giant Quoits ring toss game is a great value with lots of non
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Giant+Yard+Games?utm_term=giant-kick-darts-versatile-outdoor-game-for-all-ages"><img alt="giant-kick-darts-over-6-ft-tall-with-over-15-games-included-giant-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/giant-kick-darts-over-6-ft-tall-with-over-15-games-included-giant-1/h=540,fit=pad,background=black"/></a></div>
 
-Swoop into your afternoon with the Giant Kick Darts Game! This 6-foot tall giant inflatable game is an instant hit with kids and adults alike. [It's the perfect addition to any backyard barbecue or neighborhood gathering.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bbq-Utensils.md) With over 15 different ways to play, you can enjoy endless hours of excitement. 
+Swoop into your afternoon with the Giant Kick Darts Game! This 6-foot tall giant inflatable game is an instant hit with kids and adults alike. [It's the perfect addition to any backyard barbecue or neighborhood gathering.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Bbq-Utensils.md) With over 15 different ways to play, you can enjoy endless hours of excitement. 
 
 One of our favorite features is the versatility of the game – players can opt for a longer ball, shootout, classic darts, home run derby, kick ball, golf, war, kick tic-tac-toe, or even go around the world. We've had plenty of fun trying out different variations and it keeps things fresh and exciting. 
 
@@ -176,7 +176,7 @@ All in all, the Giant Kick Darts Game brings a touch of excitement to any outdoo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Giant+Yard+Games?utm_term=backyard-hero-4-in-a-row-lawn-game"><img alt="backyard-hero-3-5-4-in-a-row-lawn-game-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/backyard-hero-3-5-4-in-a-row-lawn-game-1/h=540,fit=pad,background=black"/></a></div>
 
-[Savor those sunny afternoons with the Backyard Hero, a 4-in-a-row lawn game that's as big as the fun it brings.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lawn-Games.md) With an impressive 3.5 feet wide by 2.8 feet tall, it's perfect for your backyard BBQs, camping trips, or tailgates. 
+[Savor those sunny afternoons with the Backyard Hero, a 4-in-a-row lawn game that's as big as the fun it brings.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lawn-Games.md) With an impressive 3.5 feet wide by 2.8 feet tall, it's perfect for your backyard BBQs, camping trips, or tailgates. 
 
 Made of sturdy pinewood, it's stronger and more durable than the cheap plastic alternatives out there. A simple one-hand disc release lever makes gameplay a breeze, while the included drawstring disc storage sack ensures your 42 plastic discs are always at hand. 
 
@@ -257,7 +257,7 @@ So remember, the Bolaball Giant 4-In-A-Row Game, Family Edition is not just a ga
 
 ## Buyer's Guide
 
-[Welcome to our buyer's guide for Giant Yard Games!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Giant-Yard-Games.md) In this section, we'll cover the key features to consider when purchasing a giant yard game, share some important considerations, and provide general advice to help you make the best choice for your needs. 
+[Welcome to our buyer's guide for Giant Yard Games!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Giant-Yard-Games.md) In this section, we'll cover the key features to consider when purchasing a giant yard game, share some important considerations, and provide general advice to help you make the best choice for your needs. 
 
 
 ### Considerations Before Purchasing

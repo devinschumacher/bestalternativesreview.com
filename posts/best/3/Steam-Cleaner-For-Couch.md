@@ -270,7 +270,7 @@ Overall, the Hart Spot Cleaner is a reliable and efficient tool for pet owners a
 
 I recently started using the PurSteam portable steam cleaner and I must say, it has made a huge difference in cleaning around my house! I had never used a handheld steamer before, but this one is lightweight and easy to use. It heats up quickly, and the 9.8-foot power cord makes it convenient for both indoor and outdoor use. 
 
-The versatility of this product is impressive - it's designed to clean on multiple surfaces including tiles, granite, and waterproof wood flooring. And don't get me started on what it can do for carpeted areas! [The steam cleaner has a powerful cleaning ability and is safe for pets to be around.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pet-Steam-Cleaner.md) 
+The versatility of this product is impressive - it's designed to clean on multiple surfaces including tiles, granite, and waterproof wood flooring. And don't get me started on what it can do for carpeted areas! [The steam cleaner has a powerful cleaning ability and is safe for pets to be around.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pet-Steam-Cleaner.md) 
 
 Using this product, I found that it could easily handle stains and grime from places like kitchen countertops and sinks. Plus, switching out the steam nozzle gave me the flexibility to tackle different surfaces. I particularly loved how it could easily reach hard-to-reach areas where I had previously had to use brute force! 
 

@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/2/Height-Insoles.md
 
 Tired of being overshadowed at social gatherings? Want to make a lasting impression at that job interview? If you're looking for a quick, non-invasive fix to boost your confidence and stature, [Height Insoles](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Height-Insoles.md) are just the thing you need! 
 
-[In this roundup, we'll be exploring the best Height Insoles available on the market today.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Height-Insoles.md) Whether you're looking for a pair to wear at a party or for everyday use, we've got you covered. So sit back, relax, and discover the world of height insoles - an unexpected solution to your height concerns! 
+[In this roundup, we'll be exploring the best Height Insoles available on the market today.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Height-Insoles.md) Whether you're looking for a pair to wear at a party or for everyday use, we've got you covered. So sit back, relax, and discover the world of height insoles - an unexpected solution to your height concerns! 
 
 *As an Amazon Affiliate, I receive compensation through qualified purchases at no cost to you.*
 

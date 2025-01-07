@@ -150,7 +150,7 @@ While the optical tube's weight might be slightly on the heavier side, this is o
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Sightron+Scopes?utm_term=portable-hunting-scope-with-starbright-coatings"><img alt="celestron-c5-spotting-scope-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/celestron-c5-spotting-scope-1/h=540,fit=pad,background=black"/></a></div>
 
-I recently tried the Celestron C5 Spotting Scope, and I was really impressed by its compact design and lightweight build. It's the perfect size to take with you on the go, whether you're birdwatching or enjoying nature in a new location. [The spotting scope is very portable and easy to handle, allowing me to quickly set it up and start exploring the views around me.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Vanguard-Spotting-Scope.md) 
+I recently tried the Celestron C5 Spotting Scope, and I was really impressed by its compact design and lightweight build. It's the perfect size to take with you on the go, whether you're birdwatching or enjoying nature in a new location. [The spotting scope is very portable and easy to handle, allowing me to quickly set it up and start exploring the views around me.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Vanguard-Spotting-Scope.md) 
 
 One of the standout features of Celestron C5 Spotting Scope is its Schmidt-Cassegrain optical system, which ensures stunning image quality. I could see the details of distant objects in high resolution and vibrant colors, which made my observations so much more enjoyable. The 5" aperture also helped gather a lot of light, making it easier to observe even in low-light situations. 
 

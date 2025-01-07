@@ -28,7 +28,7 @@ Made from polyester velvet and designed for adults, this one-size-fits-most acce
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pig+Ears?utm_term=all-natural-pig-ear-dog-treats-2-lbs-pig-ear-slivers"><img alt="pig-ear-slivers-all-natural-pig-ear-dog-treats-size-2-lbs-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/pig-ear-slivers-all-natural-pig-ear-dog-treats-size-2-lbs-1/h=540,fit=pad,background=black"/></a></div>
 
-With my little Pomeranian, I've always struggled to find the perfect treat that's safe and delicious. [That's when I stumbled upon these all-natural pig ear slivers.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pig-Ears.md) 
+With my little Pomeranian, I've always struggled to find the perfect treat that's safe and delicious. [That's when I stumbled upon these all-natural pig ear slivers.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pig-Ears.md) 
 
 These treats are a great size for small dogs, making them a perfect snack for my furry friend. The best part? They're completely bone-free, so they won't crumble or splinter when my dog chews on them. 
 
@@ -289,7 +289,7 @@ With their tasty, meaty flavor, your dog will surely love every bite.
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pig+Ears?utm_term=natural-pig-ears-dog-treats-for-all-chewers"><img alt="123-treats-natural-pig-ears-for-dogs-100-natural-long-lasting-pork-dog-chews-ideal-for-all-chewers-d-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/123-treats-natural-pig-ears-for-dogs-100-natural-long-lasting-pork-dog-chews-ideal-for-all-chewers-d-1/h=540,fit=pad,background=black"/></a></div>
 
-Get ready to treat your furry friend with 123 Treats' Natural Pig Ears for Dogs. [These all-natural, long-lasting chews are the perfect choice for dogs of all sizes, making them a great training reward or daily snack option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Long-Lasting-Dog-Chews.md) 
+Get ready to treat your furry friend with 123 Treats' Natural Pig Ears for Dogs. [These all-natural, long-lasting chews are the perfect choice for dogs of all sizes, making them a great training reward or daily snack option.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Long-Lasting-Dog-Chews.md) 
 
 Made with 100% hormone-free, preservative-free, and coloring-free ingredients, these treats promote healthy skin and a shiny coat for your dog. The roasted (baked) texture of the pig ears helps reduce tartar build-up and massage gums, leading to better oral health. 
 

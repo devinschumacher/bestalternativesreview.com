@@ -109,7 +109,7 @@ I recently gave the Bearpaw Norah 10 Women's Seal a try and let me tell you, the
 
 The EVA outsole provided grip and stability, allowing me to confidently traverse icy terrain. Bearpaw's recommendation to size up was spot on - these boots felt snug but not too tight. 
 
-However, the zip side closure could use some improvement for convenience. [Despite that minor setback, I found these boots to be a reliable and comfortable choice for my daily winter wear.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
+However, the zip side closure could use some improvement for convenience. [Despite that minor setback, I found these boots to be a reliable and comfortable choice for my daily winter wear.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Keen-Boots.md) 
 
 
 ### [Vintage Bearpaw Shorty Casual Boots for Women](https://serp.ly/@bar/amazon/Bearpaw+Boots+Red?utm\_term=vintage-bearpaw-shorty-casual-boots-for-women)
@@ -131,7 +131,7 @@ One of the most impressive features of these boots is the moisture-propelling, p
 
 However, I did experience a minor inconvenience with the lower buckle on the last hole. It felt a bit loose, but luckily, it was an easy fix. I just made another hole and the issue was resolved. The boots run a bit big, so be sure to check your size. 
 
-Overall, the Bearpaw Women's Amethyst Boot is a stylish and comfortable addition to any wardrobe. [The combination of its fashionable design and practical features makes it a great choice for those who love boots that are both trendy and functional.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Full-Tilt-Boots.md) 
+Overall, the Bearpaw Women's Amethyst Boot is a stylish and comfortable addition to any wardrobe. [The combination of its fashionable design and practical features makes it a great choice for those who love boots that are both trendy and functional.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Full-Tilt-Boots.md) 
 
 
 ### [Bearpaw Women's Hickory Emery Red Boots](https://serp.ly/@bar/amazon/Bearpaw+Boots+Red?utm\_term=bearpaw-womens-hickory-emery-red-boots)

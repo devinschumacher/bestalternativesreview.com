@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Modern-Leather-Sofa.md
 
 # Comfort and Style -  Discover the Top 22 Modern Leather Sofas for Your Home
 
-[Dive into the world of modern home furnishings with our roundup of the best leather sofas the market has to offer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Leather-Sofa.md) From sleek designs to durable materials, our selection is sure to elevate your living space to new heights of comfort and style. 
+[Dive into the world of modern home furnishings with our roundup of the best leather sofas the market has to offer.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Modern-Leather-Sofa.md) From sleek designs to durable materials, our selection is sure to elevate your living space to new heights of comfort and style. 
 
 *As an Amazon Affiliate I earn through qualified purchases at no cost to you!*
 

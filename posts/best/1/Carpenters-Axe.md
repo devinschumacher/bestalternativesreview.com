@@ -36,7 +36,7 @@ The handle, made from hickory and treated with linseed oil, promises to be sturd
 
 It may be a little longer than some might prefer, but for a carpenter's axe, it just works. Users rave about its beauty, old-school quality, and sharpness right out of the box. 
 
-[This axe is a true testament to craftsmanship and a must-have for any carpenter's toolkit.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Carpenters-Axe.md) 
+[This axe is a true testament to craftsmanship and a must-have for any carpenter's toolkit.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Carpenters-Axe.md) 
 
 
 ### [Condor Mountain Pass: The Ultimate Carpenters Axe](https://serp.ly/@bar/amazon/Carpenters+Axe?utm\_term=condor-mountain-pass-the-ultimate-carpenters-axe)

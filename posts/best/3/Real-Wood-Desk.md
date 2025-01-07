@@ -43,7 +43,7 @@ A highlight of this desk is the built-in bookstand that adds a utilitarian touch
 
 However, some users have noted minor damage to the desk, which may require attention after assembly. Additionally, the product has a slight smell upon arrival that could benefit from a good airing. 
 
-[Overall, the desk is a great choice for those seeking a chic and practical addition to their home or office.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desks.md) 
+[Overall, the desk is a great choice for those seeking a chic and practical addition to their home or office.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desks.md) 
 
 
 ### [Elegant Walnut Mid-Century Solid Wood Desk with Open Shelf and Bright White Drawer](https://serp.ly/@bar/amazon/Real+Wood+Desk?utm\_term=elegant-walnut-mid-century-solid-wood-desk-with-open-shelf-and-bright-white-drawer)
@@ -56,7 +56,7 @@ Its angled legs support a rectangular top, creating a bold and distinctive silho
 
 Adding to its charm is a contrasting bright white drawer, perfect for storing stationery and other office supplies. And with its generous dimensions of 26 inches by 46 inches, you'll have ample space to spread out and work comfortably. 
 
-But remember, while its walnut finish is stunning, it's also a bit of a fingerprint magnet, so you might need to wipe it down more frequently than you'd like. [Overall, this solid wood desk is a stylish and practical addition to any home or office.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Solid-Wood-Writing-Desk.md) 
+But remember, while its walnut finish is stunning, it's also a bit of a fingerprint magnet, so you might need to wipe it down more frequently than you'd like. [Overall, this solid wood desk is a stylish and practical addition to any home or office.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Solid-Wood-Writing-Desk.md) 
 
 
 ### [Raven Oak L-Shaped Rustic Corner Desk with Drawers and Shelves](https://serp.ly/@bar/amazon/Real+Wood+Desk?utm\_term=raven-oak-l-shaped-rustic-corner-desk-with-drawers-and-shelves)
@@ -156,7 +156,7 @@ In the world of home office furniture, a desk serves as the heart of productivit
 
 When I first unboxed this desk, I was impressed by the attention to detail and the smooth finish of the wood. It's not every day you find a piece of furniture that manages to seamlessly blend beauty and utility. 
 
-One aspect that truly stood out was its adjustability. [This desk is perfectly positioned to provide a comfortable working environment, whether you're typing away at your computer or working on art projects from a standing position.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Sit-Stand-Desk-With-Drawers.md) The height is easily adjustable, making it suitable for a wide variety of tasks and activities. 
+One aspect that truly stood out was its adjustability. [This desk is perfectly positioned to provide a comfortable working environment, whether you're typing away at your computer or working on art projects from a standing position.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Sit-Stand-Desk-With-Drawers.md) The height is easily adjustable, making it suitable for a wide variety of tasks and activities. 
 
 A small issue I encountered was the size of the piece. Despite being advertised as a small to medium size, I found it to be larger than expected. This resulted in some difficulty when it came to fitting it into my designated workspace. However, I do have to acknowledge that once assembled, it fit snugly and securely, providing a sturdy foundation for all my work. 
 
@@ -236,7 +236,7 @@ All in all, the Sauder Summit Station Executive Desk is a well-built, stylish ad
 
 As a reviewer who actually tried the FURINNO Econ Multi-Purpose Home Office Computer Writing Desk, let me share my experience. I was initially intrigued by the compact and stylish design. It definitely fits seamlessly in tight spaces, making it perfect for my small home office. However, I did notice certain challenges - the product's durability left something to be desired. Despite its cute appearance and easy assembly, it seems a bit fragile, as revealed by a few users' experiences of wooden components breaking or splintering. Although the desk comes with a keyboard tray and storage bin, which were convenient for me, one user reported issues with the pull-out shelf for the drawer. 
 
-The desk came in the dimensions listed (15.8"D x 39.4"W x 34.09"H), and its overall construction of engineered wood seemed adequate. However, assembling it required extra effort, especially if you were doing it alone. The product included a number of shelves, and the enclosed storage bin came in handy for organizing my office clutter. [This multi-purpose desk also worked perfectly for my casual drafting and writing needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Corner-Writing-Desk.md) 
+The desk came in the dimensions listed (15.8"D x 39.4"W x 34.09"H), and its overall construction of engineered wood seemed adequate. However, assembling it required extra effort, especially if you were doing it alone. The product included a number of shelves, and the enclosed storage bin came in handy for organizing my office clutter. [This multi-purpose desk also worked perfectly for my casual drafting and writing needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Corner-Writing-Desk.md) 
 
 On the downside, the desk seemed susceptible to smudging, requiring regular cleaning. Users also expressed concerns about the assembly instructions, which were deemed unclear, making it more difficult to put everything together. Additionally, some users who used the desk for gaming or more intensive tasks described it as being unsteady. 
 
@@ -255,7 +255,7 @@ When shopping for a real wood desk, consider the following features to ensure th
 
 ### Size and Dimensions
 
-The size and dimensions of a real wood desk are crucial factors to consider. [You should choose a desk that fits your space requirements and workspace needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Desk-With-Storage.md) The dimensions to consider include the depth, width, and height of the desk. Additionally, ensure that there is enough space around the desk for easy movement and accessibility. 
+The size and dimensions of a real wood desk are crucial factors to consider. [You should choose a desk that fits your space requirements and workspace needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Small-Desk-With-Storage.md) The dimensions to consider include the depth, width, and height of the desk. Additionally, ensure that there is enough space around the desk for easy movement and accessibility. 
 
 
 ### Types of Wood and Styles
@@ -265,7 +265,7 @@ Real wood desks come in various styles and materials, including solid wood, vene
 
 ### Additional Storage and Functionality
 
-A good real wood desk should have enough space for your work and storage needs. Consider desks with drawers, shelves, or cabinets that provide ample storage for your office supplies. [Additionally, look for desks with cable management systems or built-in charging stations to keep your workspace organized and clutter-free.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desk-Cable-Management.md) 
+A good real wood desk should have enough space for your work and storage needs. Consider desks with drawers, shelves, or cabinets that provide ample storage for your office supplies. [Additionally, look for desks with cable management systems or built-in charging stations to keep your workspace organized and clutter-free.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desk-Cable-Management.md) 
 
 
 ## FAQ

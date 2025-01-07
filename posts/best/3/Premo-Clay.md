@@ -124,7 +124,7 @@ Despite the initial setback, I persisted and tried various methods to soften the
 
 On the positive side, I appreciated the wide range of colors available in the Premo Sculpey line, including the Mustard color I tested. The ability to mix and blend shades for customized results is a definite pro for this clay. Additionally, the durability of the finished projects, thanks to Premo's retention of flexibility, is another commendable feature. 
 
-Overall, my experience with using the Premo Sculpey Mustard clay was somewhat underwhelming. [Although the clay shows potential, its lack of pliability and its resistance to becoming soft enough for detailed creations left me seeking out alternative clay options for my projects.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Clay-For-Pottery.md) 
+Overall, my experience with using the Premo Sculpey Mustard clay was somewhat underwhelming. [Although the clay shows potential, its lack of pliability and its resistance to becoming soft enough for detailed creations left me seeking out alternative clay options for my projects.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Clay-For-Pottery.md) 
 
 
 ### [Premo Oven-Bake Clay 10 Pack: Versatile Artistic Clay for Jewelry and Decor Tactile Creativity](https://serp.ly/@bar/amazon/Premo+Clay?utm\_term=premo-oven-bake-clay-10-pack-versatile-artistic-clay-for-jewelry-and-decor-tactile-creativity)

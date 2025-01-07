@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Waterproof-Eyeliner.md
 
 # Eye-catching and Long-Lasting -  The Top 15 Waterproof Eyeliners for Your Makeup Collection
 
-[Say goodbye to smudgy and easily wiped off eyeliner!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Waterproof-Eyeliner.md) In this article, we've compiled a roundup of the *Waterproof Eyeliners* that are not only long-lasting but also effortlessly glamorous. From budget-friendly options to high-end choices, we've got you covered for a flawless and waterproof look all day long. 
+[Say goodbye to smudgy and easily wiped off eyeliner!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Waterproof-Eyeliner.md) In this article, we've compiled a roundup of the *Waterproof Eyeliners* that are not only long-lasting but also effortlessly glamorous. From budget-friendly options to high-end choices, we've got you covered for a flawless and waterproof look all day long. 
 
 *As an Amazon Affiliate™ we earn from qualified purchases at no cost to you.*
 

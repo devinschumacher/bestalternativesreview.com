@@ -73,7 +73,7 @@ One feature that really stood out for me was the fully adjustable drop - at 42 i
 
 However, one thing to note is that the bulb isn't included with the light. While it's great to have options like incandescent, LED, or CFL bulbs, it would be even more convenient if the bulb was already included. 
 
-[Overall, the Emliviar Mini Pendant Light is a stylish and well-designed option that's perfect for adding a touch of sophistication to your home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mini-Pendant-Lights.md) 
+[Overall, the Emliviar Mini Pendant Light is a stylish and well-designed option that's perfect for adding a touch of sophistication to your home.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mini-Pendant-Lights.md) 
 
 
 ### [FiveS Lighting: Modern Mini Pendant for Kitchens with 4W LED Bulb](https://serp.ly/@bar/amazon/Mini+Pendant+Lights?utm\_term=fives-lighting-modern-mini-pendant-for-kitchens-with-4w-led-bulb)
@@ -93,7 +93,7 @@ The only downside I've noticed is that the warranty might not cover everything, 
 
 This Modest 1 Light Mini Pendant comes in a sleek black design, perfect for adding subtle sophistication to any room. Standing at 4 inches tall, it's a compact yet impactful addition to your space. 
 
-[Featuring a dome-shaped shade, the lighting provides even coverage and is suitable for dry environments like living rooms or bedrooms.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dome-Table-Lamp.md) Equipped with a 1 Medium E26 bulb, this pendant delivers the desired atmosphere without overwhelming the room. Although it's a basic design, the touch of gold in the adjustable cord and textured inside of the shade elevates its appeal. 
+[Featuring a dome-shaped shade, the lighting provides even coverage and is suitable for dry environments like living rooms or bedrooms.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dome-Table-Lamp.md) Equipped with a 1 Medium E26 bulb, this pendant delivers the desired atmosphere without overwhelming the room. Although it's a basic design, the touch of gold in the adjustable cord and textured inside of the shade elevates its appeal. 
 
 
 ### [CWI Lighting Morgan Mini Pendant Light in Chocolate Finish](https://serp.ly/@bar/amazon/Mini+Pendant+Lights?utm\_term=cwi-lighting-morgan-mini-pendant-light-in-chocolate-finish)

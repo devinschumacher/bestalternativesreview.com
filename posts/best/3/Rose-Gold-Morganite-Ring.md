@@ -105,9 +105,9 @@ Overall, this morganite ring is a fantastic choice for those looking to add a to
 
 This exquisite Morganite and diamond ring in 10K rose gold is a stunning piece of jewelry that is sure to impress with its delicate combination of elegant pink Morganite and shimmering diamonds. At 1.0 carats (ctw) and crafted in a classic, modern style, this ring is a beautiful addition to any collection, especially for those born in April. 
 
-[The rose gold adds a touch of unique charm, making this an unforgettable gift for any special occasion, such as a holiday or engagement.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rose-Gold-Heart-Ring.md) Its versatility with various ring styles ensures a classic, modern look suitable for any personal taste. However, some users note that the Morganite stone may get cloudy with everyday use, requiring a simple cleaning solution. 
+[The rose gold adds a touch of unique charm, making this an unforgettable gift for any special occasion, such as a holiday or engagement.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Rose-Gold-Heart-Ring.md) Its versatility with various ring styles ensures a classic, modern look suitable for any personal taste. However, some users note that the Morganite stone may get cloudy with everyday use, requiring a simple cleaning solution. 
 
-[Overall, the ring's timeless elegance and eye-catching beauty make it a must-have for anyone looking to make a statement with their jewelry.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Steel-Rings-Mens.md) 
+[Overall, the ring's timeless elegance and eye-catching beauty make it a must-have for anyone looking to make a statement with their jewelry.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Steel-Rings-Mens.md) 
 
 
 ### [Blush Pink Morganite & Diamond Engagement Ring in 10K Rose Gold](https://serp.ly/@bar/amazon/Rose+Gold+Morganite+Ring?utm\_term=blush-pink-morganite-diamond-engagement-ring-in-10k-rose-gold)

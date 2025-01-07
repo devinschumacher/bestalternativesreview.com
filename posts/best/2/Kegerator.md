@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Kegerator.md
 
 # Serve Perfect Beer Every Time with the Best 35 Kegerator for Your Home Bar
 
-[Looking for a way to serve your favorite craft beverages at home?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kegerator.md) Say hello to the [Kegerator](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kegerator.md)! In this article, we'll be rounding up the best Kegerators on the market, perfect for beer enthusiasts and party hosts. From top-rated brands to budget-friendly options, we've got you covered. Let's dive in and discover the best Kegerators to make your next gathering a memorable one. 
+[Looking for a way to serve your favorite craft beverages at home?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kegerator.md) Say hello to the [Kegerator](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Kegerator.md)! In this article, we'll be rounding up the best Kegerators on the market, perfect for beer enthusiasts and party hosts. From top-rated brands to budget-friendly options, we've got you covered. Let's dive in and discover the best Kegerators to make your next gathering a memorable one. 
 
 *As an Amazon Affiliate I receive compensation from qualifying purchases!*
 

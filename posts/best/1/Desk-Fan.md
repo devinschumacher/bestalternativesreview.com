@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Desk-Fan.md
 
 # Stay Cool and Productive -  Top 49 Desk Fans for Your Workspace
 
-[Feeling the heat of summer or the sting of AC on your neck during winter?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desk-Fan.md) We know how it feels. That's why we've gathered together the best desk fans that could give you a cool, refreshing breeze, all from the comfort of your workspace. 
+[Feeling the heat of summer or the sting of AC on your neck during winter?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desk-Fan.md) We know how it feels. That's why we've gathered together the best desk fans that could give you a cool, refreshing breeze, all from the comfort of your workspace. 
 
 Get ready to feel the gust of air against your face as you dive into this comprehensive roundup of the top desk fans on the market. Whether you're working from home, in a retail space, or any other environment that begs for a personal air conditioner, this article has got you covered. 
 
@@ -264,7 +264,7 @@ The compact design, complete with a carrying handle, makes it an ideal choice fo
 
 The Better Homes & Gardens 5 inch Retro Personal Metal Drum Fan is a small but powerful tabletop fan, perfect for keeping you cool in your home or office. The retro design combined with its small size makes it an attractive addition to any room. The fan is easy to control and comes fully assembled, ready to use right out of the box. 
 
-It offers three speeds and a conveniently adjustable tilt, providing a versatile cooling experience. [While it may not be the best option for people who need an ice-cold airflow, it is an ideal budget fan for those looking for a quiet and efficient way to stay cool during hot summer days.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cool-Air-Fan.md) [Overall, this compact desk fan is a great choice for anyone seeking a stylish and functional cooling solution.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tower-Fan-With-Remote.md) 
+It offers three speeds and a conveniently adjustable tilt, providing a versatile cooling experience. [While it may not be the best option for people who need an ice-cold airflow, it is an ideal budget fan for those looking for a quiet and efficient way to stay cool during hot summer days.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cool-Air-Fan.md) [Overall, this compact desk fan is a great choice for anyone seeking a stylish and functional cooling solution.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Tower-Fan-With-Remote.md) 
 
 
 ### [Black+Decker Portable 9-Inch Frameless Tabletop Fan](https://serp.ly/@bar/amazon/Desk+Fan?utm\_term=blackdecker-portable-9-inch-frameless-tabletop-fan)

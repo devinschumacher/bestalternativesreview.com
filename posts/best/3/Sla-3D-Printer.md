@@ -106,7 +106,7 @@ The dual auto bed leveling system is another stand-out feature, eliminating the 
 
 The spaghetti failure detection system is another intelligent feature that prevents the filament from interlocking and creating a mess during the printing process. With the AI-inspected first layer, you can rest assured that your prints will start off perfectly. 
 
-The Bambu Lab X1-Carbon is engineered to be compatible with various [Makerbot 3D Printer](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Makerbot-3D-Printer.md) accessories, giving you more options to enhance your printing experience. [With its impressive specifications, the printer is versatile and robust, making it a top choice for both hobbyists and professionals alike.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hp-Portable-Printer.md) 
+The Bambu Lab X1-Carbon is engineered to be compatible with various [Makerbot 3D Printer](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Makerbot-3D-Printer.md) accessories, giving you more options to enhance your printing experience. [With its impressive specifications, the printer is versatile and robust, making it a top choice for both hobbyists and professionals alike.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hp-Portable-Printer.md) 
 
 Overall, the Bambu Lab X1-Carbon is an exceptional 3D printer that delivers on performance and quality. It checks all the right boxes, making it a must-have for anyone looking to jump into the world of 3D printing with excellence and precision. 
 

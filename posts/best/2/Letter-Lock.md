@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Letter-Lock.md
 
 # Unlock the Best Letter Lock Picks for Secure and Stylish Storage -  Our Top 17 Recommendations
 
-[Are you tired of dealing with clumsy padlocks or pesky keys?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Letter-Lock.md) Look no further, because we've rounded up the most innovative and user-friendly letter locks on the market. 
+[Are you tired of dealing with clumsy padlocks or pesky keys?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Letter-Lock.md) Look no further, because we've rounded up the most innovative and user-friendly letter locks on the market. 
 
 Get ready to experience a whole new level of security and convenience, as we take a closer look at how these letter locks can revolutionize the way you secure your valuables. 
 

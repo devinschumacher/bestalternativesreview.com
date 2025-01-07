@@ -47,7 +47,7 @@ The Platinum Plaisir Fountain Pen's innovative features do not stop at its styli
 
 In terms of compatibility, the pen comes equipped with a cartridge ink system, allowing you to easily switch between various colors. While the pen does not come with an ink converter, it is an affordable and suitable choice for those on a budget. A gift-boxed option is also available, making the Platinum Plaisir Fountain Pen the perfect present for any avid writer or fountain pen enthusiast. 
 
-In conclusion, the Platinum Plaisir Fountain Pen with its Bali Citrus finish combines both aesthetic appeal and reliable performance. [Its lightweight design, innovative features, and compatibility with various ink types make it a desirable addition for any fountain pen lover or those seeking a higher quality pen without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fountain-Pen-Ink.md) 
+In conclusion, the Platinum Plaisir Fountain Pen with its Bali Citrus finish combines both aesthetic appeal and reliable performance. [Its lightweight design, innovative features, and compatibility with various ink types make it a desirable addition for any fountain pen lover or those seeking a higher quality pen without breaking the bank.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Fountain-Pen-Ink.md) 
 
 
 ### [Faber-Castell School+ Blue Fountain Pen: Stainless Steel Nib, Comfortable Grip, and Ink Cartridges](https://serp.ly/@bar/amazon/Fountain+Pen?utm\_term=faber-castell-school-blue-fountain-pen-stainless-steel-nib-comfortable-grip-and-ink-cartridges)
@@ -224,7 +224,7 @@ The star of this pen is the German-made "SCHMIDT" fine point nib, offering a smo
 
 While it is a beautifully crafted pen, the downside is that you cannot change the nibs yourself, as it is a fixed feature of the pen. However, the ink converter provides an easy and convenient way to refill the pen, ensuring that it is ready for continuous use. The pen size of 138 mm length x 10 mm diameter, giving it a balanced weight of 37g, making it perfect for everyday use. 
 
-Gift-giving season is here and this LACHIEVA Luxury Walnut Fountain Pen set is the ideal present, standing out from the crowd and impressing any recipient. [Whether you're looking for a meaningful gift for a special occasion or simply want to elevate your daily pen usage, this stunning pen is sure to win the hearts of many.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Drawing-Pens.md) 
+Gift-giving season is here and this LACHIEVA Luxury Walnut Fountain Pen set is the ideal present, standing out from the crowd and impressing any recipient. [Whether you're looking for a meaningful gift for a special occasion or simply want to elevate your daily pen usage, this stunning pen is sure to win the hearts of many.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Drawing-Pens.md) 
 
 
 ### [Ferris Wheel Press Limited Edition Harlequin Dream Fountain Pen](https://serp.ly/@bar/amazon/Fountain+Pen?utm\_term=ferris-wheel-press-limited-edition-harlequin-dream-fountain-pen)

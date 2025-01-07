@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Mens-Mock-Neck-Sweater.md
 
 # Stay Stylish and Comfortable -  Our Top 15 Picks for the Best Mens Mock Neck Sweaters
 
-[Welcome to our roundup of the best Mens Mock Neck Sweaters on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Mens-Mock-Neck-Sweater.md) We understand that finding the perfect sweater can be a daunting task, especially with so many options out there. That's why we've curated this list of our top picks that'll keep you cozy, stylish, and on-trend all season long. 
+[Welcome to our roundup of the best Mens Mock Neck Sweaters on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Mens-Mock-Neck-Sweater.md) We understand that finding the perfect sweater can be a daunting task, especially with so many options out there. That's why we've curated this list of our top picks that'll keep you cozy, stylish, and on-trend all season long. 
 
 *As an Amazon Affiliate we may earn from qualified purchases at no cost to you*
 

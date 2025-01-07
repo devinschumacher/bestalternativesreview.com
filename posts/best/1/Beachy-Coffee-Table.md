@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Beachy-Coffee-Table.md
 
 # Bring the Beach Inside with the Best 13 Beachy Coffee Tables
 
-[Dive into the world of coastal-inspired home decor with our roundup of the top Beachy Coffee Tables.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beachy-Coffee-Table.md) Whether you're looking to add a touch of nautical charm or simply want to brighten up your living space, these stylish options are sure to make a splash. Get ready to transform your room into a beachfront retreat! 
+[Dive into the world of coastal-inspired home decor with our roundup of the top Beachy Coffee Tables.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Beachy-Coffee-Table.md) Whether you're looking to add a touch of nautical charm or simply want to brighten up your living space, these stylish options are sure to make a splash. Get ready to transform your room into a beachfront retreat! 
 
 *As an Amazon Affiliate™, I may earn from qualified purchases at no cost to you!*
 

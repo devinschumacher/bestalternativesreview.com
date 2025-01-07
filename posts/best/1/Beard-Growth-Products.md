@@ -19,7 +19,7 @@ Get ready to transform your facial hair game! In this roundup article, we delve 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Beard+Growth+Products?utm_term=wild-willies-beard-growth-vitamins-for-fuller-thicker-beards"><img alt="badass-beard-growth-supplement-for-men-advanced-facial-hair-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/badass-beard-growth-supplement-for-men-advanced-facial-hair-1/h=540,fit=pad,background=black"/></a></div>
 
-[Wild Willies Beard Growth Vitamins Supplement is a dream come true for men struggling with barely visible facial hair.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beard-Supplements.md) As someone who's tried these pills, let me tell you that this supplement packs a serious punch when it comes to stimulating the growth of fuller and thicker beards. 
+[Wild Willies Beard Growth Vitamins Supplement is a dream come true for men struggling with barely visible facial hair.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Beard-Supplements.md) As someone who's tried these pills, let me tell you that this supplement packs a serious punch when it comes to stimulating the growth of fuller and thicker beards. 
 
 The highlight of this product, the Biositol Complex, works like a charm to support maximum facial hair growth. And with 19 hair grooming ingredients, you'll surely notice a difference in the density and thickness of your beard. 
 
@@ -34,7 +34,7 @@ Wild Willies Beard Growth Vitamins Supplement might not be an instant miracle wo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Beard+Growth+Products?utm_term=jotunns-brew-premium-growth-beard-oil-all-natural-serum-for-strong-beard-care"><img alt="jotunns-brew-beard-oil-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/jotunns-brew-beard-oil-1/h=540,fit=pad,background=black"/></a></div>
 
-Imagine waking up one morning, feeling proud of your beard growth, and smelling like a delicious blend of fragrant oils. That's what Mad Viking's Jotunn's Brew Beard Oil offered me! [I've tried beard oils from other brands before, but this one stood out for its unique scent.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Good-Beard-Oil.md) 
+Imagine waking up one morning, feeling proud of your beard growth, and smelling like a delicious blend of fragrant oils. That's what Mad Viking's Jotunn's Brew Beard Oil offered me! [I've tried beard oils from other brands before, but this one stood out for its unique scent.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Good-Beard-Oil.md) 
 
 My experience with Jotunn's Brew Beard Oil was pleasant from the very beginning. Upon applying it, I noticed that it wasn't greasy at all, and it quickly absorbed into my beard, leaving no unwanted residue. What I loved the most about this product was the scent. It was a perfect balance between sweet and woody that lingered on my beard for hours. 
 

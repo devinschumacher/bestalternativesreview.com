@@ -111,7 +111,7 @@ The easy-to-use brush also ensures hours of playtime. This doll is a perfect gif
 
 These Barbie Looks dolls are a unique and stylish addition to any doll collection. With fresh looks and a diverse range of dolls, these Barbie dolls are perfect for both stylists and fashion enthusiasts. The dolls feature on-trend fashions and posable articulated bodies, making them perfect for all sorts of posing and photography. 
 
-[Featuring chic designs and innovative face sculpts, these dolls are sure to be a hit with collectors of all ages.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Collectible-Dolls.md) With long, sleek blonde hair and brand-new face sculpts, these dolls are both beautiful and well-crafted. A great choice for anyone looking to expand their Barbie collection or start a new one. 
+[Featuring chic designs and innovative face sculpts, these dolls are sure to be a hit with collectors of all ages.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Collectible-Dolls.md) With long, sleek blonde hair and brand-new face sculpts, these dolls are both beautiful and well-crafted. A great choice for anyone looking to expand their Barbie collection or start a new one. 
 
 
 ### [Barbie Signature Looks Doll in Original Red](https://serp.ly/@bar/amazon/Barbie+Look+Dolls?utm\_term=barbie-signature-looks-doll-in-original-red)

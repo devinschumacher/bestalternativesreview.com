@@ -27,7 +27,7 @@ One of the standout features is the side-by-side design, which fits effortlessly
 
 The Contours Element also wins kudos for its ample storage space, which is a true lifesaver for families on the go. The roomy underseat basket easily fits the diaper bag, coats, and any other essentials we might need throughout the day. Additionally, the removable tote offers a bonus storage option when we just want to bring a few items with us. 
 
-While the stroller may be on the heavier side, weighing 28 pounds, the top-notch build quality and smooth gliding wheels make it a worthwhile investment. [The generous seating options and versatile accessories further enhance the value and convenience of this exceptional stroller.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Stroller-Accessories.md) It's like stroller magic that makes family life just a little more enjoyable! 
+While the stroller may be on the heavier side, weighing 28 pounds, the top-notch build quality and smooth gliding wheels make it a worthwhile investment. [The generous seating options and versatile accessories further enhance the value and convenience of this exceptional stroller.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Stroller-Accessories.md) It's like stroller magic that makes family life just a little more enjoyable! 
 
 
 ### [Valco Baby Slim Twin SE Sport 2024 Double Stroller - Perfect for Compact Spaces](https://serp.ly/@bar/amazon/Twin+Strollers?utm\_term=valco-baby-slim-twin-se-sport-2024-double-stroller-perfect-for-compact-spaces)
@@ -205,7 +205,7 @@ While some users might find it a bit bulky when fully expanded, the convenience 
 
 The Baby Trend Sit N Stand double stroller is like having your very own family chariot. When I first saw it, I thought it was an impressive piece of machinery. It's sleek and stylish, and it handles like a dream. With its compact 1-hand hold, this stroller is a breeze to maneuver. I've had it in some pretty tight spots, and it never once caused a scene. 
 
-One of my favorite features is how it allows my little ones to sit in front or ride at the back. [The seats are super comfortable, with those built-in ergonomic grips making my baby feel like they're in a cozy, safe space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/All-In-One-Car-Seat.md) Plus, they come with a 5-point safety harness to give me peace of mind. 
+One of my favorite features is how it allows my little ones to sit in front or ride at the back. [The seats are super comfortable, with those built-in ergonomic grips making my baby feel like they're in a cozy, safe space.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/All-In-One-Car-Seat.md) Plus, they come with a 5-point safety harness to give me peace of mind. 
 
 The canopy is another winner. With its dual panel, it keeps the sun at bay while the baby is having a nice rest. And, when we're not out and about, it's great to have a storage compartment where we can keep our essentials. 
 

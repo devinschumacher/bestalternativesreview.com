@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Worker-Vest.md
 
 # Worker Vests -  20 Best Options for Comfort and Durability
 
-[Get ready to boost your work wardrobe with the latest collection of Worker Vests.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Worker-Vest.md) These vests are designed to provide both style and functionality, ensuring you stay protected and comfortable on the job. Join us as we roundup the top Worker Vests on the market, helping you make the right choice for your workwear needs. 
+[Get ready to boost your work wardrobe with the latest collection of Worker Vests.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Worker-Vest.md) These vests are designed to provide both style and functionality, ensuring you stay protected and comfortable on the job. Join us as we roundup the top Worker Vests on the market, helping you make the right choice for your workwear needs. 
 
 *As an Amazon Affiliate™ I receive compensation from qualifying purchases at no cost to you*
 

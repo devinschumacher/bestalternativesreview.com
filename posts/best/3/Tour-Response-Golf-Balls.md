@@ -40,7 +40,7 @@ I had the chance to try out the TaylorMade 2022 Tour Response 6b golf balls, and
 
 One thing that really impressed me was the Speedmantle with HFMq technology. It really seemed to make a difference in my overall distance and accuracy, especially when I was trying to land the ball on longer par 3s and 4s. However, I did notice that the TaylorMade golf balls felt a bit harder compared to other brands I've used, which might be something to consider if you're looking for a softer feel in your golf game. 
 
-[Overall, I found the TaylorMade 2022 Tour Response golf balls to be a great choice for any golfer looking for improved performance and consistency, especially on the greens.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Taylormade-Tp5.md) Despite the slightly harder feel, the benefits definitely outweigh the drawbacks, making them a solid choice for your next round of golf. 
+[Overall, I found the TaylorMade 2022 Tour Response golf balls to be a great choice for any golfer looking for improved performance and consistency, especially on the greens.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Taylormade-Tp5.md) Despite the slightly harder feel, the benefits definitely outweigh the drawbacks, making them a solid choice for your next round of golf. 
 
 
 ### [TaylorMade Tour Response Yellow Golf Balls](https://serp.ly/@bar/amazon/Tour+Response+Golf+Balls?utm\_term=taylormade-tour-response-yellow-golf-balls)

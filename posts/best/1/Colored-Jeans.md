@@ -39,7 +39,7 @@ Our user reviews speak volumes about the satisfaction our customers have with th
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Colored+Jeans?utm_term=slim-metallic-pink-jeans-by-boohooman"><img alt="boohooman-slim-rigid-metallic-print-denim-jean-pink-size-32r-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/boohooman-slim-rigid-metallic-print-denim-jean-pink-size-32r-1/h=540,fit=pad,background=black"/></a></div>
 
-These slim rigid metallic print denim jeans by boohooMAN are a vibrant addition to any man's wardrobe. [The pink color adds a pop of fun to the outfit, perfect for those looking to make a statement.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pink-Coats.md) The slim fit design is comfortable and stylish, ensuring a snug yet fashionable look. 
+These slim rigid metallic print denim jeans by boohooMAN are a vibrant addition to any man's wardrobe. [The pink color adds a pop of fun to the outfit, perfect for those looking to make a statement.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pink-Coats.md) The slim fit design is comfortable and stylish, ensuring a snug yet fashionable look. 
 
 These jeans can be dressed up or down, making them versatile for various occasions. Although they are rigid, this feature adds structure and prevents the jeans from losing their shape. 
 

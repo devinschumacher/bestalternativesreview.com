@@ -56,7 +56,7 @@ I recently tried the Oct17 Women Tote Bag, featuring a stylish design and a comf
 
 However, there were some downsides as well. The thin straps made it uncomfortable to carry for long periods of time. Furthermore, the bag didn't have reinforced holes in the straps, which I found to be a significant drawback. 
 
-[Despite these issues, I found the overall design of this tote bag to be both fashionable and functional.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Faux-Leather-Tote-Bag.md) I personally recommend it for everyday use, as it will suit a variety of occasions such as work, shopping, or school. 
+[Despite these issues, I found the overall design of this tote bag to be both fashionable and functional.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Faux-Leather-Tote-Bag.md) I personally recommend it for everyday use, as it will suit a variety of occasions such as work, shopping, or school. 
 
 
 ### [Ensign Peak Red Zipper Shoulder Tote for Women](https://serp.ly/@bar/amazon/Red+Tote+Bag?utm\_term=ensign-peak-red-zipper-shoulder-tote-for-women)

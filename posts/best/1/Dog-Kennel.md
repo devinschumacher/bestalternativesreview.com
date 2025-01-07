@@ -52,7 +52,7 @@ Despite these cons, the Stephens Gold Series Dog Kennel System is a good value f
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dog+Kennel?utm_term=grey-dog-kennel-side-table-with-shelves-and-double-doors"><img alt="grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/grey-38-58-in-w-x-25-5-in-d-x-57-in-h-furniture-style-dog-crate-side-table-with-shelves-double-doors-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently gave this versatile wooden dog crate a try and was pleasantly surprised by its functionality.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Metal-Dog-Crate.md) It served as not only a safe space for our furry friend, but also as an elegant addition to our living room. The 3-tier open shelf allowed us to easily store dog-related items like toys, treats, and grooming supplies, making it incredibly convenient and organized. 
+[I recently gave this versatile wooden dog crate a try and was pleasantly surprised by its functionality.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Metal-Dog-Crate.md) It served as not only a safe space for our furry friend, but also as an elegant addition to our living room. The 3-tier open shelf allowed us to easily store dog-related items like toys, treats, and grooming supplies, making it incredibly convenient and organized. 
 
 The movable pulleys at the bottom made it easy to move around the house, and once I found the perfect spot, I securely fastened them for stability. Overall, this grey dog crate side table with raised roof is a stylish and practical choice for any pet owner. 
 
@@ -61,7 +61,7 @@ The movable pulleys at the bottom made it easy to move around the house, and onc
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dog+Kennel?utm_term=feandrea-modern-dog-kennel-multi-functional-up-to-70-lb-weight-capacity"><img alt="feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/feandrea-dog-crate-furniture-side-end-table-modern-kennel-for-dogs-indoor-up-to-70-lb-heavy-duty-dog-1/h=540,fit=pad,background=black"/></a></div>
 
-The Feandrea Dog Crate Furniture offers a modern, multi-purpose kennel for your furry friend. With a heavy-duty build and removable tray, this cozy retreat is perfect for dogs weighing up to 70 pounds. [Crafted from quality materials, this kennel is designed to provide a comfortable and secure space for your dog, whether it's to rest or just hang out.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Metal-Kennels-For-Dogs.md) 
+The Feandrea Dog Crate Furniture offers a modern, multi-purpose kennel for your furry friend. With a heavy-duty build and removable tray, this cozy retreat is perfect for dogs weighing up to 70 pounds. [Crafted from quality materials, this kennel is designed to provide a comfortable and secure space for your dog, whether it's to rest or just hang out.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Metal-Kennels-For-Dogs.md) 
 
 The open box with minor cosmetic damage sells for an affordable price, making it a great value for your pet. Plus, with its contemporary design, this kennel also doubles as a stylish furniture piece for your home. 
 

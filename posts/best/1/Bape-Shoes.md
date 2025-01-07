@@ -52,7 +52,7 @@ While I've had these sneakers for a few weeks now, one thing that has stood out 
 
 Elevate your casual style with the BAPE Red Sta #3 sneakers. With their classic leather upper and perforated toe box, these sneakers feature a unique padded tongue with a logo patch, adding a touch of personality to your look. A padded collar keeps your feet comfortable, while the side logo appliqué and embossed logo branding at the heel tab make a statement. 
 
-The buffed leather lining ensures a cozy fit, while the logo-embossed rubber midsole and treaded rubber outsole provide solid support and durability. [Perfect for everyday wear, these sneakers offer a blend of comfort and style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dress-Sneakers.md) 
+The buffed leather lining ensures a cozy fit, while the logo-embossed rubber midsole and treaded rubber outsole provide solid support and durability. [Perfect for everyday wear, these sneakers offer a blend of comfort and style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dress-Sneakers.md) 
 
 
 ### [Bape Bapesta 'Text Code Camo - Charcoal' Men's Shoes](https://serp.ly/@bar/amazon/Bape+Shoes?utm\_term=bape-bapesta-text-code-camo-charcoal-mens-shoes)

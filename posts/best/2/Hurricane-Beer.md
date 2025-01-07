@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Hurricane-Beer.md
 
 # Top Hurricane Beer Picks -  15 Delicious Hurricane Flavored Beers to Try
 
-Welcome to our [Hurricane Beer](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hurricane-Beer.md) roundup! Just like the storm itself, this article is packed with flavors and surprises. We've put together a selection of some of the best beer brands, perfect for those who want to enjoy a refreshing brew after a long day. [Get ready to embark on a tasty journey as we explore the perfect storm of flavors that Hurricane Beer has to offer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hurricane-Beer.md) 
+Welcome to our [Hurricane Beer](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hurricane-Beer.md) roundup! Just like the storm itself, this article is packed with flavors and surprises. We've put together a selection of some of the best beer brands, perfect for those who want to enjoy a refreshing brew after a long day. [Get ready to embark on a tasty journey as we explore the perfect storm of flavors that Hurricane Beer has to offer.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hurricane-Beer.md) 
 
 *As an Amazon Affiliate I earn from qualified purchases!*
 

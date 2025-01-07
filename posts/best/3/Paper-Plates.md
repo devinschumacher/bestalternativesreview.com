@@ -161,7 +161,7 @@ Overall, I would definitely recommend these paper plates for any casual gatherin
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Paper+Plates?utm_term=football-paper-plates-for-sports-celebrations"><img alt="football-shaped-paper-dinner-plates-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/football-shaped-paper-dinner-plates-1/h=540,fit=pad,background=black"/></a></div>
 
-[These football-shaped dinner plates are perfect for adding a fun touch to your game day spread.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dinner-Plates.md) Each set includes 8 plates, making them an excellent choice for tailgate parties, football parties at home, or even as a festive addition to your Super Bowl celebration. 
+[These football-shaped dinner plates are perfect for adding a fun touch to your game day spread.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dinner-Plates.md) Each set includes 8 plates, making them an excellent choice for tailgate parties, football parties at home, or even as a festive addition to your Super Bowl celebration. 
 
 The plates measure 11 inches in diameter, providing ample space to fill up on your favorite game day goodies. Although they are dishwasher safe, they must be hand washed, as indicated in the product care instructions. While some reviewers mentioned that the plates are smaller than expected, most were pleased with their sturdiness and the overall fun theme. 
 

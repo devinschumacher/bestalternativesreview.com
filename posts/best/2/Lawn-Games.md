@@ -80,7 +80,7 @@ In conclusion, the Foxtail Sport Ball adds a refreshing twist to the classic gam
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Lawn+Games?utm_term=backyard-hero-4-in-a-row-lawn-game"><img alt="backyard-hero-3-5-4-in-a-row-lawn-game-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/backyard-hero-3-5-4-in-a-row-lawn-game-1/h=540,fit=pad,background=black"/></a></div>
 
-[Savor those sunny afternoons with the Backyard Hero, a 4-in-a-row lawn game that's as big as the fun it brings.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lawn-Games.md) With an impressive 3.5 feet wide by 2.8 feet tall, it's perfect for your backyard BBQs, camping trips, or tailgates. 
+[Savor those sunny afternoons with the Backyard Hero, a 4-in-a-row lawn game that's as big as the fun it brings.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lawn-Games.md) With an impressive 3.5 feet wide by 2.8 feet tall, it's perfect for your backyard BBQs, camping trips, or tailgates. 
 
 Made of sturdy pinewood, it's stronger and more durable than the cheap plastic alternatives out there. A simple one-hand disc release lever makes gameplay a breeze, while the included drawstring disc storage sack ensures your 42 plastic discs are always at hand. 
 

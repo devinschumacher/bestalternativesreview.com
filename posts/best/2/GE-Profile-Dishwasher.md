@@ -23,7 +23,7 @@ Experience pristine, spotless dishes with ease using the GE Stainless Steel Tub 
 
 The redesigned third rack with an open design provides ideal wash coverage, accommodating more than just silverware and providing extra space for various tasks. The bottle wash jets offer a targeted wash and provide a deep clean for tall items, narrow glasses, jars, and more, eliminating the need for hand washing. 
 
-The Dry Boost feature ensures consistently dry dishes and is not finished until they are completely dry. This GE Stainless Steel tub dishwasher comes in various finishes and sound packages to seamlessly blend into any kitchen. [Incorporating top-notch features and innovative design, the GE Stainless Steel dishwasher makes cleanup a breeze and allows you to enjoy spotless results every time.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/GE-Dishwasher.md) 
+The Dry Boost feature ensures consistently dry dishes and is not finished until they are completely dry. This GE Stainless Steel tub dishwasher comes in various finishes and sound packages to seamlessly blend into any kitchen. [Incorporating top-notch features and innovative design, the GE Stainless Steel dishwasher makes cleanup a breeze and allows you to enjoy spotless results every time.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/GE-Dishwasher.md) 
 
 
 ### [GE Top Control Plastic Interior Dishwasher with Dry Boost Feature](https://serp.ly/@bar/amazon/GE+Profile+Dishwasher?utm\_term=ge-top-control-plastic-interior-dishwasher-with-dry-boost-feature)

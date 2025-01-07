@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Manchester-City-Jersey.md
 
 # Stand Out in Style -  Top 18 Manchester City Jerseys for Football Fans
 
-[Get ready to show off your passion for Manchester City as we round up the latest and greatest jerseys from the Premier League champions!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Manchester-City-Jersey.md) From sleek designs to innovative materials, we've curated the top options for soccer fans to proudly wear their allegiance on their chests. Ready to upgrade your game day attire? Let's dive in! 
+[Get ready to show off your passion for Manchester City as we round up the latest and greatest jerseys from the Premier League champions!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Manchester-City-Jersey.md) From sleek designs to innovative materials, we've curated the top options for soccer fans to proudly wear their allegiance on their chests. Ready to upgrade your game day attire? Let's dive in! 
 
 *As an Amazon Affiliate, I receive compensation from qualified purchases!*
 
@@ -83,7 +83,7 @@ While some may find the sizing to be a bit big, I appreciate the authentic feel 
 
 As a passionate Manchester City fan, I recently got my hands on the Puma 2022/23 Pre-Match training jersey, and it's safe to say I've been living in it ever since. This jersey's official license and sublimated graphics scream fandom, making it a must-have for any City supporter. 
 
-When it comes to the fit, it's simply perfect, and the DryCELL fabric technology ensures a sporty feel while keeping any potential moisture at bay. [The jersey is an essential addition to my sports wardrobe and ideal for training sessions or simply displaying my loyalty.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Ajax-Jersey.md) 
+When it comes to the fit, it's simply perfect, and the DryCELL fabric technology ensures a sporty feel while keeping any potential moisture at bay. [The jersey is an essential addition to my sports wardrobe and ideal for training sessions or simply displaying my loyalty.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Ajax-Jersey.md) 
 
 On the flip side, I would've appreciated a wider color range for those who prefer a more eye-catching alternative. Overall, this Puma [Manchester City jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Manchester-City-Jersey.md) has become my go-to wardrobe staple, and I'm excited to see my favorite team in action knowing that I'm dressed like a true fan. 
 

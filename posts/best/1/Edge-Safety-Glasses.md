@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Edge-Safety-Glasses.md
 
 # Eye Protection for Work -  Our Top 17 Edge Safety Glasses
 
-[Looking for a reliable and stylish pair of safety glasses that can protect your eyes and last long enough to withstand the work's harsh conditions?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Edge-Safety-Glasses.md) Look no further than the [Edge Safety Glasses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Edge-Safety-Glasses.md) roundup! In this article, you'll find our top picks for the ultimate safety gear, ensuring you can work in complete confidence while keeping your vision safe. 
+[Looking for a reliable and stylish pair of safety glasses that can protect your eyes and last long enough to withstand the work's harsh conditions?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Edge-Safety-Glasses.md) Look no further than the [Edge Safety Glasses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Edge-Safety-Glasses.md) roundup! In this article, you'll find our top picks for the ultimate safety gear, ensuring you can work in complete confidence while keeping your vision safe. 
 
 *As an Amazon Affiliate, I may earn from qualifying purchases at no cost to you!*
 

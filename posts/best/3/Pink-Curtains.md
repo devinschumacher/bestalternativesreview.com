@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Pink-Curtains.md
 
 # Brighten Up Your Home -  The Top 19 Pink Curtains for Every Room
 
-Illuminate your living space with a touch of elegance and charm as we present our top picks for [Pink Curtains](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pink-Curtains.md). [These stunning curtains are not just a decorative addition to your home, but they also provide an air of sophistication and style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lush-Decor-Curtains.md) 
+Illuminate your living space with a touch of elegance and charm as we present our top picks for [Pink Curtains](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pink-Curtains.md). [These stunning curtains are not just a decorative addition to your home, but they also provide an air of sophistication and style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lush-Decor-Curtains.md) 
 
 *As an Amazon Affiliate™, I earn from qualified purchases!*
 
@@ -168,7 +168,7 @@ The double-layered construction, along with a lined backing, effectively blocks 
 
 The unique shade of pink adds a touch of calm to your child's space, making it a popular choice for many families. However, be aware that some reviews mention variations in color, with one panel being a milky gray hue. 
 
-[Overall, these curtains offer a charming blend of functionality and style, but be sure to consider the color before making your purchase.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Grey-And-White-Curtains.md) 
+[Overall, these curtains offer a charming blend of functionality and style, but be sure to consider the color before making your purchase.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Grey-And-White-Curtains.md) 
 
 
 ### [Pink 84in Blackout Clipped Dotted Panels for Pillowfort](https://serp.ly/@bar/amazon/Pink+Curtains?utm\_term=pink-84in-blackout-clipped-dotted-panels-for-pillowfort)
@@ -186,7 +186,7 @@ While it may not be 100% dark, it does an excellent job of blocking out light, m
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Pink+Curtains?utm_term=exclusive-pink-chateau-window-curtains"><img alt="exclusive-home-chateau-window-curtain-panel-pair-pink-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/exclusive-home-chateau-window-curtain-panel-pair-pink-1/h=540,fit=pad,background=black"/></a></div>
 
-The Exclusive Home Chateau Window Curtain Panel Pair adds an elegant touch to any room with its stunning pink color. [Constructed with luxurious silk fabric, these curtains boast a wide horizontal stripe pattern, making them an ideal finishing touch to beautify your windows.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Silk-Curtains.md) 
+The Exclusive Home Chateau Window Curtain Panel Pair adds an elegant touch to any room with its stunning pink color. [Constructed with luxurious silk fabric, these curtains boast a wide horizontal stripe pattern, making them an ideal finishing touch to beautify your windows.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Silk-Curtains.md) 
 
 With a variety of fabric constructions, designs, and colors available, you're sure to find the perfect curtain to fit your home's style. Available in three sizes, these curtains are designed to fit curtain rods up to 1.63 inches in diameter. 
 

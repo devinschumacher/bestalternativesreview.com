@@ -38,7 +38,7 @@ In conclusion, the Cafe ADA 48-inch Matte White rangetop is a remarkable additio
 
 Cafe cooktops are a game-changer in the kitchen. With its 48-inch commercial-style rangetop, you can achieve professional-level cooking right in your own home. The combination of six dedicated burners and the unique Inspiral burner design ensures even heating every time you cook. This is one of the coolest features I've ever come across in a cooktop - it truly makes a difference. The multi-ring burner is another standout, enabling you to switch quickly between boiling and simmering modes. 
 
-[The griddle and griddle burners are fantastic, especially when it comes to quick breakfasts.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lodge-Griddle.md) I love how versatile this cooktop is when it comes to different pots and pans. The side griddle heats consistently and cooks beautifully. The Power Boil burners are another highlight, allowing me to boil water and start cooking with precision. 
+[The griddle and griddle burners are fantastic, especially when it comes to quick breakfasts.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lodge-Griddle.md) I love how versatile this cooktop is when it comes to different pots and pans. The side griddle heats consistently and cooks beautifully. The Power Boil burners are another highlight, allowing me to boil water and start cooking with precision. 
 
 While the Cafe rangetop looks beautiful and is loaded with great features, it does have a small downside. The griddle is non-detachable for cleaning purposes, which can be inconvenient. And be mindful of accidentally turning on burners while walking by - some users have mentioned this happening. 
 

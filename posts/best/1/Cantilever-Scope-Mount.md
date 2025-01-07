@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cantilever-Scope-Mount.md
 
 # Find the Best Cantilever Scope Mount for Perfect Accuracy -  Our Top 16 Picks
 
-[Welcome to our roundup of the best Cantilever Scope Mounts on the market today.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cantilever-Scope-Mount.md) If you're in search of a reliable and sturdy scope mount for your rifle, we've got you covered. In this article, we'll be highlighting the top picks that offer durability, ease of use, and excellent value for money. Get ready to upgrade your shooting experience with our carefully curated selection. 
+[Welcome to our roundup of the best Cantilever Scope Mounts on the market today.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cantilever-Scope-Mount.md) If you're in search of a reliable and sturdy scope mount for your rifle, we've got you covered. In this article, we'll be highlighting the top picks that offer durability, ease of use, and excellent value for money. Get ready to upgrade your shooting experience with our carefully curated selection. 
 
 *As an Amazon Affiliate, we earn through qualified purchases!*
 

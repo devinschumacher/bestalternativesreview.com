@@ -255,7 +255,7 @@ One of the highlights of this dishwasher is its ADA Compliance. It fits perfectl
 
 Now, let’s talk about the cons. While I have found the dishwasher to be generally reliable, there were some disappointing aspects to it. The filter of the disposer, for instance, feels flimsy and not as durable as I would have hoped. Also, the top rack was a little difficult to load with large plates due to its limited space. 
 
-[Overall, I believe this GE dishwasher is a solid choice for anyone looking for a powerful and efficient dishwashing option.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/GE-Dishwasher.md) Not perfect, but it certainly gets the job done and makes life a bit easier. 
+[Overall, I believe this GE dishwasher is a solid choice for anyone looking for a powerful and efficient dishwashing option.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/GE-Dishwasher.md) Not perfect, but it certainly gets the job done and makes life a bit easier. 
 
 
 ## Buyer's Guide

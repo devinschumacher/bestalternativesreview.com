@@ -156,7 +156,7 @@ I have been using the TideWe Range Backpack for quite some time now, and I can c
 
 One of the backpack's standout features is its innovative storage options. The flexible clapboard in the upper pocket can accommodate various items, including earphones, and the dividers in the lower pocket provide ample room for organizing gear. In addition, the TideWe Range Backpack features five removable cases and two side pockets, providing extra space for additional magazines. 
 
-[However, it is essential to note that this large-capacity backpack does have a drawback: it isn't particularly compact.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Big-Backpacks-For-Travel.md) The dimensions are relatively spacious (18.5" x 9.45" x 19.7"), which can be a challenge when navigating confined spaces.
+[However, it is essential to note that this large-capacity backpack does have a drawback: it isn't particularly compact.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Big-Backpacks-For-Travel.md) The dimensions are relatively spacious (18.5" x 9.45" x 19.7"), which can be a challenge when navigating confined spaces.
 
 Nevertheless, the backpack's waterproof and sturdy construction is an undeniable advantage. The durable rain cover is a lifesaver when dealing with the unpredictability of weather, and the top pocket's hard molded glasses case offers excellent protection for safety glasses. 
 
@@ -208,7 +208,7 @@ The Bulldog Deluxe 2 Pistol Range Bag has been a constant companion in my shooti
 
 The heavy-duty zippers and water-resistant durability gave my gear reliable protection. However, I noticed that the bag could be a bit too large at times, making it a bit cumbersome to maneuver through tight spaces. 
 
-[Despite this minor issue, the Bulldog range bag proved to be a reliable and versatile choice for my shooting needs.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Browning-Range-Bag.md) 
+[Despite this minor issue, the Bulldog range bag proved to be a reliable and versatile choice for my shooting needs.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Browning-Range-Bag.md) 
 
 
 ## Buyer's Guide

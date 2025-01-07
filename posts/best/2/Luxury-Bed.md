@@ -147,7 +147,7 @@ Luxury beds should provide superior comfort and support for a restful night's sl
 
 ### Aesthetics and Style
 
-Luxury beds often come in a variety of styles and finishes that can blend seamlessly with your bedroom decor. When deciding on the right bed, consider factors such as the headboard and footboard design, the style of the legs or frame, and any additional features such as storage or built-in lighting. [The aesthetics of the bed can have a significant impact on the overall look and feel of your sleeping space, so take the time to choose one that you'll love for years to come.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Bed-Board.md) 
+Luxury beds often come in a variety of styles and finishes that can blend seamlessly with your bedroom decor. When deciding on the right bed, consider factors such as the headboard and footboard design, the style of the legs or frame, and any additional features such as storage or built-in lighting. [The aesthetics of the bed can have a significant impact on the overall look and feel of your sleeping space, so take the time to choose one that you'll love for years to come.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Bed-Board.md) 
 
 
 ## FAQ

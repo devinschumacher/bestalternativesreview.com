@@ -173,7 +173,7 @@ Sabbath Mode ensures compatibility with kosher cooking practices, making this ra
 
 The Thermador Pro Grand 36" Dual Fuel Range was a game-changer in my kitchen. It's a dream come true for those who love to cook and entertain. 
 
-[The griddle stands out as a versatile feature - it lets you cook pancakes, eggs, and grilled sandwiches with ease.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lodge-Griddle.md) The dual fuel range provides an incredible 4 burners, giving you the power to cook with gas or electricity. 
+[The griddle stands out as a versatile feature - it lets you cook pancakes, eggs, and grilled sandwiches with ease.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lodge-Griddle.md) The dual fuel range provides an incredible 4 burners, giving you the power to cook with gas or electricity. 
 
 I appreciate the adjustable telescopic racks that made handling large items easier than ever. The self-cleaning oven eliminates the need for scrubbing, saving me time and effort. The Thermador smart app was the icing on the cake, allowing me to monitor my fridge or oven remotely. 
 

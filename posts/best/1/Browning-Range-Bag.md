@@ -146,7 +146,7 @@ With a PE board base and YKK lockable zippers, this bag is built to last. The Ra
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Browning+Range+Bag?utm_term=browning-black-gold-range-bag-with-detachable-strap-and-zipper-closure"><img alt="browning-black-gold-range-bag-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-black-gold-range-bag-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Browning Black and Gold Shooting Bag is a sturdy companion on my trips to the range.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Browning-Range-Bag.md) Constructed with water-resistant black ripstop polyester, it effortlessly holds up against my daily use. The detachable shoulder strap and sewn web handles are comfortable to use, and the main compartment with a zipper closure keeps everything organized and secure. 
+[The Browning Black and Gold Shooting Bag is a sturdy companion on my trips to the range.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Browning-Range-Bag.md) Constructed with water-resistant black ripstop polyester, it effortlessly holds up against my daily use. The detachable shoulder strap and sewn web handles are comfortable to use, and the main compartment with a zipper closure keeps everything organized and secure. 
 
 The ample storage options, including five zippered exterior pockets, are incredibly convenient, allowing me to easily transport all my essentials. While the bag is heavy-duty and well-built, I wish the shoulder strap could be longer for added comfort during long sessions at the range. 
 
@@ -157,7 +157,7 @@ Overall, I'd highly recommend this bag to anyone in need of a durable and practi
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Browning+Range+Bag?utm_term=browning-bx30-gun-safe-ul-certified-electronic-lock-30-gun-capacity-14-gauge-steel"><img alt="browning-bx30-gun-safe-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/browning-bx30-gun-safe-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Browning BX30 BX Series Gun Safe is a reliable option for storing your firearms.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/64-Gun-Safes.md) Its UL listed electronic lock provides top-notch security, while the 45-minute fire protection up to 1,200°F makes it suitable for emergency preparedness. One of the unique features is its spacious design, which can accommodate up to 30 long guns due to its 35" width - a common limitation in similar safes. 
+[The Browning BX30 BX Series Gun Safe is a reliable option for storing your firearms.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/64-Gun-Safes.md) Its UL listed electronic lock provides top-notch security, while the 45-minute fire protection up to 1,200°F makes it suitable for emergency preparedness. One of the unique features is its spacious design, which can accommodate up to 30 long guns due to its 35" width - a common limitation in similar safes. 
 
 Although the exterior dimensions are fairly standard (58"H x 35"W x 20"D), the interior provides ample space with a height of 52.5", width of 33", and depth of 14.75". The lock's metal gauge of 14 adds weight and durability, ensuring the safety of your valuables. 
 

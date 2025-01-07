@@ -250,7 +250,7 @@ One sunny summer day, I decided to buy the Harmony oversized beach towel for a d
 
 The vibrant artwork on the towel was a great touch, attracting compliments from everyone we met at the beach. The 100% cotton t Terry cloth felt incredibly soft against our skin. The harmony beach towel was not only comfortable but also long lasting. The fade-resistant feature ensured that our vibrant color stayed true even after multiple washes. 
 
-[In addition to being perfect for the beach, this versatile towel proved to be useful for other occasions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Microfiber-Beach-Towel.md) I used it as a yoga mat and a gym towel, and it remained a staple in our summer gear. The fact that it was machine washable and tumble dry on low made it easy to care for and keep in pristine condition. 
+[In addition to being perfect for the beach, this versatile towel proved to be useful for other occasions.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Microfiber-Beach-Towel.md) I used it as a yoga mat and a gym towel, and it remained a staple in our summer gear. The fact that it was machine washable and tumble dry on low made it easy to care for and keep in pristine condition. 
 
 Overall, this beach towel exceeded my expectations, and I consider it a must-have for anyone who loves spending time in the sun. It's a great gift for the beach lover in your life, and its all-purpose use guarantees that it will come in handy for any outdoor adventure. 
 

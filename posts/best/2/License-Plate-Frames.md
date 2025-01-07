@@ -28,7 +28,7 @@ This superior quality holder seamlessly works in conjunction with SuperATV's Tur
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/License+Plate+Frames?utm_term=limsas-carbon-fiber-2-pack-black-license-plate-frames"><img alt="limsas-license-plate-frames-carbon-fiber-2-pack-black-car-plate-frame-with-carbon-coasters-front-and-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/limsas-license-plate-frames-carbon-fiber-2-pack-black-car-plate-frame-with-carbon-coasters-front-and-1/h=540,fit=pad,background=black"/></a></div>
 
-[I love the sleek design of these carbon fiber license plate frames for my car.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/License-Plate-Frames.md) The durability and quality are impressive, and it's great that they're completely legal to use. I appreciate the slim 2-hole design that doesn't cover important parts of my license plate and the 6.5-inch x 12.3-inch size that fits all US standard license plates. 
+[I love the sleek design of these carbon fiber license plate frames for my car.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/License-Plate-Frames.md) The durability and quality are impressive, and it's great that they're completely legal to use. I appreciate the slim 2-hole design that doesn't cover important parts of my license plate and the 6.5-inch x 12.3-inch size that fits all US standard license plates. 
 
 Additionally, the smooth surface and carbon fiber pattern give my car an elegant and stylish appearance. The included screwdriver and accessories make installation super easy and fast. I'm a big fan of these carbon fiber frames! 
 

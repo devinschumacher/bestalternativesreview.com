@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Hidden-Litter-Box.md
 
 # Litter Box Disguise -  27 Best Hidden Litter Boxes for Your Furry Friends
 
-[Looking for a modern and discreet solution to keep your cat's litter box hidden from sight?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hidden-Litter-Box.md) Look no further! Our [Hidden Litter Box](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hidden-Litter-Box.md) roundup brings together the best-hidden litter boxes that not only blend seamlessly into your home decor but also offer functionality and convenience. Discover the top-rated hidden litter boxes that will keep both you and your pets happy and satisfied. 
+[Looking for a modern and discreet solution to keep your cat's litter box hidden from sight?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hidden-Litter-Box.md) Look no further! Our [Hidden Litter Box](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hidden-Litter-Box.md) roundup brings together the best-hidden litter boxes that not only blend seamlessly into your home decor but also offer functionality and convenience. Discover the top-rated hidden litter boxes that will keep both you and your pets happy and satisfied. 
 
 *As an Amazon Affiliate, we receive compensation from qualifying purchases at no cost to you.*
 

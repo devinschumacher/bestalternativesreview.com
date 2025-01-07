@@ -69,7 +69,7 @@ Overall, the BEHR MARQUEE Satin Enamel Exterior paint has made quite the impress
 
 After trying AlphaFlex Textile and Leather Paint in a light blue hue, I was blown away by the vibrant color that really stood out. The paint's flexibility is a game-changer, as it allows me to transform items like my old denim jackets into eye-catching statement pieces. 
 
-The ease of application and smooth flow also made the process a breeze, leaving me with a gorgeous finished product. [This versatile paint has become my go-to for adding a unique touch to my leather goods and textile items.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Leather-Spray-Paint.md) 
+The ease of application and smooth flow also made the process a breeze, leaving me with a gorgeous finished product. [This versatile paint has become my go-to for adding a unique touch to my leather goods and textile items.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Leather-Spray-Paint.md) 
 
 Overall, AlphaFlex Textile and Leather Paint offers a simple yet effective solution for turning ordinary items into extraordinary works of art. 
 

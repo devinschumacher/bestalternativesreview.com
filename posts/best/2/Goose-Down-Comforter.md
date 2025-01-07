@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Goose-Down-Comforter.md
 
 # Cozy Up with the Top 20 Goose Down Comforters for Ultimate Sleep Comfort
 
-[Stay cozy and comfortable this season with our roundup of the top goose down comforters on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Goose-Down-Comforter.md) From premium materials to exceptional insulation, we've gathered the perfect options to keep you warm and snug. Explore our picks and find the perfect addition to your bedding collection. 
+[Stay cozy and comfortable this season with our roundup of the top goose down comforters on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Goose-Down-Comforter.md) From premium materials to exceptional insulation, we've gathered the perfect options to keep you warm and snug. Explore our picks and find the perfect addition to your bedding collection. 
 
 *As an Amazon Affiliate, I may earn from qualifying purchases*
 

@@ -90,7 +90,7 @@ The adjustable humidity drawers have been a game-changer in keeping my fruits an
 
 However, I've noticed that the internal water dispenser might be a bit difficult to use at times, and it could be more user-friendly. Additionally, the energy-saving capabilities are impressive, but I've found that the freezer space can be a bit limited compared to other refrigerators I've used in the past. 
 
-Overall, the Crosley XNE25JGKWW is a beautiful and efficient refrigerator that has made a great addition to my kitchen. [The smart features and stylish design make it worth considering for anyone in the market for a new refrigerator.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Black-Refrigerator.md) 
+Overall, the Crosley XNE25JGKWW is a beautiful and efficient refrigerator that has made a great addition to my kitchen. [The smart features and stylish design make it worth considering for anyone in the market for a new refrigerator.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Black-Refrigerator.md) 
 
 
 ### [Crosley French Door Refrigerator with LED Lighting and Ice Maker](https://serp.ly/@bar/amazon/Crosley+Refrigerator?utm\_term=crosley-french-door-refrigerator-with-led-lighting-and-ice-maker)
@@ -249,7 +249,7 @@ When considering a Crosley refrigerator, it is essential to take into account se
 
 ### Size and Capacity
 
-[Considering the size of your home, the available space, and your family's needs, choose a refrigerator that offers the right balance between capacity and dimensions.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Refrigerator-With-Ice-Maker.md) Crosley refrigerators come in various sizes, so it is crucial to assess your requirements accurately before making a decision. Smaller refrigerators might be sufficient for single households or apartments, while larger families may require more spacious models. 
+[Considering the size of your home, the available space, and your family's needs, choose a refrigerator that offers the right balance between capacity and dimensions.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Refrigerator-With-Ice-Maker.md) Crosley refrigerators come in various sizes, so it is crucial to assess your requirements accurately before making a decision. Smaller refrigerators might be sufficient for single households or apartments, while larger families may require more spacious models. 
 
 <div><a href="https://serp.ly/@bar/amazon/Crosley+Refrigerator"><img src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/Crosley-Refrigerator-2/h=540,fit=pad,background=black" alt="Crosley-Refrigerator-2" height="540"></a></div>
 

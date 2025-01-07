@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Weight-Benches.md
 
 # Finding the Best Weight Bench -  Our Top 20 Picks for Home Gyms
 
-When it comes to weightlifting and building strength, there's no denying the importance of having the right equipment. [And one of the most essential pieces of gear for any fitness enthusiast is a weight bench.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Weight-Benches.md) In this article, we've rounded up some of the top [weight benches](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Weight-Benches.md) on the market to help you find the perfect fit for your home gym. 
+When it comes to weightlifting and building strength, there's no denying the importance of having the right equipment. [And one of the most essential pieces of gear for any fitness enthusiast is a weight bench.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Weight-Benches.md) In this article, we've rounded up some of the top [weight benches](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Weight-Benches.md) on the market to help you find the perfect fit for your home gym. 
 
 *As an Amazon Affiliate™, I may earn through qualifying purchases.*
 

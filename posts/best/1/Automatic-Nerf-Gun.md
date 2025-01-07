@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Automatic-Nerf-Gun.md
 
 # Unleash Fun -  Our Top 20 Automatic Nerf Guns for Hours of Blasting Fun
 
-[Get ready to unleash your inner child with our roundup of the top automatic Nerf guns on the market!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Automatic-Nerf-Gun.md) These high-tech, fully automatic Nerf guns pack a punch and are sure to make your next Nerf battle an unforgettable experience. Read on to discover the best automatic Nerf guns and find the perfect one to add to your arsenal. 
+[Get ready to unleash your inner child with our roundup of the top automatic Nerf guns on the market!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Automatic-Nerf-Gun.md) These high-tech, fully automatic Nerf guns pack a punch and are sure to make your next Nerf battle an unforgettable experience. Read on to discover the best automatic Nerf guns and find the perfect one to add to your arsenal. 
 
 *As an Amazon Affiliate, I may earn through qualified purchases!*
 
@@ -232,7 +232,7 @@ This Nerf blaster is made of high-quality plastic, ensuring durability and a smo
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Automatic+Nerf+Gun?utm_term=n-strike-elite-rhino-fire-automatic-nerf-gun"><img alt="nerf-n-strike-elite-rhino-fire-blaster-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/nerf-n-strike-elite-rhino-fire-blaster-1/h=540,fit=pad,background=black"/></a></div>
 
-[The Nerf N-Strike Elite Rhino-Fire Blaster is a formidable piece of Nerf artillery that will surely dominate any battlefield.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Nerf-Rhino-Fire.md) Its dual-barrel design allows for rapid fire, while the motorized system gives you complete control over the rate of fire. The blaster's two drums can hold up to 25 Elite Darts each, providing a substantial capacity for intense battles. 
+[The Nerf N-Strike Elite Rhino-Fire Blaster is a formidable piece of Nerf artillery that will surely dominate any battlefield.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Nerf-Rhino-Fire.md) Its dual-barrel design allows for rapid fire, while the motorized system gives you complete control over the rate of fire. The blaster's two drums can hold up to 25 Elite Darts each, providing a substantial capacity for intense battles. 
 
 However, the blaster does require 6 D batteries to operate and a tripod that can be detached when on the move or attached for stability when firing from secure locations. Its motorized, rapid-fire capabilities can be overwhelming, while its 90-foot shooting range ensures you'll always have your target within sight. 
 

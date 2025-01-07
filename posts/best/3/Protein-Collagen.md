@@ -107,7 +107,7 @@ The packaging contained 90 capsules—more than enough to last a month or so! Wh
 
 I even noticed a difference in my joints and bones after just a few days of taking the supplements! However, a downside I faced was the import taxes and duties when ordering from the US. 
 
-[Nonetheless, I found relief and improvement in my overall well-being and highly recommend these collagen pills to others seeking similar benefits.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Collagen-Tablets.md) 
+[Nonetheless, I found relief and improvement in my overall well-being and highly recommend these collagen pills to others seeking similar benefits.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Collagen-Tablets.md) 
 
 
 ### [Alchevita Multi-Collagen Protein Powder Supplement](https://serp.ly/@bar/amazon/Protein+Collagen?utm\_term=alchevita-multi-collagen-protein-powder-supplement)

@@ -32,7 +32,7 @@ Unpacking and storing the tent was a breeze, making it a perfect choice for trav
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Multi+Room+Tent?utm_term=the-ozark-trail-16-person-family-cabin-tent-with-removable-movie-screen"><img alt="ozark-trail-16-person-3-room-family-cabin-tent-with-3-entrances-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ozark-trail-16-person-3-room-family-cabin-tent-with-3-entrances-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the chance to use the Ozark Trail 16-Person 3-Room Family Cabin Tent, and let me tell you, it was quite the experience!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Ozark-Teepee-Tent.md) The tent had plenty of space for our whole family, with three separate rooms and an impressive 230 square feet of living space. The center height of 80 inches ensured that everyone had enough room to move around comfortably, while also providing some much-needed privacy. 
+[I recently had the chance to use the Ozark Trail 16-Person 3-Room Family Cabin Tent, and let me tell you, it was quite the experience!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Ozark-Teepee-Tent.md) The tent had plenty of space for our whole family, with three separate rooms and an impressive 230 square feet of living space. The center height of 80 inches ensured that everyone had enough room to move around comfortably, while also providing some much-needed privacy. 
 
 One of the standout features was the inclusion of three E-Ports, which allowed us to charge our electronic devices even in the great outdoors. The tent also came with a gear loft and a gear hammock, which were incredibly useful for keeping our belongings off the ground. 
 
@@ -142,7 +142,7 @@ This tent comfortably accommodates three queen airbeds or up to twelve campers a
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Multi+Room+Tent?utm_term=large-easy-to-set-up-camping-tent-with-built-in-closet"><img alt="coleman-8-person-tenaya-lake-fast-pitch-cabin-tent-with-closet-blue-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/coleman-8-person-tenaya-lake-fast-pitch-cabin-tent-with-closet-blue-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently tried out the Coleman Tenaya Lake 8-Person Tent and had both positive and negative experiences with it.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coleman-Dome-Tent.md) On the plus side, the tent was incredibly spacious, which I appreciated when it came to fitting all my gear. The built-in closet made it easy to store essentials without taking up too much floor space. 
+[I recently tried out the Coleman Tenaya Lake 8-Person Tent and had both positive and negative experiences with it.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Coleman-Dome-Tent.md) On the plus side, the tent was incredibly spacious, which I appreciated when it came to fitting all my gear. The built-in closet made it easy to store essentials without taking up too much floor space. 
 
 However, there were some downsides to using this tent. Setting it up wasn't a breeze, as I found it to be quite a challenge compared to other tents I've used in the past. Additionally, the tent's durability seemed to be lacking – even in relatively mild conditions, it started to show signs of wear and tear, making me concerned about its ability to withstand harsher weather conditions. 
 

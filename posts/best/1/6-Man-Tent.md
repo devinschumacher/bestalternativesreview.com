@@ -36,7 +36,7 @@ Despite the setup challenges, this tent proved to be a worthy investment for our
 
 The tent features advanced water-resistant materials to keep you dry, including Omni-Shield technology, a water-resistant coated rainfly, polyethylene tub floor, and fully taped seams. It also comes with durable fiberglass poles for reinforced strength and protection. 
 
-Innovative convenience features include a sealable utility port, above-ground storage pocket, carrying case, and magnetic zipper cover on the tent door for quick in-and-out access. However, a notable downside is the lack of a tent footprint, which should be considered for added protection. [Overall, this tent offers a great value for its price and provides a comfortable camping experience.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coleman-Dome-Tent.md) 
+Innovative convenience features include a sealable utility port, above-ground storage pocket, carrying case, and magnetic zipper cover on the tent door for quick in-and-out access. However, a notable downside is the lack of a tent footprint, which should be considered for added protection. [Overall, this tent offers a great value for its price and provides a comfortable camping experience.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Coleman-Dome-Tent.md) 
 
 
 ### [Caddis Rapid 4: Easy-to-Set-Up 4-Person 3-Season Tent](https://serp.ly/@bar/amazon/6+Man+Tent?utm\_term=caddis-rapid-4-easy-to-set-up-4-person-3-season-tent)
@@ -113,7 +113,7 @@ The durable 75D fabric ensures resistance to wear and tear, while the lower air 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/6+Man+Tent?utm_term=ozark-trail-6-person-three-season-dome-tent"><img alt="ozark-trail-6-person-three-season-dome-tent-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/ozark-trail-6-person-three-season-dome-tent-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the perfect blend of spaciousness, comfort, and ease with the Ozark Trail 6 Person Dome Tent.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Ozark-Teepee-Tent.md) Designed to accommodate up to six people, this three-season tent offers ample room to sleep and store your gear. With its unique dome shape, it provides a comfortable headroom, making it perfect for family camping trips. 
+[Experience the perfect blend of spaciousness, comfort, and ease with the Ozark Trail 6 Person Dome Tent.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Ozark-Teepee-Tent.md) Designed to accommodate up to six people, this three-season tent offers ample room to sleep and store your gear. With its unique dome shape, it provides a comfortable headroom, making it perfect for family camping trips. 
 
 Setting up this tent is a breeze, thanks to its user-friendly design and easy-to-follow instructions. The tent features a seam-taped full rainfly that creates vestibule areas at both entrances, ensuring you stay dry and cozy during inclement weather. Enhanced ventilation through two large doorways provides a refreshing breeze, while the versatile rainfly allows you to control the warmth and protect yourself from the elements. 
 

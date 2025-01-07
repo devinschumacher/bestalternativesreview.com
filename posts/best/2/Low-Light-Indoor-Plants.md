@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Low-Light-Indoor-Plants.md
 
 # Transform Your Home into a Green Haven -  The 18 Best Low Light Indoor Plants
 
-[Bring a touch of green to your home even in the dimmest of spaces with our roundup of the best](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Light-Indoor-Plants.md) [low light indoor plants](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Light-Indoor-Plants.md). In this article, we'll guide you through selecting the perfect greenery to suit your dark corners, while also providing tips on their care and maintenance. 
+[Bring a touch of green to your home even in the dimmest of spaces with our roundup of the best](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Low-Light-Indoor-Plants.md) [low light indoor plants](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Low-Light-Indoor-Plants.md). In this article, we'll guide you through selecting the perfect greenery to suit your dark corners, while also providing tips on their care and maintenance. 
 
 *As an Amazon Affiliate™ we earn from qualifying purchases!*
 
@@ -90,7 +90,7 @@ As a plant lover, I was excited to try the Costa Farms Peace Lily Spathiphyllum.
 
 However, my experience wasn't without its challenges. While the soil mix was excellent, I found the Peace Lily to be quite sensitive to its environment. If given too much or too little water, it would droop dramatically. Somehow, this delicate plant managed to recover from my mishaps with some tender loving care. 
 
-Overall, the Costa Farms Peace Lily Spathiphyllum is a beautiful and low-maintenance addition to any indoor space. [If you're a plant enthusiast or someone looking for an easy way to improve the air quality in your home, this plant could be just the ticket.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
+Overall, the Costa Farms Peace Lily Spathiphyllum is a beautiful and low-maintenance addition to any indoor space. [If you're a plant enthusiast or someone looking for an easy way to improve the air quality in your home, this plant could be just the ticket.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
 
 
 ### [Philodendron Moonlight: Extraordinary Rare Indoor Air Purifying Houseplant](https://serp.ly/@bar/amazon/Low+Light+Indoor+Plants?utm\_term=philodendron-moonlight-extraordinary-rare-indoor-air-purifying-houseplant)
@@ -153,7 +153,7 @@ What really stood out to me, however, was how low maintenance these plants were.
 
 One minor drawback I discovered was that some of the plants arrived looking a bit sad. Two of the six plants arrived with yellowing leaves, which was a bit disappointing. However, I've read other reviews where the plants recovered quickly with a bit of TLC, so I'm hopeful that they'll bounce back. 
 
-Overall, I would definitely recommend Altman Plants 6 Pack to anyone looking to add some life to their living spaces. [The wide selection of plants, combined with their low maintenance nature, makes these an excellent choice for busy people who want to enjoy the benefits of indoor greenery without the hassle.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Low-Maintenance-Indoor-Plants.md) 
+Overall, I would definitely recommend Altman Plants 6 Pack to anyone looking to add some life to their living spaces. [The wide selection of plants, combined with their low maintenance nature, makes these an excellent choice for busy people who want to enjoy the benefits of indoor greenery without the hassle.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Low-Maintenance-Indoor-Plants.md) 
 
 
 ### [Ruby Necklace Othonna Capensis Live House Plant Succulents](https://serp.ly/@bar/amazon/Low+Light+Indoor+Plants?utm\_term=ruby-necklace-othonna-capensis-live-house-plant-succulents)
@@ -316,7 +316,7 @@ Fertilize your low light indoor plants once or twice a year, following the manuf
 
 Low light indoor plants offer numerous benefits, including improving air quality by filtering pollutants and adding moisture to the air. They can also boost mood and mental well-being by promoting relaxation and stress reduction. Moreover, some studies suggest that indoor plants can potentially reduce the risk of respiratory illness and improve sleep quality. 
 
-[Additionally, indoor plants can help to soften a room's look and feel, adding warmth, texture, and color.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Living-Room-Plants.md) They can also act as natural noise barriers, softening the acoustic environment. By introducing low light indoor plants into your home, you're not only creating a more visually appealing space but also enhancing the overall environment in which you live. 
+[Additionally, indoor plants can help to soften a room's look and feel, adding warmth, texture, and color.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Living-Room-Plants.md) They can also act as natural noise barriers, softening the acoustic environment. By introducing low light indoor plants into your home, you're not only creating a more visually appealing space but also enhancing the overall environment in which you live. 
 
 
 ### How do I know if my low light indoor plant is getting enough light?

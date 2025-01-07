@@ -67,7 +67,7 @@ Despite these minor drawbacks, I was overall satisfied with my purchase. The sof
 
 The Woven Boucle Square Pillow adds a stylish touch to any seating arrangement with its beautifully woven design and soft, comfortable fabric. The exposed zipper closure makes it easy to insert and remove the pillow insert, while the solid color option seamlessly integrates with any existing color scheme. 
 
-Although some users wished for a slightly larger size of 20x20 inches, the 18x18 square pillow cover still offers plush texture in a variety of neutral shade options. [Overall, this pillow is a perfect complement for home décor enthusiasts in search of an affordable designer-inspired throw.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cheap-Throw-Pillows.md) 
+Although some users wished for a slightly larger size of 20x20 inches, the 18x18 square pillow cover still offers plush texture in a variety of neutral shade options. [Overall, this pillow is a perfect complement for home décor enthusiasts in search of an affordable designer-inspired throw.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cheap-Throw-Pillows.md) 
 
 
 ### [Beige Maple Leaf Velvet Pillow Cover](https://serp.ly/@bar/amazon/Beige+Throw+Pillows?utm\_term=beige-maple-leaf-velvet-pillow-cover)
@@ -230,7 +230,7 @@ Overall, if you're looking for a cozy and versatile addition to your home or out
 
 ## Buyer's Guide
 
-[Welcome to our buyer's guide for beige throw pillows!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Beige-Throw-Pillows.md) This section will provide you with essential information about the key features, considerations, and general advice for selecting the perfect beige throw pillow that suits your decor and comfort needs. 
+[Welcome to our buyer's guide for beige throw pillows!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Beige-Throw-Pillows.md) This section will provide you with essential information about the key features, considerations, and general advice for selecting the perfect beige throw pillow that suits your decor and comfort needs. 
 
 
 ### Important Features

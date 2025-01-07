@@ -32,7 +32,7 @@ Introducing the perfect addition to your home, the Micpang Air Purifier, a mini 
 
 The Micpang Air Purifier boasts a HEPA air filtration system, ensuring clean air for you and your family. Its True Air Filter technology is a game-changer, filtering out even the smallest particles, giving you fresh and pure air. 
 
-However, some users have noted that it might be a bit loud during operation. [Overall, this air purifier is a must-have for maintaining a clean and healthy environment in your living spaces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
+However, some users have noted that it might be a bit loud during operation. [Overall, this air purifier is a must-have for maintaining a clean and healthy environment in your living spaces.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Purifying-House-Plants.md) 
 
 
 ### [Redypure Mini Air Purifier with H13 HEPA Filter for Small Rooms](https://serp.ly/@bar/amazon/Mini+Air+Purifier?utm\_term=redypure-mini-air-purifier-with-h13-hepa-filter-for-small-rooms)

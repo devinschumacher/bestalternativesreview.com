@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md
 
 # Relive the Glory Days -  Top 13 Allen Iverson Denver Nuggets Jerseys for Collectors
 
-Get ready to relive the legendary moments of one of basketball's greatest players with our [Allen Iverson Nuggets Jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md) roundup. [In this article, we'll highlight some of the most sought-after jerseys from Iverson's time with the Nuggets, giving you a chance to add a piece of NBA history to your collection.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md) 
+Get ready to relive the legendary moments of one of basketball's greatest players with our [Allen Iverson Nuggets Jersey](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md) roundup. [In this article, we'll highlight some of the most sought-after jerseys from Iverson's time with the Nuggets, giving you a chance to add a piece of NBA history to your collection.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Allen-Iverson-Nuggets-Jersey.md) 
 
 *As an Amazon Affiliate™ we earn from qualified purchases*
 

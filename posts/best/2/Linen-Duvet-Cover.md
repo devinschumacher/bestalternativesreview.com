@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Linen-Duvet-Cover.md
 
 # Linen Luxury -  13 Best Linen Duvet Covers for Cool, Breathable Comfort
 
-[Welcome to our roundup of the best Linen Duvet Covers!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Linen-Duvet-Cover.md) Dive into this selection of high-quality, breathable, and stylish options. Discover the perfect addition to your bedroom that is sure to keep you cool and snug while enhancing your sleep experience. 
+[Welcome to our roundup of the best Linen Duvet Covers!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Linen-Duvet-Cover.md) Dive into this selection of high-quality, breathable, and stylish options. Discover the perfect addition to your bedroom that is sure to keep you cool and snug while enhancing your sleep experience. 
 
 *As an Amazon Affiliate™ we may earn through qualified purchases!*
 

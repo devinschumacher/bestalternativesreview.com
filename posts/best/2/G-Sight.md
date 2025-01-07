@@ -131,7 +131,7 @@ The reversible mount design is also fantastic, as it enables me to use the sight
 
 Of course, the product is not perfect. I did encounter a few minor hiccups, like the screws being quite tight and causing some difficulty when adjusting the sight. However, these issues aren't significant enough to deter me from considering this product for future purchases and recommending it to others. 
 
-In summary, the Trophy Ridge Volt 5-Pin Sight has exceeded my expectations in terms of performance and customizability. [With its balanced price and numerous user-friendly features, it has become my go-to sight for archery endeavors.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Garmin-Bow-Sight.md) 
+In summary, the Trophy Ridge Volt 5-Pin Sight has exceeded my expectations in terms of performance and customizability. [With its balanced price and numerous user-friendly features, it has become my go-to sight for archery endeavors.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Garmin-Bow-Sight.md) 
 
 
 ### [Trophy Ridge Digital React Hunting Bow Sight](https://serp.ly/@bar/amazon/G+Sight?utm\_term=trophy-ridge-digital-react-hunting-bow-sight)

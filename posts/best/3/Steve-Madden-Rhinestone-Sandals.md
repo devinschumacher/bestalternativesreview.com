@@ -70,7 +70,7 @@ The fabric upper, fabric lining, and manmade sole provide both durability and a 
 
 I recently tried on the Steve Madden Women's Lightness Rhinestone Platform Sandals in a stunning crystal rhinestone finish, and I must say, they stole my heart. These platform heels definitely make a statement with their height and sparkly touch. To my surprise, they were quite comfortable to walk around in, despite being so stylish with their statement heels. 
 
-The sandals fit perfectly, but I did notice they had a slightly shorter strap which might not be ideal for those with wide ankles or "kankles". [Overall, the Steve Madden Lightness sandals are an impressive find in the world of fashion and comfort.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Steve-Madden-Slides.md) 
+The sandals fit perfectly, but I did notice they had a slightly shorter strap which might not be ideal for those with wide ankles or "kankles". [Overall, the Steve Madden Lightness sandals are an impressive find in the world of fashion and comfort.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Steve-Madden-Slides.md) 
 
 
 ### [Sparkly Steve Madden Spice Bling Rhinestone Sandals Size 10](https://serp.ly/@bar/amazon/Steve+Madden+Rhinestone+Sandals?utm\_term=sparkly-steve-madden-spice-bling-rhinestone-sandals-size-10)
@@ -81,7 +81,7 @@ I recently tried on the Steve Madden "Blinding Me" Spice Bling sandals in a size
 
 What really stood out to me was the comfortable flat sole, which allowed me to wear these sandals for hours without my feet getting tired. However, I noticed that the toe box of the sandals was slightly narrow and didn't leave much room for my toes to breathe, which wasn't ideal. 
 
-Overall, the Steve Madden "Blinding Me" Spice Bling sandals were a hit for their unique style and comfort, but I wish they had been a little more spacious in the toe box. [I would recommend these sandals for anyone looking for a fun, glamourous addition to their summer wardrobe, but make sure to size up to give your feet more room to breathe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Boys-Nike-Sandals.md) 
+Overall, the Steve Madden "Blinding Me" Spice Bling sandals were a hit for their unique style and comfort, but I wish they had been a little more spacious in the toe box. [I would recommend these sandals for anyone looking for a fun, glamourous addition to their summer wardrobe, but make sure to size up to give your feet more room to breathe.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Boys-Nike-Sandals.md) 
 
 
 ### [Sparkly Steve Madden Rhinestone Ladies Sandals](https://serp.ly/@bar/amazon/Steve+Madden+Rhinestone+Sandals?utm\_term=sparkly-steve-madden-rhinestone-ladies-sandals)

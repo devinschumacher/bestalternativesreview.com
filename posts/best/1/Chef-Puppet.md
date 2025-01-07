@@ -23,7 +23,7 @@ As a proud owner of the Chef Puppet by Melissa & Doug, I must say this little gu
 
 The best part about this puppet is the detachable wooden rod that makes it perfect for both lefties and righties. It's so easy to manipulate his mouth and facial expressions, even for little hands. My kids love putting on puppet shows for us and it's become a favorite family activity. 
 
-However, there is one small downside - the stitching on the clothing isn't the best quality. It seems a bit cheap and might fray if washed. But overall, this puppet is worth the price and has provided endless entertainment for my family. [Highly recommended for kids who love puppets and imaginative play!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Animal-Puppets.md) 
+However, there is one small downside - the stitching on the clothing isn't the best quality. It seems a bit cheap and might fray if washed. But overall, this puppet is worth the price and has provided endless entertainment for my family. [Highly recommended for kids who love puppets and imaginative play!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Animal-Puppets.md) 
 
 
 ### [Chef Luigi Hand Puppet](https://serp.ly/@bar/amazon/Chef+Puppet?utm\_term=chef-luigi-hand-puppet)

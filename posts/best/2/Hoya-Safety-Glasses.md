@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Hoya-Safety-Glasses.md
 
 # Protect Your Eyes -  Top 12 Hoya Safety Glasses for Optimal Vision and Comfort
 
-Introducing the [Hoya Safety Glasses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hoya-Safety-Glasses.md), an essential addition to your safety gear collection. [In this engaging roundup, we'll dive into the unique features, benefits, and applications of these high-quality glasses, ensuring you're well-informed and equipped for any situation that requires safety.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Edge-Safety-Glasses.md) Prepare to be both captivated and confident in your knowledge of these top-of-the-line products. 
+Introducing the [Hoya Safety Glasses](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hoya-Safety-Glasses.md), an essential addition to your safety gear collection. [In this engaging roundup, we'll dive into the unique features, benefits, and applications of these high-quality glasses, ensuring you're well-informed and equipped for any situation that requires safety.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Edge-Safety-Glasses.md) Prepare to be both captivated and confident in your knowledge of these top-of-the-line products. 
 
 *As an Amazon Affiliate™, I receive compensation through qualified purchases*
 
@@ -124,7 +124,7 @@ Introducing the Global Vision Eyewear RX Safety Series Y28DPF609 in a stunning b
 
 Designed with comfort in mind, the lightweight plastic frame is perfect for all-day wear, providing a comfortable and secure fit for those with heart, oval, or round facial shapes. The rectangular frame, available in a large size, offers a modern and stylish look, making this eyewear an excellent option for both personal and professional use. 
 
-[Equipped with full rim protection and a bent temple type, the Hoya Safety Glasses Y28DPF609 are sure to impress, ensuring not only safety but also durability and longevity.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Hoya-Safety-Glasses.md) With dimensions of 54-19-120, these glasses are designed to suit a wide range of prescriptions, making them a great choice for those who require corrective lenses. 
+[Equipped with full rim protection and a bent temple type, the Hoya Safety Glasses Y28DPF609 are sure to impress, ensuring not only safety but also durability and longevity.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Hoya-Safety-Glasses.md) With dimensions of 54-19-120, these glasses are designed to suit a wide range of prescriptions, making them a great choice for those who require corrective lenses. 
 
 Available in a variety of colors, the Global Vision Eyewear RX Safety Series stands as a formidable combination of style, safety, and functionality, making it an excellent investment for those seeking superior vision protection in the workplace or any other demanding environment. 
 

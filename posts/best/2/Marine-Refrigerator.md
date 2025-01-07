@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Marine-Refrigerator.md
 
 # Stay Cool on the Water -  Discover the 19 Best Marine Refrigerators for Your Boat
 
-[Dive into the world of marine refrigerators as we explore the top picks for keeping your catch fresh on the go.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Marine-Refrigerator.md) From compact solutions for small boats to spacious units for larger vessels, our roundup brings you the best of the best in marine refrigeration technology. Join us as we embark on this exciting journey to discover the perfect refrigerator for your marine adventures. 
+[Dive into the world of marine refrigerators as we explore the top picks for keeping your catch fresh on the go.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Marine-Refrigerator.md) From compact solutions for small boats to spacious units for larger vessels, our roundup brings you the best of the best in marine refrigeration technology. Join us as we embark on this exciting journey to discover the perfect refrigerator for your marine adventures. 
 
 *As an Amazon Affiliate™ we may earn through qualified purchases at no cost to you*
 

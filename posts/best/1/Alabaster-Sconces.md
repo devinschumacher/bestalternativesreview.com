@@ -39,7 +39,7 @@ However, while the Alabaster Rounded Wall Light is functional and aesthetically 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Alabaster+Sconces?utm_term=stone-wall-alabaster-led-sconces-set-of-2-brass-white"><img alt="stone-wall-alabaster-led-sconce-set-of-2-brasswhite-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/stone-wall-alabaster-led-sconce-set-of-2-brasswhite-1/h=540,fit=pad,background=black"/></a></div>
 
-[Imagine coming home to the warm glow of these beautiful Stone Wall Alabaster LED Sconces.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Led-Wall-Sconce.md) The low-profile design seamlessly fits onto your wall, easily hung vertically or horizontally to fit any space. The oval alabaster-inspired shade has a brass metal band running through the center, adding an elegant touch. 
+[Imagine coming home to the warm glow of these beautiful Stone Wall Alabaster LED Sconces.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Led-Wall-Sconce.md) The low-profile design seamlessly fits onto your wall, easily hung vertically or horizontally to fit any space. The oval alabaster-inspired shade has a brass metal band running through the center, adding an elegant touch. 
 
 Turning on the LED lights behind the shade casts a gentle, ambient glow on the walls, creating a cozy and inviting atmosphere. While they are stylish, they aren't just for looks – they also provide good lighting quality and are energy-efficient. Overall, they're a great addition to any space, and I highly recommend them. 
 

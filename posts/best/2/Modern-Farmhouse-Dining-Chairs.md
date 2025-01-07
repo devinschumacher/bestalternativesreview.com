@@ -34,7 +34,7 @@ Nestle these charming Farmhouse Dining Room Chairs into your dining area for an 
 
 [Each chair boasts round inclined backrests for optimal support, alleviating any strain during extended dining experiences.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/2/Hon-Chairs.md) Sink into the cushioned seats upholstered with polyester fabric for a premium sensory experience. With anti-slip foot pads, these chairs offer stability and floor protection. 
 
-[Enjoy a serene and sophisticated dining atmosphere with this delightful set.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/8-Piece-Dining-Set.md) 
+[Enjoy a serene and sophisticated dining atmosphere with this delightful set.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/8-Piece-Dining-Set.md) 
 
 
 ### [Walnut Farmhouse Dining Chairs Set](https://serp.ly/@bar/amazon/Modern+Farmhouse+Dining+Chairs?utm\_term=walnut-farmhouse-dining-chairs-set)
@@ -155,7 +155,7 @@ With a variety of colors to choose from, you can easily match them with your exi
 
 The Kaila Arm Chair Brown Laurel Foundry Modern Farmhouse really stood out in my living room. The warm brown finish of the solid rubberwood frame perfectly blended modern and farmhouse styles. I loved how the polyester-blend fabric seat and back wrapped it, adding a touch of elegance while remaining versatile. 
 
-The foam-filled cushion provided just the right amount of support for my body, making it comfortable to sit on for both short and long periods. [Overall, this accent chair was a great addition to my home decor and brought a cozy, welcoming vibe to the space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cozy-Accent-Chair.md) 
+The foam-filled cushion provided just the right amount of support for my body, making it comfortable to sit on for both short and long periods. [Overall, this accent chair was a great addition to my home decor and brought a cozy, welcoming vibe to the space.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cozy-Accent-Chair.md) 
 
 
 ### [Modern Farmhouse Non-Upholstered Dining Chair by Threshold](https://serp.ly/@bar/amazon/Modern+Farmhouse+Dining+Chairs?utm\_term=modern-farmhouse-non-upholstered-dining-chair-by-threshold)

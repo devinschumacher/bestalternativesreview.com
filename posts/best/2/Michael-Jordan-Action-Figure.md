@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Michael-Jordan-Action-Figure.md
 
 # Relive the Glory Days with These Top 19 Michael Jordan Action Figures
 
-[Dive into the world of collectibles as we explore some of the most sought-after Michael Jordan action figures on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Michael-Jordan-Action-Figure.md) From iconic moments during his legendary basketball career to classic advertising campaigns, these limited edition figurines are not just sports memorabilia - they're a piece of history that you can hold in your hand. Join us as we round up some of the best Michael Jordan action figures on offer, perfect for collectors and fans alike. 
+[Dive into the world of collectibles as we explore some of the most sought-after Michael Jordan action figures on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Michael-Jordan-Action-Figure.md) From iconic moments during his legendary basketball career to classic advertising campaigns, these limited edition figurines are not just sports memorabilia - they're a piece of history that you can hold in your hand. Join us as we round up some of the best Michael Jordan action figures on offer, perfect for collectors and fans alike. 
 
 *As an Amazon Affiliate, I receive compensation from qualified purchases at no cost to you.*
 

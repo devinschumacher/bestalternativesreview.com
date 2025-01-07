@@ -56,7 +56,7 @@ Slip into the sophistication of Givenchy's Black Leather Chelsea Boots. These lu
 
 The padded backtop ensures your feet stay comfy all day, while the silver-finish metal eyelets add a subtle touch of elegance. GIVENCHY's signature logo is tastefully debossed on the tongue and heel, emblazoning your style with their signature touch. The boot's chunky rubber sole provides excellent durability, while the embossed GIVENCHY signature on the leather insole adds a final touch of refinement. 
 
-[Overall, these boots are a standout choice for those seeking a combination of style, comfort, and quality.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
+[Overall, these boots are a standout choice for those seeking a combination of style, comfort, and quality.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Keen-Boots.md) 
 
 
 ### [Givenchy Terra 4G Men's Leather Boots](https://serp.ly/@bar/amazon/Givenchy+Boots+Men?utm\_term=givenchy-terra-4g-mens-leather-boots)
@@ -138,7 +138,7 @@ I recently tried on a pair of Givenchy pre-owned Shark Lock Leather Boots in red
 
 Despite being pre-owned, these shoes are in excellent condition with no signs of wear - they still have their protective dust bag, complete with the original design elements and attention to detail. Purchasing pre-owned Shark Lock boots is a great way to be more conscious and eco-friendly, as it continues the life story of the boots and reduces the environmental impact. 
 
-However, just a heads up, these boots do not come with the original tags, so if you're looking for that, you might want to consider something else. [Overall, I am very impressed with the quality and design of these red Givenchy boots and would recommend them to anyone looking for a beautiful, stylish, and eco-friendly addition to their wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Redwing-Work-Boots.md) 
+However, just a heads up, these boots do not come with the original tags, so if you're looking for that, you might want to consider something else. [Overall, I am very impressed with the quality and design of these red Givenchy boots and would recommend them to anyone looking for a beautiful, stylish, and eco-friendly addition to their wardrobe.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Redwing-Work-Boots.md) 
 
 
 ## Buyer's Guide

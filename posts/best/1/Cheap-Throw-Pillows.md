@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Cheap-Throw-Pillows.md
 
 # Cozy Comfort on a Budget -  18 Best Cheap Throw Pillows for Style and Affordability
 
-[Looking to spice up your home decor without breaking the bank?](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cheap-Throw-Pillows.md) Look no further than our roundup of the best [cheap throw pillows](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Throw-Pillows.md)! 
+[Looking to spice up your home decor without breaking the bank?](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cheap-Throw-Pillows.md) Look no further than our roundup of the best [cheap throw pillows](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Cheap-Throw-Pillows.md)! 
 
 In this article, we'll be highlighting affordable and stylish options that will add a touch of luxury to any living space. 
 
@@ -81,7 +81,7 @@ The pillow's neutral color allows it to match various furniture pieces, making i
 
 The Jacobean Square Throw Pillow Neutral by Threshold is a stunning accent piece that effortlessly adds sophistication and charm to any space. With its intricate jacobean pattern, this pillow not only captivates the attention with its distinctive design but also enhances the texture and style of any room. The neutral color palette ensures versatility, seamlessly blending well with a variety of decor styles. 
 
-What sets this throw pillow apart is its luxurious comfort. [The cushioned design provides an added level of comfort, perfect for snuggling up on a sofa, chair, or other piece of accent furniture.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cushions.md) The zipper closure adds a neat and sophisticated touch, making it easy to maintain and clean. 
+What sets this throw pillow apart is its luxurious comfort. [The cushioned design provides an added level of comfort, perfect for snuggling up on a sofa, chair, or other piece of accent furniture.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cushions.md) The zipper closure adds a neat and sophisticated touch, making it easy to maintain and clean. 
 
 Besides the aesthetic and comfort benefits, this pillow is also an environmentally-conscious choice. It carries the STANDARD 100 by OEKO-TEX certification, signifying that it's made of materials that are safe for human health and the environment. 
 

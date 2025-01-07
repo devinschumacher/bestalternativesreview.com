@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Coconut-Water.md
 
 # Hydrate and Fuel -  31 Best Coconut Water Options for Pre and Post-Workout Energy
 
-Introducing a refreshing roundup of the top [Coconut Water](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Coconut-Water.md) products - a perfect blend of nutrition and hydration. [Get ready to explore the best in the market and discover the refreshing delight that Coconut Water has to offer.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Coconut-Water.md) 
+Introducing a refreshing roundup of the top [Coconut Water](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Coconut-Water.md) products - a perfect blend of nutrition and hydration. [Get ready to explore the best in the market and discover the refreshing delight that Coconut Water has to offer.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Coconut-Water.md) 
 
 *As an Amazon Associate I may earn through qualifying purchases!*
 

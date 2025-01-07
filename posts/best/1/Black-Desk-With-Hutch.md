@@ -56,7 +56,7 @@ The South Shore Axess computer desk offers a sleek and modern design, perfect fo
 
 It features two open spaces divided by an adjustable shelf capable of holding a CPU and a drawer for storing office essentials. In addition, the cutout hole at the back panel allows for organized cable management. 
 
-The desk's non-toxic materials make it a safe choice for households with children and pets. FSC certified, this product is environmentally friendly and guarantees fair labor practices. [This desk offers value for money and is a practical addition to any workspace.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Studio-Workstation-Desk.md) 
+The desk's non-toxic materials make it a safe choice for households with children and pets. FSC certified, this product is environmentally friendly and guarantees fair labor practices. [This desk offers value for money and is a practical addition to any workspace.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Studio-Workstation-Desk.md) 
 
 
 ### [Aquzee Black Home Office Desk with Hutch and Bookshelf](https://serp.ly/@bar/amazon/Black+Desk+With+Hutch?utm\_term=aquzee-black-home-office-desk-with-hutch-and-bookshelf)
@@ -171,7 +171,7 @@ The large work surface, coupled with two cubbies and concealed storage, allowed 
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Black+Desk+With+Hutch?utm_term=black-bark-gray-u-shaped-desk-with-hutch-bestar-norma"><img alt="bestar-norma-u-shaped-desk-with-hutch-black-bark-gray-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/bestar-norma-u-shaped-desk-with-hutch-black-bark-gray-1/h=540,fit=pad,background=black"/></a></div>
 
-[I was on the hunt for a sleek, stylish desk that would add a touch of sophistication to my home office.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Desks.md) After some searching, I stumbled upon the Bestar Norma U-Shaped Desk with Hutch in black and gray. The product's highlights immediately caught my eye - not only did it have a modern design, but it also promised ample storage space and ease of setup. 
+[I was on the hunt for a sleek, stylish desk that would add a touch of sophistication to my home office.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Desks.md) After some searching, I stumbled upon the Bestar Norma U-Shaped Desk with Hutch in black and gray. The product's highlights immediately caught my eye - not only did it have a modern design, but it also promised ample storage space and ease of setup. 
 
 Upon receiving the desk, I was pleasantly surprised by its attractive appearance. The two-tone design and metal handles with a black finish truly made it stand out in my office. The ample work surface was perfect for accommodating my many screens and work supplies, and the storage options kept everything neatly organized. 
 
@@ -212,7 +212,7 @@ The Desk Ryndon is a chic and practical addition to your home office. With enoug
 
 Its black wengue finish adds an elegant touch to the piece, while the five shelves offer ample opportunities for decorating or storing items of your choice. The desk is easy to assemble and comes with a one-year manufacturer's warranty for peace of mind. 
 
-[While some may find the desk's dimensions to be a bit cramped, the Ryndon's style and functionality make it an excellent choice for those with a more compact workspace.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Small-Desk-With-Storage.md) 
+[While some may find the desk's dimensions to be a bit cramped, the Ryndon's style and functionality make it an excellent choice for those with a more compact workspace.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Small-Desk-With-Storage.md) 
 
 
 ### [Black L-Shaped Computer Desk with 2-Drawer Hutch and Storage Shelves](https://serp.ly/@bar/amazon/Black+Desk+With+Hutch?utm\_term=black-l-shaped-computer-desk-with-2-drawer-hutch-and-storage-shelves)

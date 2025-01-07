@@ -311,7 +311,7 @@ The straight leg style, however, took some time getting used to. While it looked
 
 Nevertheless, the flat front design was something I truly enjoyed, it gave a clean and modern look and I found it to be quite flattering. The Lauren Ralph Lauren brand is synonymous with luxury, and these pants didn't disappoint in delivering that. 
 
-Despite the somewhat restrictive fit, and the lack of reviews detailing others' experiences, the overall feeling I got from these pants was very positive. [They are a perfect addition to any professional wardrobe and the classic brown color ensures they will never go out of style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Brown-Dress-Shoes.md) 
+Despite the somewhat restrictive fit, and the lack of reviews detailing others' experiences, the overall feeling I got from these pants was very positive. [They are a perfect addition to any professional wardrobe and the classic brown color ensures they will never go out of style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Brown-Dress-Shoes.md) 
 
 
 ### [Stylish Mens Brown Flat Front, Tapered Pants](https://serp.ly/@bar/amazon/Brown+Dress+Pants?utm\_term=stylish-mens-brown-flat-front-tapered-pants)

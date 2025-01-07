@@ -19,7 +19,7 @@ Welcome to our roundup of top-notch [Aluminum Blinds](https://github.com/devinsc
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Aluminum+Blinds?utm_term=cordless-room-darkening-mini-blind-with-smooth-aluminum-slats"><img alt="designers-touch-10793478523870-white-cordless-room-darkening-aluminum-mini-blind-1-in-slats-28-5-in--1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/designers-touch-10793478523870-white-cordless-room-darkening-aluminum-mini-blind-1-in-slats-28-5-in--1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently had the chance to test out the Designer's Touch Cordless Aluminum Mini Blinds and let me tell you, they exceeded my expectations.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cordless-Mini-Blinds.md) Not only were they super easy to install, but they also added a touch of elegance to my living space. The white color was perfect and looked great against my white walls. 
+[I recently had the chance to test out the Designer's Touch Cordless Aluminum Mini Blinds and let me tell you, they exceeded my expectations.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cordless-Mini-Blinds.md) Not only were they super easy to install, but they also added a touch of elegance to my living space. The white color was perfect and looked great against my white walls. 
 
 One feature that really impressed me was the wand tilt slat control. It made it so easy to adjust the blinds to my desired level of light control. The metal bottom rail with handle was a nice touch as well, and it added durability to the blinds. 
 

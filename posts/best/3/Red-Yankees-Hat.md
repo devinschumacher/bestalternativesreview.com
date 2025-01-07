@@ -242,7 +242,7 @@ In terms of construction, well-made hats often feature reinforced seams, sturdy 
 
 ### What are the different styles of Red Yankees Hats available?
 
-There are various styles of Red Yankees Hats on the market, catering to different preferences and occasions. [Some common styles include the traditional flat brim, the structured brim, and the adjustable or flexible fit hats.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wide-Brim-Straw-Hat.md) Each style offers its own benefits and may be preferred by certain consumers. 
+There are various styles of Red Yankees Hats on the market, catering to different preferences and occasions. [Some common styles include the traditional flat brim, the structured brim, and the adjustable or flexible fit hats.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Wide-Brim-Straw-Hat.md) Each style offers its own benefits and may be preferred by certain consumers. 
 
 The flat brim hat, also known as a [bucket hat](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bucket-Hat.md), typically features a low-profile, round brim and a casual, relaxed fit. The structured brim hat, on the other hand, often has a crown and a slightly tapered brim, providing a more formal or traditional appearance. Adjustable or flexible fit hats can be easily adjusted to fit different head sizes and offer convenience and versatility. 
 

@@ -36,7 +36,7 @@ Bethany Housewares' potato ricer transforms your kitchen with its chrome-plated 
 
 The 3.5-inch diameter removable cup simplifies clean-up and its durability holds up well with proper care. However, be mindful that the ricer can cause a mess if not used within a deep bowl, and some users report the handle bend during use. 
 
-[Overall, the Bethany Housewares potato ricer is a reliable choice for making fluffy and light mashed potatoes, but proper handling is needed to prevent handle bending.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Potato-Ricer.md) 
+[Overall, the Bethany Housewares potato ricer is a reliable choice for making fluffy and light mashed potatoes, but proper handling is needed to prevent handle bending.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Potato-Ricer.md) 
 
 
 ### [Large Stainless Steel Potato Ricer with 3 Interchangeable Discs](https://serp.ly/@bar/amazon/Ricer?utm\_term=large-stainless-steel-potato-ricer-with-3-interchangeable-discs)

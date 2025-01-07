@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Dress-Sneakers.md
 
 # Elevate Your Style -  The Top 19 Dress Sneakers for Any Occasion
 
-Welcome to our roundup of the top *[dress sneakers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dress-Sneakers.md)* available today - because style and comfort shouldn't have to be compromised in your footwear. [From on-trend designs to timeless classics, we've curated a selection that seamlessly blends fashion and functionality for the modern, sophisticated sneaker enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dress-Sneakers.md) 
+Welcome to our roundup of the top *[dress sneakers](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Dress-Sneakers.md)* available today - because style and comfort shouldn't have to be compromised in your footwear. [From on-trend designs to timeless classics, we've curated a selection that seamlessly blends fashion and functionality for the modern, sophisticated sneaker enthusiast.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dress-Sneakers.md) 
 
 *As an Amazon Affiliate™ we earn through qualified purchases!*
 

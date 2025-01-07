@@ -114,7 +114,7 @@ Although it's made from 100% polyester, the Hoodzy Blanket maintains a soft and 
 
 Introducing the wearable hooded throw blanket by Safdie & Co. - a unique and stylish accessory perfect for keeping you cozy and warm this winter. This oversized blanket is designed to be worn, offering not only the comfort of a blanket but also the convenience of a hoodie. The one-size-fits-all design ensures a great fit for all users, and its soft, lightweight fabric makes it an essential for both home and office. 
 
-One standout feature of this product is its versatility. Whether you're heading out for errands or running a quick errand, this blanket makes the perfect companion, keeping you warm in the colder months. [And with two attractive buffalo plaid options to choose from, you're sure to find a color that suits your personal style.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Buffalo-Plaid-Pillows.md) 
+One standout feature of this product is its versatility. Whether you're heading out for errands or running a quick errand, this blanket makes the perfect companion, keeping you warm in the colder months. [And with two attractive buffalo plaid options to choose from, you're sure to find a color that suits your personal style.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Buffalo-Plaid-Pillows.md) 
 
 Made from an easy-to-care-for polyester material, this throw blanket is machine washable and easy to maintain. Its generous size provides ample coverage, perfect for cuddling on the couch or keeping you toasty during outdoor events. 
 

@@ -176,7 +176,7 @@ The new packaging is a thoughtful touch to ensure the nails arrive in good condi
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Round+Nails?utm_term=olive-june-press-on-round-fake-nails-kag-sizes-42-count"><img alt="olive-june-press-on-artificial-nails-round-short-kag-pink-42-ct-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/olive-june-press-on-artificial-nails-round-short-kag-pink-42-ct-1/h=540,fit=pad,background=black"/></a></div>
 
-[Experience the epitome of counterfeit nails with the Olive & June Press-On Fake Nails, offering the most realistic fit and a comprehensive selection of sizes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Fake-Nails.md) These synthetic nails boast a glossy medium-toned color finish, made with non-toxic, non-damaging adhesive, ensuring a flawless appearance and long-lasting durability. 
+[Experience the epitome of counterfeit nails with the Olive & June Press-On Fake Nails, offering the most realistic fit and a comprehensive selection of sizes.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Fake-Nails.md) These synthetic nails boast a glossy medium-toned color finish, made with non-toxic, non-damaging adhesive, ensuring a flawless appearance and long-lasting durability. 
 
 Designed with salon-quality results in mind, the Olive & June Press-On Fakes outperform gel manicures, lasting up to 14 days. Included in each package are 42 nails, ensuring you have everything you need for an impeccable manicure right at your fingertips. 
 

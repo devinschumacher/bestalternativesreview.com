@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Vans-Tennis-Shoes.md
 
 # Classic Comfort -  18 Best Vans Tennis Shoes for Style and Performance on the Court
 
-Get ready to step up your tennis game this season with our roundup of the top [Vans tennis shoes](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Vans-Tennis-Shoes.md) available in the market. From classic designs to modern technology, we've got you covered with a diverse array of options to suit your preferences and needs. [Prepare to make a statement on the court and beyond with our curated selection of Vans tennis shoes.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Vans-Tennis-Shoes.md) 
+Get ready to step up your tennis game this season with our roundup of the top [Vans tennis shoes](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Vans-Tennis-Shoes.md) available in the market. From classic designs to modern technology, we've got you covered with a diverse array of options to suit your preferences and needs. [Prepare to make a statement on the court and beyond with our curated selection of Vans tennis shoes.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Vans-Tennis-Shoes.md) 
 
 *As an Amazon Affiliate, I may earn from qualified purchases.*
 
@@ -67,7 +67,7 @@ Just recently, I decided to give the Vans Old Skool 'Baby Blue' a try. I loved h
 
 Slipping them on, I immediately felt the great support and comfort provided by the padded collars, and the toe-box and double stitching ensured durability for those rough skateboard days. The midsole cushioning was another aspect that impressed me, making my all-day skate sessions more enjoyable. The waffle grip rubber outsole gave me the traction and durability I needed, even on rough surfaces. 
 
-However, I didn't find the lace-up closure as securely fitting as I'd hoped. There were times when I had to adjust them to get the proper support. [On the flip side, the trendy look of the blue color was a big plus, making these shoes stand out amongst my other casual footwear options.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Blue-Boots-Mens.md) 
+However, I didn't find the lace-up closure as securely fitting as I'd hoped. There were times when I had to adjust them to get the proper support. [On the flip side, the trendy look of the blue color was a big plus, making these shoes stand out amongst my other casual footwear options.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Blue-Boots-Mens.md) 
 
 Overall, the Vans Old Skool 'Baby Blue' definitely lives up to its reputation, with a mix of timeless style, comfort, and practicality. Just be aware that the lace-up closure might take some adjustments to get the perfect fit. 
 

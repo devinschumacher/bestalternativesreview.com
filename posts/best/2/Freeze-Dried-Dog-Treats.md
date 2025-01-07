@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Freeze-Dried-Dog-Treats.md
 
 # Pamper Your Pooch -  20 Best Freeze Dried Dog Treats for Delicious and Nutritious Chews
 
-Calling all dog lovers! If you're on the hunt for a tasty, nutritious treat to spoil your furry friend with, look no further. [We've rounded up the top freeze-dried dog treats that will have your dog wagging their tail in excitement.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Freeze-Dried-Dog-Treats.md) Ready to discover the perfect treat for your paw-some pup? Let's dive in! 
+Calling all dog lovers! If you're on the hunt for a tasty, nutritious treat to spoil your furry friend with, look no further. [We've rounded up the top freeze-dried dog treats that will have your dog wagging their tail in excitement.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Freeze-Dried-Dog-Treats.md) Ready to discover the perfect treat for your paw-some pup? Let's dive in! 
 
 *As an Amazon Associate, I may earn through qualified purchases.*
 

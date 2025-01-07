@@ -60,14 +60,14 @@ One feature that stood out to me was the added safety of the rounded corners, wh
 
 Despite its excellent features, I did encounter a couple of drawbacks. First, the product dimensions were slightly smaller than I had anticipated, limiting its functionality as a standard side table. Second, the fabric drawer had a noticeable odor upon arrival, which dissipated within a week but was initially off-putting. 
 
-[Overall, I would recommend this Furinno End Table to anyone in need of a compact, stylish storage solution for their bedroom or living space.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/End-Table-With-Storage.md) [While it may not be suitable for larger tables or as a standalone nightstand, its unique blend of materials and features make it an efficient and charming addition to my home.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Tall-Pedestal-Table.md) 
+[Overall, I would recommend this Furinno End Table to anyone in need of a compact, stylish storage solution for their bedroom or living space.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/End-Table-With-Storage.md) [While it may not be suitable for larger tables or as a standalone nightstand, its unique blend of materials and features make it an efficient and charming addition to my home.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Tall-Pedestal-Table.md) 
 
 
 ### [Costway White Nightstand with Large Storage Space](https://serp.ly/@bar/amazon/Cheap+Nightstand?utm\_term=costway-white-nightstand-with-large-storage-space)
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Cheap+Nightstand?utm_term=costway-white-nightstand-with-large-storage-space"><img alt="costway-nightstand-end-beside-table-drawers-modern-storage-bedroom-furniture-white-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/costway-nightstand-end-beside-table-drawers-modern-storage-bedroom-furniture-white-1/h=540,fit=pad,background=black"/></a></div>
 
-[This stylish nightstand end table, boasting a modern design, is a versatile addition to any room.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Wooden-Bedside-Table.md) Its pure white color gives it a classic appearance that can be matched with a variety of furniture styles. Measuring at an adequate size, this accent table can easily fit into any room of the house, be it the bedroom, living room, or bathroom. 
+[This stylish nightstand end table, boasting a modern design, is a versatile addition to any room.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Wooden-Bedside-Table.md) Its pure white color gives it a classic appearance that can be matched with a variety of furniture styles. Measuring at an adequate size, this accent table can easily fit into any room of the house, be it the bedroom, living room, or bathroom. 
 
 Apart from its attractive appearance, this nightstand table has practical uses. It features three drawers and a large opening platform, providing ample storage space for numerous items. You can use this extra space to neatly store and classify various items, therefore keeping your room tidy and organized. 
 
@@ -212,7 +212,7 @@ With dimensions of 15.5 inches in both width and depth, this compact end table i
 
 This antique walnut accent table boasts rustic charm and a simple yet attractive design. Perfect for storing your essential items and adding a touch of elegance to your bedroom or living space, it includes a drawered cabinet and a bottom shelf with adjustable feet for added practicality. 
 
-[Crafted from solid woods and veneers, this versatile table with modern features will fit seamlessly into your home decor.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Rustic-Farmhouse-Table.md) Assemble it easily with the included hardware and enjoy its long-lasting durability and style. 
+[Crafted from solid woods and veneers, this versatile table with modern features will fit seamlessly into your home decor.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Rustic-Farmhouse-Table.md) Assemble it easily with the included hardware and enjoy its long-lasting durability and style. 
 
 
 ### [Affordable 2-Drawer Nightstand with Open Shelf in Cherry](https://serp.ly/@bar/amazon/Cheap+Nightstand?utm\_term=affordable-2-drawer-nightstand-with-open-shelf-in-cherry)

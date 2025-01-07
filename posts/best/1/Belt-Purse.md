@@ -124,7 +124,7 @@ However, I did encounter a few minor issues. Firstly, the single-prong harness b
 
 Secondly, the bag is a bit smaller than I expected. While it can fit all the essentials, it's not quite spacious enough to accommodate a larger phone. I had to remove my phone case in order to fit it inside, which can be a bit inconvenient. 
 
-Despite these minor drawbacks, I've found the Inc Tassel Fanny Pack to be a useful and stylish addition to my daily routine. [It's a great option for those who want a more elegant fanny pack that can still hold all the essentials.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Adidas-Fanny-Pack.md) 
+Despite these minor drawbacks, I've found the Inc Tassel Fanny Pack to be a useful and stylish addition to my daily routine. [It's a great option for those who want a more elegant fanny pack that can still hold all the essentials.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Adidas-Fanny-Pack.md) 
 
 
 ### [Able Karla Cognac Belt Bag - Versatile Fashion Accessory](https://serp.ly/@bar/amazon/Belt+Purse?utm\_term=able-karla-cognac-belt-bag-versatile-fashion-accessory)

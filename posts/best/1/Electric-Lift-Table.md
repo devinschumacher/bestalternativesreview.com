@@ -176,7 +176,7 @@ The pebble-textured vinyl tabletop offers a non-slip surface that is removable f
 
 Constructed from steel and boasting a modern scratch-resistant hammer tone finish, this table not only looks great but also holds up well against wear and tear. Despite its sturdy build, it accommodates pets weighing up to 275 lbs. 
 
-Users have reported mixed experiences with this product. While some appreciate the height adjustability and durability, others have expressed concerns over the challenging texture of the tabletop and potential complications with the foot controls. [Nonetheless, for the most part, this ComfortGroom Electric Grooming Table seems to be a reliable and user-friendly choice for pet grooming professionals.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Dog-Grooming-Table.md) 
+Users have reported mixed experiences with this product. While some appreciate the height adjustability and durability, others have expressed concerns over the challenging texture of the tabletop and potential complications with the foot controls. [Nonetheless, for the most part, this ComfortGroom Electric Grooming Table seems to be a reliable and user-friendly choice for pet grooming professionals.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Dog-Grooming-Table.md) 
 
 
 ### [Master Equipment Z-Lift II Electric Table Lift](https://serp.ly/@bar/amazon/Electric+Lift+Table?utm\_term=master-equipment-z-lift-ii-electric-table-lift)

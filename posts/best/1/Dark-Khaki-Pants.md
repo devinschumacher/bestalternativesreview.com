@@ -110,7 +110,7 @@ However, some users have expressed concerns about the durability of the pockets,
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Dark+Khaki+Pants?utm_term=carhartt-mens-dark-khaki-rigby-cargo-pants"><img alt="carhartt-mens-rugged-flex-rigby-cargo-pant-31x32-dark-khaki-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/carhartt-mens-rugged-flex-rigby-cargo-pant-31x32-dark-khaki-1/h=540,fit=pad,background=black"/></a></div>
 
-[I recently decided to try these Carhartt Men's Rugged Flex Rigby Cargo Pants for daily wear.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Utility-Cargo-Pants.md) The feel of 98% cotton and 2% spandex canvas provided comfort, but the main highlight has got to be the stretchy Rugged Flex technology. 
+[I recently decided to try these Carhartt Men's Rugged Flex Rigby Cargo Pants for daily wear.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Utility-Cargo-Pants.md) The feel of 98% cotton and 2% spandex canvas provided comfort, but the main highlight has got to be the stretchy Rugged Flex technology. 
 
 The cargo pockets were a boon, especially the one with secure cell phone storage. I can attest that it kept my phone safe and in place. The waist fit perfectly and the straight leg opening was just about right for my boots. 
 

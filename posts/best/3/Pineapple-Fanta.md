@@ -9,7 +9,7 @@ slug: /blob/main/posts/best/3/Pineapple-Fanta.md
 
 Discover the perfect blend of tropical flavors with [Pineapple Fanta](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/3/Pineapple-Fanta.md)! 
 
-[In this article, we've handpicked an assortment of the best pineapple-flavored sodas to quench your thirst.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pineapple-Fanta.md) Dive in and explore the vibrant fruity taste that sets Fanta apart from the rest. From classic sodas to unique, artisanal brands, we've got it all right here, waiting for you to indulge in a burst of refreshment. 
+[In this article, we've handpicked an assortment of the best pineapple-flavored sodas to quench your thirst.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pineapple-Fanta.md) Dive in and explore the vibrant fruity taste that sets Fanta apart from the rest. From classic sodas to unique, artisanal brands, we've got it all right here, waiting for you to indulge in a burst of refreshment. 
 
 *As an Amazon Affiliate we receive compensation through qualified purchases at no cost to you*
 
@@ -63,7 +63,7 @@ Whether you're a caffeine lover or a caffeine-free fan, Cactus Cooler will be a 
 
 Jarritos Pineapple soda is a delightful treat originating from Mexico. The package dimensions are compact, fitting well in your refrigerator or pantry, while the weight is manageable at 3.5 pounds. 
 
-[This beverage stands out for its delicious, natural pineapple flavor, making it a refreshing choice for any occasion.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Pineapple-Wine.md) With 110 calories per serving, it provides a light and satisfying drink experience. 
+[This beverage stands out for its delicious, natural pineapple flavor, making it a refreshing choice for any occasion.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Pineapple-Wine.md) With 110 calories per serving, it provides a light and satisfying drink experience. 
 
 However, watch out for its slightly higher sugar content, as it can be high in calories. Additionally, the cane sugar in the product may pose an issue for those with dietary restrictions or concerns about blood sugar levels. Overall, many customers appreciate the old-school glass bottles and unique flavor profile of Jarritos Pineapple soda, making it a popular choice for those who want to experience a taste of Mexico in a bottle. 
 

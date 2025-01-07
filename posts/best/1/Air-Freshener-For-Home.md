@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Air-Freshener-For-Home.md
 
 # Deodorize Your Space -  Top 19 Air Fresheners for a Fresh Home
 
-[Welcome to our roundup of the best Air Fresheners for your home!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Air-Freshener-For-Home.md) In a world where cleanliness and hygiene are essential, the right air freshener can transform your living space into a refreshing and inviting haven. Join us as we explore the top-rated options that are eco-friendly, long-lasting, and sure to delight your senses. 
+[Welcome to our roundup of the best Air Fresheners for your home!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Air-Freshener-For-Home.md) In a world where cleanliness and hygiene are essential, the right air freshener can transform your living space into a refreshing and inviting haven. Join us as we explore the top-rated options that are eco-friendly, long-lasting, and sure to delight your senses. 
 
 *As an Amazon Affiliate™ we may earn from qualifying purchases.*
 
@@ -198,7 +198,7 @@ I recently had the opportunity to try the Pura Smart Home Fragrance Device Start
 
 The customizable scent option is a brilliant feature that allows you to make your space feel just right for your mood. You can control the intensity, set up schedules, and even enable an away mode through the Pura app. Plus, the scents are formulated without parabens, phthalates, or other harsh chemicals, making them safe for my family to use around our pets and young children. 
 
-[The lavender scent is a calming, soothing experience that helps create a relaxing environment.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Lavender-Sandals.md) It's perfect to diffuse at night as I settle in for a good night's sleep. The Yuzu Citron scent is a refreshing, citrusy delight that makes the perfect addition to any space. The combination of these two scents is fantastic – it's like having a mini-spa in the comfort of my home. 
+[The lavender scent is a calming, soothing experience that helps create a relaxing environment.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Lavender-Sandals.md) It's perfect to diffuse at night as I settle in for a good night's sleep. The Yuzu Citron scent is a refreshing, citrusy delight that makes the perfect addition to any space. The combination of these two scents is fantastic – it's like having a mini-spa in the comfort of my home. 
 
 However, the one downside I encountered is that the fragrance intensity is quite strong, bordering on overwhelming at times. I've found that I need to lower the intensity level to get the right balance of scent that suits my taste. 
 

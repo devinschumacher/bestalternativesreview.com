@@ -433,6 +433,6 @@ While using any safety razor, safety should be a top priority. Never use a dull 
 
 Safety razors serve a versatile role in various body hair removal scenarios. They are highly suitable for facial hair, be it the face, neck, or chin. Additionally, eyebrows or sideburns are also within the scope of their abilities. With proper handling and care, they can even be used for sensitive areas like the upper lip, around the ears or nose, without causing irritation or injury. 
 
-To achieve the best results and ensure your comfort, invest in high-quality safety razor blades that last long. [Using aftershave or lotion specifically designed for sensitive skin is essential for maintaining the overall skin condition after shaving.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/After-Shave.md) The key to a smoother experience with a safety razor is to apply shaving cream or gel liberally to minimize friction between your skin and the razor. 
+To achieve the best results and ensure your comfort, invest in high-quality safety razor blades that last long. [Using aftershave or lotion specifically designed for sensitive skin is essential for maintaining the overall skin condition after shaving.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/After-Shave.md) The key to a smoother experience with a safety razor is to apply shaving cream or gel liberally to minimize friction between your skin and the razor. 
 
 *As an Amazon Affiliate™, we may earn through qualifying purchases*

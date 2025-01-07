@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Kids-White-Sneakers.md
 
 # Trendy Tots -  18 Best Kids White Sneakers for School, Play, and Fun
 
-[Get ready to make a stylish statement with our roundup of the best kids' white sneakers!](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Kids-White-Sneakers.md) From classic to modern, discover the perfect pair for your little one's wardrobe in this exciting selection. 
+[Get ready to make a stylish statement with our roundup of the best kids' white sneakers!](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Kids-White-Sneakers.md) From classic to modern, discover the perfect pair for your little one's wardrobe in this exciting selection. 
 
 *As an Amazon Affiliate, we may earn from qualifying purchases*
 

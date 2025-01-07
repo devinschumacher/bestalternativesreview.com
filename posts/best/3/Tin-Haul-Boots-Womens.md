@@ -21,7 +21,7 @@ Get ready to experience the perfect blend of style and comfort with our roundup 
 
 When I first put on my pair of Tin Haul Ladies Between Two Thieves Cowgirl Boots, I was immediately struck by the comfortable cushion support system, making my feet feel cushioned and supported. The obvious see-through sole allowed me to appreciate the details of the boot, from the smooth brown leather vamps to the white cracked leather shafts adorned with barbed wire stitching and black trim. The 11-inch shaft gave me a nice height and a walking heel of 1 3/8 inches. 
 
-[Using these boots in my daily life, I found them to be stylish and unique compared to other cowboy boots on the market.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Cowboy-Boots-Mens.md) What stood out to me was the Tin Haul logo on the right heel, along with the famous Bible verse, John 3:16, etched on a weathered scroll. 
+[Using these boots in my daily life, I found them to be stylish and unique compared to other cowboy boots on the market.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Cowboy-Boots-Mens.md) What stood out to me was the Tin Haul logo on the right heel, along with the famous Bible verse, John 3:16, etched on a weathered scroll. 
 
 However, as with many products, there were pros and cons to using these cowgirl boots. I noticed that the boots were heavier than some of the other shoes in my collection, weighing in at about 4 pounds. This added weight may not be an issue for some users, but it was something I had to get used to. 
 
@@ -198,7 +198,7 @@ The cushioned insole makes for a pleasant experience when walking in these boots
 
 However, the soles of these boots can be quite transparent, making the graphics on them stand out more than I'd like. On the plus side, the square toe shape is a welcomed change from the pointy toes you see in many other boots. 
 
-Overall, these Cactooled Boots 11 are a beautiful addition to any woman's wardrobe, and I can't wait to see how they evolve in my daily life. [I'd definitely recommend them for those seeking a quality, stylish, and comfortable pair of boots.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Keen-Boots.md) 
+Overall, these Cactooled Boots 11 are a beautiful addition to any woman's wardrobe, and I can't wait to see how they evolve in my daily life. [I'd definitely recommend them for those seeking a quality, stylish, and comfortable pair of boots.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Keen-Boots.md) 
 
 
 ### [Tin Haul Women's Golden Horns Leather Boots: Stylish and Versatile Footwear](https://serp.ly/@bar/amazon/Tin+Haul+Boots+Womens?utm\_term=tin-haul-womens-golden-horns-leather-boots-stylish-and-versatile-footwear)

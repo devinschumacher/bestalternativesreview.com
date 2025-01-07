@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/1/Decorative-Home-Collection.md
 
 # Curation Complete -  Our Top 10 Decorative Home Collection Picks for Elevated Style
 
-Welcome to our roundup of the latest and most eye-catching items from the [Decorative Home Collection](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Home-Collection.md). [These unique pieces will transform your living spaces into a true reflection of your style, turning the ordinary into extraordinary.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/1/Decorative-Home-Collection.md) 
+Welcome to our roundup of the latest and most eye-catching items from the [Decorative Home Collection](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Decorative-Home-Collection.md). [These unique pieces will transform your living spaces into a true reflection of your style, turning the ordinary into extraordinary.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/1/Decorative-Home-Collection.md) 
 
 *As an Amazon Affiliate, we earn from qualifying purchases.*
 

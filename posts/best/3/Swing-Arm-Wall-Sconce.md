@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/3/Swing-Arm-Wall-Sconce.md
 
 # Swing into Light -  17 Best Swing Arm Wall Sconces for Decorative and Practical Illumination
 
-Welcome as we take you on a journey to explore the world of Swing Arm Wall Sconces. [These unique lighting fixtures offer a perfect fusion of style, functionality, and versatility.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Contemporary-Light-Fixtures.md) [From accentuating the ambiance of a room to providing essential lighting for your daily needs, these sconces truly deserve their place on your walls.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Led-Wall-Sconce.md) 
+Welcome as we take you on a journey to explore the world of Swing Arm Wall Sconces. [These unique lighting fixtures offer a perfect fusion of style, functionality, and versatility.](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Contemporary-Light-Fixtures.md) [From accentuating the ambiance of a room to providing essential lighting for your daily needs, these sconces truly deserve their place on your walls.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Led-Wall-Sconce.md) 
 
 *As an Amazon Affiliate we earn through qualified purchases!*
 

@@ -7,7 +7,7 @@ slug: /blob/main/posts/best/2/Modern-Bar-Cart.md
 
 # The 19 Best Modern Bar Carts to Elevate Your Drinking Experience
 
-[Indulge in a world of classic cocktails and trendy mixology with our roundup of Modern](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/2/Modern-Bar-Cart.md) [Bar Carts](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bar-Carts.md). These cutting-edge designs blend style and functionality, bringing new life to home entertaining. Explore our curated selection and elevate your drinking experience, one sip at a time. 
+[Indulge in a world of classic cocktails and trendy mixology with our roundup of Modern](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/2/Modern-Bar-Cart.md) [Bar Carts](https://github.com/devinschumacher/bestalternativesreview.com/blob/main/posts/best/1/Bar-Carts.md). These cutting-edge designs blend style and functionality, bringing new life to home entertaining. Explore our curated selection and elevate your drinking experience, one sip at a time. 
 
 *As an Amazon Associate, I earn from qualified purchases at no cost to you.*
 

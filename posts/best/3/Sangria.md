@@ -19,7 +19,7 @@ Welcome to our roundup of the best [Sangria](https://github.com/devinschumacher/
 
 <div class="image"><a href="https://serp.ly/@bar/amazon/Sangria?utm_term=carlo-rossi-classic-sangria-750-ml-bottle"><img alt="carlo-rossi-sangria-750-ml-1" height="540" src="https://imagedelivery.net/vy2bglCGN6hEeWOnSe2c7A/carlo-rossi-sangria-750-ml-1/h=540,fit=pad,background=black"/></a></div>
 
-Introducing the delightful Carlo Rossi Sangria - a refreshing red wine that brings a burst of fruity flavors to the table. [With a medium-bodied feel and notes of red fruits and citrus, this wine is perfect for those who love a fruity finish.](https://github.com/devinschumacher/bestalternativereviews.com//blob/main/posts/best/3/Red-Wine-Glasses.md) 
+Introducing the delightful Carlo Rossi Sangria - a refreshing red wine that brings a burst of fruity flavors to the table. [With a medium-bodied feel and notes of red fruits and citrus, this wine is perfect for those who love a fruity finish.](https://github.com/devinschumacher/bestalternativereviews.com/blob/main/posts/best/3/Red-Wine-Glasses.md) 
 
 Its subtle hint of spritz adds an extra zing, making it a standout option in the world of wines. Whether you enjoy it as is or spruce it up with your favorite fruits, Carlo Rossi Sangria is designed for social gatherings, making it a great addition to any festivity. This wine's screw-top lid ensures easy opening and secure storage, keeping your wine fresh for longer periods. 
 
