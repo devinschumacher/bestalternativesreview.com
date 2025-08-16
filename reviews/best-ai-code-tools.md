@@ -2,6 +2,15 @@
 
 Shopping for an AI programming companion can feel overwhelming. With dozens of options promising to revolutionize your development workflow, how do you separate the genuine innovations from the marketing hype? This comprehensive buyer's guide breaks down everything you need to know.
 
+
+
+# Coders in Flow Feature Demo
+
+<a href="https://www.youtube.com/watch?v=ZuYV65Z7P24" target="_blank">
+<img src="https://raw.githubusercontent.com/devinschumacher/uploads/refs/heads/main/images/coders-in-flow-ai-code-tool-demo-the-best-tool-ive-tried-to-date-guest-video.jpg" width="700px">
+</a>
+
+
 ## Decision Framework: What Matters Most?
 
 Before diving into specific tools, consider these critical factors:
